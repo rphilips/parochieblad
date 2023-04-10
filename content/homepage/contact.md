@@ -3,6 +3,9 @@ title: "Contact"
 weight: 4
 header_menu: true
 ---
+
+![Contacts](images/contact.jpg)
+
 <br />
 <h6>PLAATSELIJKE REDACTIE</h6>
 <br />

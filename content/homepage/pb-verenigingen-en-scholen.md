@@ -60,6 +60,27 @@ Het Davidsfondsbestuur<br>
 
 
 
+#### KWB NAZARETH-EKE
+<br>
+Bedevaart naar Oostakker op maandag <b>1 mei</b>.<br>
+<br>
+03.15 u. vertrek voetgangers<br>
+06.15 u. vertrek fietsers<br>
+<br>
+telkens aan de voorkant kerk Nazareth.<br>
+Om 08.00 u. eucharistieviering door E.H. Mark Soens.<br>
+<br>
+Na de misviering doen we gezamenlijk de kruisweg/ommegang, daarna kan mee aangeschoven worden voor koffie en boterkoeken (5 EUR /pp).<br>
+<br>
+Info: Dirk Le Roy {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:093854460">09 385 44 60</a> {{<icon class="fa fa-envelope">}}&nbsp;<a href="leroy@rinassur.be">leroy@rinassur.be</a><br>
+<br>
+<br>
+<br>
+
+
+
+
+
 #### LDC 'DEN OEVER' - KLOOSTERSTRAAT - GAVERE
 <br>
 <b>Woensdag 19 april</b> om 10.00 u.: Sacraal dansen<br>

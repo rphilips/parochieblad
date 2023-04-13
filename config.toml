@@ -1,4 +1,4 @@
-baseURL = 'https://rphilips.github.io/parochieblad/'
+baseURL = 'https://rphilips.github.io/parochieblad/abcdefghijklM'
 disableKinds = ["section", "taxonomy", "term", "RSS", "robotsTXT"]
 languageCode = 'nl'
 defaultContentLanguage = 'nl'

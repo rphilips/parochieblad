@@ -1,5 +1,5 @@
 hugo
-git add --all
+git add -u . 
 
 echo -n "Commit: ";
 read;

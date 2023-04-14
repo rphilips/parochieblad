@@ -21,7 +21,7 @@ Via het wachtnummer <b>1733</b>, ieder weekend van vrijdag 19.00 u. tot maandag 
 <br>
 GEOWACHT<br>
 <br>
-Over dag (tot 22.00 u.) kan je de apotheek van wacht terugvinden via de website {{<icon class="fa fa-external-link">}}&nbsp;<a href="https://www.geowacht.be" taeget=_blank>https://www.geowacht.be</a> of tel. <b>{{<icon class="fa fa-phone">}}&nbsp;<a href="tel:090399000">0903 99 000</a></b>.<br>
+Over dag (tot 22.00 u.) kan je de apotheek van wacht terugvinden via de website {{<icon class="fa fa-external-link">}}&nbsp;<a href="http://www.geowacht.be" taeget=_blank>http://www.geowacht.be</a> of tel. <b>{{<icon class="fa fa-phone">}}&nbsp;<a href="tel:090399000">0903 99 000</a></b>.<br>
 <br>
 Uit veiligheidsredenen worden de apotheken met nachtwacht niet geafficheerd of publiek bekend gemaakt.<br>
 <br>

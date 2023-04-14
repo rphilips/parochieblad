@@ -50,8 +50,8 @@ Het Davidsfondsbestuur<br>
 
 #### FEMMA ASPER
 <br>
-<b>Woensdag 26 april</b> om 19.00 u. in het OC St. Martinus te Asper: Gezellig haken & Breien. Info: Steffi Beyaert op {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:0472386777">0472 38 67 77</a> of {{<icon class="fa fa-envelope">}}&nbsp;<a href="steffi.beyaert@hotmail.com">steffi.beyaert@hotmail.com</a><br>
-<b>Donderdag 27 april</b> om 14.00 u. in het O.C. St.-Martinus (Hulstraat Asper): Maandelijkse BINGO-namiddag. Inschrijven: Lydie Vanderstichelen {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:093841423">09 384 14 23</a><br>
+<b>Woensdag 12 april</b> om 19.00 u. in het OC St. Martinus te Asper: YOGA - lessenreeks. Info: Rita Petereyns op {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:0479675175">0479 67 51 75</a> of {{<icon class="fa fa-envelope">}}&nbsp;<a href="ritapetereyns@gmail.com">ritapetereyns@gmail.com</a><br>
+<b>Zondag 16 april</b> om 08.30 u. in het OC St.-Martinus, Hulstraat 27, Asper: PAASONTBIJT (tot 10.00 u.). Inschrijven kan tegen uiterlijk <b>7 april</b> bij Rita Petereyns op {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:0479675175">0479 67 51 75</a> of {{<icon class="fa fa-envelope">}}&nbsp;<a href="ritapetereyns@gmail.com.">ritapetereyns@gmail.com.</a> Kinderen van 7 tot 12 jaar: 9 EUR - volwassenen : 18 EUR. Iedereen van harte welkom !<br>
 <br>
 <br>
 <br>
@@ -60,19 +60,10 @@ Het Davidsfondsbestuur<br>
 
 
 
-#### KWB NAZARETH-EKE
+#### FERM ASPER
 <br>
-Bedevaart naar Oostakker op maandag <b>1 mei</b>.<br>
-<br>
-03.15 u. vertrek voetgangers<br>
-06.15 u. vertrek fietsers<br>
-<br>
-telkens aan de voorkant kerk Nazareth.<br>
-Om 08.00 u. eucharistieviering door E.H. Mark Soens.<br>
-<br>
-Na de misviering doen we gezamenlijk de kruisweg/ommegang, daarna kan mee aangeschoven worden voor koffie en boterkoeken (5 EUR /pp).<br>
-<br>
-Info: Dirk Le Roy {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:093854460">09 385 44 60</a> {{<icon class="fa fa-envelope">}}&nbsp;<a href="leroy@rinassur.be">leroy@rinassur.be</a><br>
+<b>Woensdag 12 april</b> om 15.00 u. in het O.C. St.-Martinus te Asper: Kinderkookworkshop. Info en Inschrijven voor <b>9 april</b> bij Micheline Vandecauter op {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:093860855">09 386 08 55</a> of {{<icon class="fa fa-envelope">}}&nbsp;<a href="Micheline.vdcautere@gmail.com">Micheline.vdcautere@gmail.com</a><br>
+<b>Woensdag 12 april</b> om 20.00 u. in Sporthal Overbeke (Veldstraat Asper): Beter Bewegen (tot 21.00 u.)<br>
 <br>
 <br>
 <br>
@@ -83,6 +74,10 @@ Info: Dirk Le Roy {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:093854460">09
 
 #### LDC 'DEN OEVER' - KLOOSTERSTRAAT - GAVERE
 <br>
+<b>Donderdag 13 april</b> om 14.00 u.: Mantelzorgcafé: informeel moment<br>
+<b>Donderdag 13 april</b> om 14.00 u. in cafétaria van het WZC: Modeshow<br>
+<b>Dinsdag 18 april</b> om 10.00 u.: Yoga<br>
+<b>Dinsdag 18 april</b> om 14.00 u.: Lijndansen, portrettekenen en rummikub<br>
 <b>Woensdag 19 april</b> om 10.00 u.: Sacraal dansen<br>
 <b>Woensdag 19 april</b> om 14.00 u.: Diamond painting<br>
 <b>Donderdag 20 april</b> om 13.00 u.: Spaans op reis 2A ism KISP<br>
@@ -96,11 +91,12 @@ Info: Dirk Le Roy {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:093854460">09
 
 #### OKRA TREFPUNT EKE
 <br>
+<b>Woensdag 12 april</b> om 14.00 u. in CC De Brouwerij: Kaarten<br>
+<b>Donderdag 13 april</b> om 13.45 u. aan de kerk: Wandelen. Vertrek met carpooling<br>
+<b>Vrijdag 14 april</b> om 14.00 u. in CC Nova: Paaskoffietafel<br>
+<b>Maandag 17 april</b> om 13.30 u. in CC De Brouwerij: Crea-atelier.<br>
+<b>Dinsdag 18 april</b> om 14.00 u. in de Sporthal in Nazareth: Petanque.<br>
 <b>Donderdag 20 april</b> om 14.00 u. in CC De Brouwerij: Lijndans en Rummikub<br>
-<b>Woensdag 26 april</b> om 14.00 u. in CC De Brouwerij: Kaarten<br>
-<b>Donderdag 27 april</b> om 09.00 u. in CC De Brouwerij: Lijndans<br>
-<b>Donderdag 27 april</b> om 13.45 u. aan de kerk: Wandelen. Vertrek met carpooling.<br>
-<b>Donderdag 27 april</b> om 13.45 u. aan de kerk: Fietsen.<br>
 <br>
 <br>
 <br>
@@ -113,11 +109,11 @@ Info: Dirk Le Roy {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:093854460">09
 <br>
 Activiteitenkalender voor maart en april 2023<br>
 <br>
+<b>Woensdag 12 april</b> om 14.00 u. in cc Het Centrum: Paasfeest<br>
+<b>Donderdag 13 april</b> om 14.00 u. in cc Het Centrum: Lijndansen<br>
+<b>Dinsdag 18 april</b> om 14.00 u.: Kaarten, rummikub, crea<br>
 <b>Donderdag 20 april</b> om 14.00 u. aan cc Het Centrum: Fietsen<br>
 <b>Vrijdag 21 april</b> om 14.00 u. in cc Het Centrum: Voordracht: Phishing<br>
-<b>Dinsdag 25 april</b>: 4-daagse reis (tot vrijdag <b>28 april 2023</b>) naar Nederland<br>
-<b>Dinsdag 25 april</b> om 14.00 u. aan de Sporthal: Petanque<br>
-<b>Donderdag 27 april</b> om 14.00 u. in cc Het Centrum: Lijndansen<br>
 <br>
 <br>
 !!! Voor meer info: tel. {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:093855371">09 385 53 71</a><br>
@@ -131,8 +127,22 @@ Activiteitenkalender voor maart en april 2023<br>
 
 #### SAMANA ASPER
 <br>
+<b>Donderdag 13 april</b> om 14.00 u. in het OC ST.-Martinus te Asper: PAASFEEST. Na het bezinningsmoment kunnen jullie genieten van pannenkoeken met koffie/thee à volonté. Wie wenst kan pannenkoeken bestellen om mee te nemen naar huis. Inschrijven kunnen jullie bij Lydie Vanderstichelen, e-mail: {{<icon class="fa fa-envelope">}}&nbsp;<a href="lydie.vanderstichelen@telenet.be">lydie.vanderstichelen@telenet.be</a>, tel. {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:093841423">09 384 14 23</a>, GSM {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:0498459548">0498 45 95 48</a>, tegen uiterlijk <b>5 april 2023</b>. Deelnemen kost 6 EUR per persoon. Voor alle ingeschrevenen is er een 'paasgeschenk' voorzien.<br>
 <b>Donderdag 20 april</b> om 14.00 u. in het OC St.-Martinus te Asper: Spelnamiddag. Inschrijven en info bij Lydie Vanderstichelen.<br>
 <br>
+<br>
+<br>
+<br>
+
+
+
+
+
+#### SAMANA NAZARETH
+<br>
+<b>Zaterdag 15 april</b> om 14.00 u. in CC Het Centrum: Paasfeest met koffietafel. Inschrijven is verplicht.<br>
+<br>
+Voor verdere inlichtingen bij Van Kerkhove Renaat {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:093855069">09 385 50 69</a><br>
 <br>
 <br>
 <br>

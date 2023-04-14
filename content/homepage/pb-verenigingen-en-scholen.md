@@ -13,7 +13,7 @@ header_menu: true
 
 #### DAVIDSFONDS NAZARETH EKE
 <br>
-<figure><img src="images/pb-caljon.jpg" alt=" Pikante taalkronkels met Carine Caljon © Davidsfond Nazareth Eke" /><figcaption> Pikante taalkronkels met Carine Caljon © Davidsfond Nazareth Eke</figcaption></figure><br>
+<figure><img src="images/pb-caljon.jpg" alt=" Pikante taalkronkels met Carine Caljon © Davidsfond Nazareth Eke" style="max-height: 500px; max-width: 500px;" /><figcaption> Pikante taalkronkels met Carine Caljon © Davidsfond Nazareth Eke</figcaption></figure><br>
 <br>
 PIKANTE TAALKRONKELS MET CARINE CALJON<br>
 <br>

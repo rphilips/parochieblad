@@ -170,7 +170,10 @@ gsm nr. {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:0497856710">0497 85 6
 
 #### AMICORUM: PAASFEEST
 <br>
-<figure><img src="images/pb-cnuy.jpg" alt=" Paasfeest van het koor Amicorum © Annie de Cnuydt" style="max-height: 500px; max-width: 500px;" /><figcaption> Paasfeest van het koor Amicorum © Annie de Cnuydt</figcaption></figure><br>
+<figure><img src="images/pb-c1.jpg" alt=" Paasfeest van het koor Amicorum (1) © Annie de Cnuydt" style="max-height: 500px; max-width: 500px;" /><figcaption> Paasfeest van het koor Amicorum (1) © Annie de Cnuydt</figcaption></figure><br>
+<figure><img src="images/pb-c2.jpg" alt=" Paasfeest van het koor Amicorum (2) © Annie de Cnuydt" style="max-height: 500px; max-width: 500px;" /><figcaption> Paasfeest van het koor Amicorum (2) © Annie de Cnuydt</figcaption></figure><br>
+<figure><img src="images/pb-c3.jpg" alt=" Paasfeest van het koor Amicorum (3) © Annie de Cnuydt" style="max-height: 500px; max-width: 500px;" /><figcaption> Paasfeest van het koor Amicorum (3) © Annie de Cnuydt</figcaption></figure><br>
+<figure><img src="images/pb-c4.jpg" alt=" Paasfeest van het koor Amicorum (4) © Annie de Cnuydt" style="max-height: 500px; max-width: 500px;" /><figcaption> Paasfeest van het koor Amicorum (4) © Annie de Cnuydt</figcaption></figure><br>
 <br>
 <br>
 <br>

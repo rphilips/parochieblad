@@ -55,7 +55,7 @@ header_menu: true
 ##### Zaterdag 6 mei 2023  
 <dl><dt><b>10.00 u. Eke:</b></dt><dd>Eerste Communie<br>Lectoren: Communicanten</dd>
 <dt><b>13.30 u. Nazareth:</b></dt><dd>Huwelijk Liesbeth Dhaenens en Philippe Audrain</dd>
-<dt><b>15.00 u. Asper:</b></dt><dd>Eerste Communie</dd>
+<dt><b>15.00 u. Asper:</b></dt><dd>Eerste Communie<br>Lectoren: Communicanten</dd>
 <dt><b>18.00 u. Eke:</b></dt><dd>Edmond Gevaert en familie<br><i>Lector: Philippe Lammens</i></dd>
 </dl>
 

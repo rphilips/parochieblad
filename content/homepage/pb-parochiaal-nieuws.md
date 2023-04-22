@@ -15,7 +15,7 @@ header_menu: true
 <br>
 We namen in de kerk afscheid van:<br>
 <br>
-<i>Lucien Cansse</i>, 78 j., echtg. Diana Caron uit Gavere<br>
+<i>Lucien Cansse</i>, 74 j., echtg. Diana Caron uit Gavere<br>
 <i>Lea Vermeire</i>, 82 j., weduwe Firmin Reynvoet uit Eke<br>
 <br>
 <br>
@@ -70,7 +70,8 @@ Leg de parkeerschijf duidelijk zichtbaar achter de voorruit van uw wagen. Met ee
 <br>
 <figure><img src="images/pb-com.jpg" alt=" Eerste communie © Wikipedia" style="max-height: 500px; max-width: 500px;" /><figcaption> Eerste communie © Wikipedia</figcaption></figure><br>
 <br>
-<i>Gedicht bij de eerste communie</i><br>
+<b>Gedicht bij de eerste communie</b><br>
+<br>
 <i>Een engel van zeven</i><br>
 <i>niet meer van deze tijd</i><br>
 <i>niet meer begrepen</i><br>

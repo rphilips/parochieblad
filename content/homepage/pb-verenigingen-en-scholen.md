@@ -60,6 +60,34 @@ Op <b>14 mei 2023</b> (moederdag !) kunt u mama en de rest van het gezin verwenn
 
 
 
+#### FERM SEMMERZAKE
+<br>
+<b>Donderdag 4 mei</b> om 19.00 u.: Kookdemo "Klassiek gezonder" in de Borgwalhoeve, Leenstraat, 31, Vurste.<br>
+<br>
+Van echte klassiekers of populaire gerechten maken we een lekkere, gezonde variant. Alles even lekker maar perfect passend in een gezonde(re) levensstijl. We mogen uitgebreid proeven en krijgen de recepten mee naar huis. Ook niet-leden zijn welkom !<br>
+<br>
+Info en  inschrijven vóór  zondag <b>1 mei</b>  via {{<icon class="fa fa-envelope">}}&nbsp;<a href="FermSemmerzake@gmail.com">FermSemmerzake@gmail.com</a> of  bij Rita Nachtergaele {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:093841735">09 384 17 35</a>.<br>
+<br>
+<br>
+<br>
+
+
+
+
+
+#### LANDELIJKE GILDE ASPER
+<br>
+Op dinsdagavond <b>16 mei 2023</b> om 19.00 uur is er in het Ontmoetingscentrum St. Martinus een H. Mis naar aanleiding van de kruisdagen, voor de zegening van de vruchten, de velden en de dieren. We danken God voor onze schepping.<br>
+<br>
+U bent er allen welkom om deze avondmis samen te vieren. Bij mooi weer is de viering buiten, bij noodweer en regen binnen.<br>
+<br>
+<br>
+<br>
+
+
+
+
+
 #### LDC 'DEN OEVER' - KLOOSTERSTRAAT - GAVERE
 <br>
 <b>Woensdag 3 mei</b> om 14.00 u.: Diamond painting<br>

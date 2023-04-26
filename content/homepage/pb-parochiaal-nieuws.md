@@ -11,38 +11,19 @@ header_menu: true
 
 
 
-#### OVERLIJDEN
+#### DOOPSEL
 <br>
-We namen in de kerk afscheid van:<br>
-<br>
-<i>Lucien Cansse</i>, 74 j., echtg. Diana Caron uit Gavere<br>
-<i>Lea Vermeire</i>, 82 j., weduwe Firmin Reynvoet uit Eke<br>
+Deze kinderen ontvingen het doopsel op <b>29 april</b> om hun eerste communie te kunnen ontvangen:<br>
 <br>
 <br>
-<br>
-
-
-
-
-
-#### NAZARETH: OPNIEUW BEELDENGROEP DEFINITIEF THUIS
-<br>
-<figure><img src="images/pb-doorn.jpg" alt=" Jezus wordt met doornen gekroond © Greta Peil" style="max-height: 500px; max-width: 500px;" /><figcaption> Jezus wordt met doornen gekroond © Greta Peil</figcaption></figure><br>
-<br>
-Sommigen onder jullie hebben het misschien al gezien: sedert woensdag <b>19 april</b> is het beeld in de kapel recht tegenover het Kinderkasteeltje definitief terug.<br>
-Bart Verbeke heeft schitterend werk geleverd met mooie, levendige kleuren en expressieve uitdrukkingen op de gezichten.<br>
-<br>
-<figure><img src="images/pb-vind.jpg" alt=" Het terugvinden van Jezus in de tempel © Greta Peil" style="max-height: 500px; max-width: 500px;" /><figcaption> Het terugvinden van Jezus in de tempel © Greta Peil</figcaption></figure><br>
-<br>
-Ook de beeldengroep die in de kapel zal komen op de hoek van de Steinstraat en de Kapellestraat is opnieuw thuis, maar nog even niet te bewonderen.<br>
-Momenteel is de gemeente Nazareth bezig deze kapel op orde te brengen, zodat het beeld een droog onderkomen krijgt. Van zodra deze werkzaamheden achter de rug zijn, wordt de beeldengroep teruggeplaatst.<br>
-Dank je wel aan Pieter en Daniël, en de gemeente Nazareth, voor het restaureren van deze kapel.<br>
-<br>
-Het beeld van de kapel op de hoek van de Ommegangstraat en de Kasteelstraat is dan weer even uit de kapel gehaald.<br>
-Ook aan deze kapel worden herstellingswerkzaamheden uitgevoerd. Al het oude voegwerk zal verwijderd worden, waarna de kapel opnieuw gevoegd zal worden.<br>
-Ook hier dankjewel aan de beide mannen van de gemeente Nazareth voor hun werk.<br>
-<br>
-Momenteel zijn de 3 laatste beelden bij de restaurateur. Als alles volgens plan verloopt, zullen alle restauraties tegen de ommegang van <b>8 september</b> afgerond zijn.<br>
+<i>Luuk Van De Gehuchte</i>, Deinze<br>
+<i>Miel Van De Gehuchte</i>, Deinze<br>
+<i>Lyam Schatteman</i>, Deinze<br>
+<i>Noa De waele</i>, Nazareth<br>
+<i>Maria Soudan</i>, Nazareth<br>
+<i>Finn Gysel</i>, Nazareth<br>
+<i>Cas Goeminne</i>, Asper<br>
+<i>Elle Charlier</i>, Semmerzake<br>
 <br>
 <br>
 <br>
@@ -51,13 +32,9 @@ Momenteel zijn de 3 laatste beelden bij de restaurateur. Als alles volgens plan 
 
 
 
-#### GAVERE: GEWIJZIGDE PARKEERSITUATIE RONDOM DE KERK VAN VANAF 1 MEI
+#### EKE: AMICORUM KOOR
 <br>
-<figure><img src="images/pb-parkeer.jpg" alt=" Parkeerschijf © Wikipedia" style="max-height: 500px; max-width: 500px;" /><figcaption> Parkeerschijf © Wikipedia</figcaption></figure><br>
-<br>
-De blauwe parkeerschijf is ook verplicht op zon- en feestdagen van 9 uur tot 12 uur in alle straten rondom de kerk (Kloosterstraat, Molenstraat, Baaigemstraat, Weverij, Onderstraat, Markt, ...)<br>
-<br>
-Leg de parkeerschijf duidelijk zichtbaar achter de voorruit van uw wagen. Met een geldige schijf kan u 2 uur parkeren, te rekenen vanaf het aanvangsuur dat werd aangeduid op de schijf.<br>
+<figure><img src="images/pb-ami.jpg" alt=" Amicorum koor cr © Guy Claus" style="max-height: 500px; max-width: 500px;" /><figcaption> Amicorum koor cr © Guy Claus</figcaption></figure><br>
 <br>
 <br>
 <br>
@@ -66,40 +43,13 @@ Leg de parkeerschijf duidelijk zichtbaar achter de voorruit van uw wagen. Met ee
 
 
 
-#### EERSTE COMMUNIE IN ASPER EN GAVERE
+#### FERM SEMMERZAKE
 <br>
-<figure><img src="images/pb-com.jpg" alt=" Eerste communie © Wikipedia" style="max-height: 500px; max-width: 500px;" /><figcaption> Eerste communie © Wikipedia</figcaption></figure><br>
+Donderdag <b>4 mei</b> om 19.00 u. : Kookdemo "Klassiek gezonder" in de Borgwalhoeve, Leenstraat, 31, Vurste.<br>
 <br>
-<b>Gedicht bij de eerste communie</b><br>
+Van echte klassiekers of populaire gerechten maken we een lekkere, gezonde variant. Alles even lekker maar perfect passend in een gezonde(re) levensstijl. We mogen uitgebreid proeven en krijgen de recepten mee naar huis. Ook niet-leden zijn welkom !<br>
 <br>
-<i>Een engel van zeven</i><br>
-<i>niet meer van deze tijd</i><br>
-<i>niet meer begrepen</i><br>
-<i>door wie de ongereptheid en de onschuld</i><br>
-<i>heeft opgegeven</i><br>
-<i>een vage na te jagen droom.</i><br>
-<br>
-<i>Toch stap je fier maar broos en breekbaar</i><br>
-<i>tussen al die grotemensenogen</i><br>
-<i>die naar je kijken</i><br>
-<i>waterogend</i><br>
-<i>zonder je te zien.</i><br>
-<br>
-<i>Want je bent er even niet</i><br>
-<i>in deze wereld</i><br>
-<i>je bent bij Hem</i><br>
-<i>in wiens naam je bent gedoopt</i><br>
-<i>totnogtoe was Hij alleen</i><br>
-<i>een mooi verhaal.</i><br>
-<br>
-<i>Maar nu voor 't eerst</i><br>
-<i>wil Hij in en met jou zijn</i><br>
-<i>een communio zonder weerga</i><br>
-<i>een vriendschap</i><br>
-<i>die je groot en sterkt maakt</i><br>
-<i>voor altijd.</i><br>
-<br>
-(Marcel Verhelst)<br>
+Info en  inschrijven vóór  zondag <b>1 mei</b>  via {{<icon class="fa fa-envelope">}}&nbsp;<a href="FermSemmerzake@gmail.com">FermSemmerzake@gmail.com</a> of  bij Rita Nachtergaele {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:093841735">09 384 17 35</a>.<br>
 <br>
 <br>
 <br>
@@ -108,20 +58,11 @@ Leg de parkeerschijf duidelijk zichtbaar achter de voorruit van uw wagen. Met ee
 
 
 
-#### EERSTE COMMUNICANTJES ASPER
+#### LANDELIJKE GILDE ASPER
 <br>
-Beheydt Marie-Lou, Bosschaert Joshua, De Groote Fyna, De Groote Jules, Dierick Finn, Floré Guiliano, Hoste Lina, Huygens Andreas, Manderick Julie, Moerman Loïc, Sentrie Noor, Van Cauwenberge Lars, Vanhoecke Amber, Verhoeven Amber, Verlinden Emiel, Vermeire Fleur, Vermeulen Juul<br>
+Op dinsdagavond <b>16 mei 2023</b> om 19.00 uur is er in het Ontmoetingscentrum St. Martinus een H. Mis naar aanleiding van de kruisdagen, voor de zegening van de vruchten, de velden en de dieren. We danken God voor onze schepping.<br>
 <br>
-<br>
-<br>
-
-
-
-
-
-#### EERSTE COMMUNICANTJES GAVERE
-<br>
-Arijs Charles, Backaert Arthur, Beyens Danté, Caluwé Fran, Camerlynck Foley Finn, Charlier Elle, Cnockaert Améline, Costa Conçalves Luena, De Martelaere Jelle, De Backer Finn, De Clerck Jan-Benjamin, De Lobelle Lars, De Schepper Maxime, De Vogelaere Elise, Delcour Olympia, Demoor Axelle, Demulier Noah, Dereymaeker Jérôme, Dewilde Alexander, Dhondt Claire, Dhondt Florence, Goeminne Cas, Hebbrecht Milan, Heirbrant Jeroom, Locquet Vince, Notebaert Alice, Pijck Elena, Ponnet Milo, Ronsse Axelle, Schollaert Elena, Snoeck Amaury, Thienpont Maybelle, Thijs Jutta, Tuytens Maro, Uyttersprot Ryan, Van Coppenholle Eleana Annie, Van Den Driessche Jaylée, Van Hevele Alice, Van Hoecke Lander, Van Thienen Maurik, Vermassen Amber, Vermeulen Sander, Verschelden Remi, Visoti Valentina<br>
+U bent er allen welkom om deze avondmis samen te vieren. Bij mooi weer is de viering buiten, bij noodweer en regen binnen.<br>
 <br>
 <br>
 <br>
@@ -130,51 +71,18 @@ Arijs Charles, Backaert Arthur, Beyens Danté, Caluwé Fran, Camerlynck Foley Fi
 
 
 
-#### ST.AMANDUS - EKE: VORMSELCATECHESE
+#### NAZARETH: KAPEL HOEK STEINSTRAAT - KAPELLESTRAAT
 <br>
-<figure><img src="images/pb-vormsel.jpg" alt=" ST.AMANDUS - EKE: VORMSELCATECHESE © Hilde Vanmeirhaeghe" style="max-height: 500px; max-width: 500px;" /><figcaption> ST.AMANDUS - EKE: VORMSELCATECHESE © Hilde Vanmeirhaeghe</figcaption></figure><br>
+<figure><img src="images/pb-stein.jpg" alt=" Kapel hoek Steinstraat-Kapellestraat © Greta Peil" style="max-height: 500px; max-width: 500px;" /><figcaption> Kapel hoek Steinstraat-Kapellestraat © Greta Peil</figcaption></figure><br>
 <br>
-Ben je geboren in 2012?<br>
+Daniël en Pieter hebben, in opdracht van de gemeente Nazareth, de ommegangskapel op de hoek van de Steinstraat en de Kapellestraat hersteld.<br>
 <br>
-Wil je in 2024 het vormsel ontvangen op de St.Amandus parochie te Eke?<br>
+De nis werd grondig aangepakt.<br>
+Het oude vloertje werd uitgebroken en vervangen door nieuwe tegeltjes.<br>
+De oude, afbrokkelende bepleistering werd verwijderd, waarna de nis opnieuw bepleisterd werd. Daarna werd de nis in fris lichtblauw geverfd en tot slot behandeld met een vochtwerende laag.<br>
+De witsteen aan de hoeken en bovenaan onder de pannen werd hersteld en geverfd en als laatste werd het herstelde en gereinigde kruis opnieuw op de nok bevestigd.<br>
 <br>
-Dan krijg je de kans om het vormseltraject op onze parochie, als voorbereiding op je vormsel te volgen.<br>
-<br>
-Het sacrament van het vormsel is een belangrijk gebeuren in je leven.<br>
-Met het vormsel hernieuwen de vormelingen hun doopbeloften en ontvangen het vormselsacrament.<br>
-<br>
-Praat erover met je ouders.<br>
-<b>Het vormsel is 'geen verplichting' maar een vrije keuze die je maakt.</b><br>
-<br>
-Hier staan enkele vraagjes die je misschien kunnen helpen om te kiezen:<br>
-<br>
-<b>Vormsel... JA OF NEE?</b><br>
-<br>
-Ben je gedoopt?<br>
-Volg je op school katholieke godsdienst?<br>
-Wil je groeien in geloof? Wil je bij Jezus en zijn Kerk horen?<br>
-Ben je bereid om naar de catechese te komen en naar de eucharistie ?<br>
-Heb je <b>JA</b> geantwoord op deze vraagjes?<br>
-<br>
-Meld je dan aan via mail : {{<icon class="fa fa-envelope">}}&nbsp;<a href="hvanmeirhaeghe@skynet.be">hvanmeirhaeghe@skynet.be</a><br>
-<br>
-Meer info :<br>
-De verantwoordelijke vormselcatechese : Vanmeirhaeghe Hilde:<br>
-gsm nr. {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:0497856710">0497 85 67 10</a> of via mail.<br>
-<br>
-<br>
-<br>
-
-
-
-
-
-#### AMICORUM: PAASFEEST
-<br>
-<figure><img src="images/pb-c1.jpg" alt=" Paasfeest van het koor Amicorum (1) © Annie de Cnuydt" style="max-height: 500px; max-width: 500px;" /><figcaption> Paasfeest van het koor Amicorum (1) © Annie de Cnuydt</figcaption></figure><br>
-<figure><img src="images/pb-c2.jpg" alt=" Paasfeest van het koor Amicorum (2) © Annie de Cnuydt" style="max-height: 500px; max-width: 500px;" /><figcaption> Paasfeest van het koor Amicorum (2) © Annie de Cnuydt</figcaption></figure><br>
-<figure><img src="images/pb-c3.jpg" alt=" Paasfeest van het koor Amicorum (3) © Annie de Cnuydt" style="max-height: 500px; max-width: 500px;" /><figcaption> Paasfeest van het koor Amicorum (3) © Annie de Cnuydt</figcaption></figure><br>
-<figure><img src="images/pb-c4.jpg" alt=" Paasfeest van het koor Amicorum (4) © Annie de Cnuydt" style="max-height: 500px; max-width: 500px;" /><figcaption> Paasfeest van het koor Amicorum (4) © Annie de Cnuydt</figcaption></figure><br>
+Hierdoor zal de beeldengroep 'Het terugvinden van Jezus in de tempel', heel binnenkort opnieuw in zijn nis kunnen staan.<br>
 <br>
 <br>
 <br>
@@ -201,7 +109,6 @@ Ook dit jaar willen we opnieuw met velen samenkomen aan onze wijkkapelletjes. We
 <br>
 De planning voor dit jaar is als volgt:<br>
 <br>
-Dinsdag <b>2 mei 2023</b>: Steinstraat<br>
 Vrijdag <b>5 mei 2023</b>: Ten Edestraat<br>
 Maandag <b>8 mei 2023</b>: Gaversepontweg<br>
 Dinsdag <b>9 mei 2023</b>: Huisepontweg<br>
@@ -248,26 +155,65 @@ Vrijdag <b>26 mei 2023</b>: Kapel Heilige Anna op Eke Landuit.<br>
 
 
 
-#### KERKFABRIEK ST PIETERSBANDEN SEMMERZAKE: VAN PETEGHEMORGEL
+#### GROOT-GAVERE: ZONDAG 14 MEI - MARIA IN DE SCHIJNWERPERS
 <br>
-<figure><img src="images/pb-orgel.jpg" alt=" het 18de-eeuws Van Peteghemorgel van Semmerzake © De Principaal Gent" style="max-height: 500px; max-width: 500px;" /><figcaption> het 18de-eeuws Van Peteghemorgel van Semmerzake © De Principaal Gent</figcaption></figure><br>
+Naar jaarlijkse traditie staat in de meimaand een zondagse eucharistie in het teken van Maria, onze hemelse Moeder en onze voorspreekster bij haar Zoon.<br>
+Maria is op een uitzonderlijke wijze door Gods liefde geraakt. Zij wist zich aangesproken door God om mee te werken aan het heil van alle mensen. Haar geestdrift voor Gods plan maakte haar tot een vreugdevol iemand die de liefde deelde met allen die Zij ontmoette. Met zoveel moederlijke eenvoud en een groot vertrouwend geloof doordringt zij onze gelovige harten.<br>
 <br>
-Uniek waardevol klinkend erfgoed: het 18de-eeuws Van Peteghemorgel van Semmerzake<br>
+In de jubelviering op zondag <b>14 mei</b> willen we bidden opdat wij in ons dagelijks leven iets zouden ervaren van Haar gedrevenheid, van Haar geloof en vertrouwen.<br>
+Aan ieder van u welkom om Haar lof en eer te brengen.<br>
 <br>
-Op zondag <b>7 mei</b> wordt het 18de-eeuws Van Peteghemorgel in de kerk van Semmerzake gepresenteerd.<br>
+<figure><img src="images/pb-golv.jpg" alt=" Onze-Lieve-Vrouw van Gavere © C. Piens" style="max-height: 500px; max-width: 500px;" /><figcaption> Onze-Lieve-Vrouw van Gavere © C. Piens</figcaption></figure><br>
 <br>
-Om 14.00 u.: <i>"Satans fluytencast of koning der instrumenten?"</i><br>
+<b>Gebed tot Onze-Lieve-Vrouw van Gavere</b><br>
 <br>
-interactieve lezing over orgelerfgoed en de werking van het orgel<br>
-demonstratie van materialen uit de orgelbouw<br>
-door Sven Vermassen<br>
+<i>Maria,</i><br>
+<i>Ik kom U groeten er erken</i><br>
+<i>dat Gij mijn beschermende Moeder zijt.</i><br>
+<i>Vol vertrouwen wil ik tot U bidden en vragen: </i><br>
+<i>bewaar en koester in Uw hart</i><br>
+<i>alles wat ik U toevertrouw.</i><br>
+<i>Laat geluk en liefde wonen</i><br>
+<i>in mijn hart, in mijn familie,</i><br>
+<i>in de kleine en de grote wereld.</i><br>
+<i>Blijf mij nabij met Uw bescherming</i><br>
+<i>iedere dag van mijn aardse leven,</i><br>
+<i>luister naar mijn noden</i><br>
+<i>en keer alles ten goede.</i><br>
+<i>Maria, spreek voor mij ten beste</i><br>
+<i>bij Uw Zoon. Amen.</i><br>
 <br>
-Om 15.30 u.: geleid bezoek aan het 18de-eeuws Van Peteghemorgel<br>
 <br>
-Om 16.00 u.: orgelrecital door Paul De Maeyer, internationaal concertorganist en docent orgel Conservatorium Gent.<br>
 <br>
-Toegangsprijs: 12 EUR voor leden van De Principaal; 15 EUR voor niet-leden van De Principaal<br>
-Reservaties via {{<icon class="fa fa-envelope">}}&nbsp;<a href="ritanachtergaele@gmail.com.">ritanachtergaele@gmail.com.</a><br>
+
+
+
+
+
+#### ZONDAG 14 MEI - MOEDERDAG
+<br>
+<figure><img src="images/pb-moe.jpg" alt=" Moederdag © Kerknet" style="max-height: 500px; max-width: 500px;" /><figcaption> Moederdag © Kerknet</figcaption></figure><br>
+<br>
+"Omdat God niet overal kon zijn zorgde hij ervoor dat er moeders waren".<br>
+<br>
+Zij zijn altijd in de weer om zichzelf weg te cijferen, om te luisteren, te bemoedigen. In die zorgende, troostende en helpende handen, in alle kleine dingen des levens zijn zij, net zoals Maria, een toonbeeld van Gods liefde.<br>
+<br>
+Proficiat aan alle mama's en vrouwen met een moederhart.<br>
+<br>
+<br>
+<br>
+
+
+
+
+
+#### GAVERE: GEWIJZIGDE PARKEERSITUATIE RONDOM DE KERK VAN VANAF 1 MEI
+<br>
+<figure><img src="images/pb-parkeer.jpg" alt=" © Wikipedia" style="max-height: 500px; max-width: 500px;" /><figcaption> © Wikipedia</figcaption></figure><br>
+<br>
+De blauwe parkeerschijf is ook verplicht op zon- en feestdagen van 9 uur tot 12 uur in alle straten rondom de kerk (Kloosterstraat, Molenstraat, Baaigemstraat, Weverij, Onderstraat, Markt, ...)<br>
+<br>
+Leg de parkeerschijf duidelijk zichtbaar achter de voorruit van uw wagen. Met een geldige schijf kan u 2 uur parkeren, te rekenen vanaf het aanvangsuur dat werd aangeduid op de schijf.<br>
 <br>
 <br>
 <br>

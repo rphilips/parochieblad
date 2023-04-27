@@ -78,7 +78,7 @@ Hierdoor zal de beeldengroep 'Het terugvinden van Jezus in de tempel', heel binn
 
 #### KAPELLETJESVIERINGEN MEIMAAND TE NAZARETH
 <br>
-<figure><img src="images/pb-ks.jpg" alt=" Kapel Steinstraat © Marc Perseyn" style="max-height: 500px; max-width: 500px;" /><figcaption> Kapel Steinstraat © Marc Perseyn</figcaption></figure><br>
+<figure><img src="images/pb-ks.jpg" alt=" Kapel Turkijenhoek © Marc Perseyn" style="max-height: 500px; max-width: 500px;" /><figcaption> Kapel Turkijenhoek © Marc Perseyn</figcaption></figure><br>
 <br>
 Maria is de patrones van de parochie Nazareth en hieraan zijn verschillende (eeuwen)oude tradities verbonden.<br>
 <br>

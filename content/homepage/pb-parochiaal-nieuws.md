@@ -11,6 +11,19 @@ header_menu: true
 
 
 
+#### OVERLIJDEN
+<br>
+We namen in de kerk afscheid van:<br>
+<br>
+<i>Regina Vanmeirhaege</i>, 91 j., weduwe gaston Boterman, Eke<br>
+<br>
+<br>
+<br>
+
+
+
+
+
 #### DOOPSEL
 <br>
 Deze kinderen ontvingen het doopsel op <b>29 april</b> om hun eerste communie te kunnen ontvangen:<br>

@@ -2,7 +2,7 @@
 title: "Liturgische teksten"
 header_menu_title: "Teksten"
 navigation_menu_title: "Teksten"
-weight: 2
+weight: 1001
 header_menu: true
 ---
 

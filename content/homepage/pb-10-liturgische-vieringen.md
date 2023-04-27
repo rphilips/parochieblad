@@ -2,7 +2,7 @@
 title: "Eredienst"
 header_menu_title: "Eredienst"
 navigation_menu_title: "Eredienst"
-weight: 2
+weight: 1000
 header_menu: true
 ---
 

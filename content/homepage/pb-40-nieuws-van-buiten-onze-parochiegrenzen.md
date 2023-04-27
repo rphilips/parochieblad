@@ -2,7 +2,7 @@
 title: "Nieuws van buiten onze parochiegrenzen"
 header_menu_title: "Wereldkerk"
 navigation_menu_title: "Wereldkerk"
-weight: 2
+weight: 1003
 header_menu: true
 ---
 

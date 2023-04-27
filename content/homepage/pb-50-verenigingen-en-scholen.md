@@ -2,7 +2,7 @@
 title: "Verenigingen en scholen"
 header_menu_title: "Verenigingen"
 navigation_menu_title: "Verenigingen"
-weight: 2
+weight: 1004
 header_menu: true
 ---
 

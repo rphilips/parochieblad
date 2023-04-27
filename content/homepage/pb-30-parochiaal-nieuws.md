@@ -2,7 +2,7 @@
 title: "Parochiaal nieuws"
 header_menu_title: "Parochie"
 navigation_menu_title: "Parochie"
-weight: 2
+weight: 1002
 header_menu: true
 ---
 

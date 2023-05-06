@@ -11,17 +11,26 @@ header_menu: true
 
 
 
-#### MEIMAAND - MARIAMAAND
+#### KRUISDAGEN
 <br>
-<figure><img src="images/pb-veld.jpg" alt=" Veldkapel © Parcum" style="max-height: 500px; max-width: 500px;" /><figcaption> Veldkapel © Parcum</figcaption></figure><br>
+<figure><img src="images/pb-kruis.jpg" alt=" Kruisdagen © Het nieuwsblad" style="max-height: 500px; max-width: 500px;" /><figcaption> Kruisdagen © Het nieuwsblad</figcaption></figure><br>
 <br>
-Als je er op let, vind je toch nog kapelletjes met Mariabeeldjes! Soms is het een eenvoudig kastje aan een boom of een nis in een huisgevel. Soms is het een echt gebouwtje ergens op de hoek van twee straten. In de meimaand staan er hier en daar bloemen bij. Meimaand, Mariamaand... Wat zit daar achter? Wat is er zo bijzonder aan Maria? Waarom kom je haar beeld toch nog zo vaak tegen?<br>
+Het is een aloude gewoonte als de lente overal het land in bloei zet, om God zijn zegen te vragen over de vruchten der aarde. Generaties lang hebben boeren dat gedaan. Zij beseffen heel goed dat de mens wel kan ploegen, zaaien en bemesten, maar dat de resultaten van dat werk niet helemaal in mensenhanden liggen. Wetenschap en techniek kunnen veel helpen, maar het mysterie van het leven zelf blijft even mooi en onvatbaar voor onze ingrepen. Vanuit dat besef blijft het zinvol om in deze tijd van het jaar even halt te houden om de Schepper van al dat goeds te danken en te loven.<br>
 <br>
-Maria was de moeder van Jezus. Dat is zeker niet zo gemakkelijk geweest. Vanaf het begin heeft ze haar hart opengesteld voor God. Ze begreep misschien niet altijd precies wat er gebeurde, maar ze bleef trouw: aan God, aan haar zoon Jezus, aan de apostelen en eerste christenen later. Maria heeft 'ja' geantwoord op de vraag van God in haar leven. 'Ja, dit bijzondere kind mag in mijn leven komen. Ja, ik blijf geloven in de bijzondere roeping van mijn zoon Jezus, ook al doet het soms pijn om te zien wat Hij doet. Ja, ik blijf bij Hem ook als Hij sterft. Ja, ik geloof dat we samen zijn weg moeten gaan. Ja, ik wil alle mensen dicht bij Jezus, dicht bij God brengen.'<br>
 <br>
-Doorheen de eeuwen is Maria een voorbeeld geweest voor vele christenen. Willen we niet allemaal trouw zijn aan ons gegeven woord? Trouw aan de mensen rondom ons? Soms lukt dat, soms niet. Bij Maria vinden we steun om vol te houden, net zoals zij dat gedaan heeft! Maria kon zo leven omdat ze haar vertrouwen in God had gesteld. Door te kijken naar Maria leren mensen meer te vertrouwen op God in hun leven.<br>
 <br>
-Maria is bij christenen al eeuwenlang heel populair. Maria is een heilige die dicht bij de gewone mensen staat en tegelijk dicht bij Jezus, dicht bij God. Heel wat vaders en moeders vonden steun bij Maria. Ze vertelden haar hun zorgen. Door tot Maria te bidden, kwamen ze dichter bij God.<br>
+
+
+
+
+
+#### HEMELVAART
+<br>
+<figure><img src="images/pb-hv.jpg" alt=" Hemelvaart © RK documenten" style="max-height: 500px; max-width: 500px;" /><figcaption> Hemelvaart © RK documenten</figcaption></figure><br>
+<br>
+Op Pasen vieren we dat Jezus niet dood is maar leeft vanuit het vertrouwen dat de dood niet het laatste woord heeft. De 40ste dag na Pasen vieren de christenen Hemelvaartsdag. Hemelvaart vertelt ons dat Jezus bij God leeft, maar zijn wij Hem dan volledig kwijt op aarde? Betekent dit dat de leerlingen afscheid moesten nemen van Hem en dat ze er vanaf dat moment volledig alleen voor stonden? Niets is minder waar. Door een gelovige bril is Jezus juist blijvend maar anders verbonden met ons. Jezus is inderdaad niet langer in levende lijve aanwezig, maar wel vanuit een "goddelijke tegenwoordigheid" die Hij op Pinksteren tot uiting zal brengen door aan zijn leerlingen en aan ons "Zijn Geest" te schenken.<br>
+<br>
+Op Hemelvaart vieren we dat we ons gedragen mogen weten door een God. Dat "gedragen zijn" komt sterk tot uiting op momenten waarop mensen elkaar nabij zijn naar het voorbeeld van Jezus en ze zelf ervaren "ik doe dit niet helemaal alleen, er is Iemand die me kracht geeft om er te blijven zijn voor de ander".<br>
 <br>
 <br>
 <br>

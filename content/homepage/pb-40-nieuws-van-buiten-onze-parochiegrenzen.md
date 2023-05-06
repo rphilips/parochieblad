@@ -11,43 +11,71 @@ header_menu: true
 
 
 
-#### MARIALE ZANGNAMIDDAG IN OOSTAKKER-LOURDES
+#### ONZE-LIEVE-VROUW VAN KERSELARE
 <br>
-<figure><img src="images/pb-zang.jpg" alt=" Mariale zangnamiddag in Oostakker-Lourdes © Kerknet" style="max-height: 500px; max-width: 500px;" /><figcaption> Mariale zangnamiddag in Oostakker-Lourdes © Kerknet</figcaption></figure><br>
+<b>Beschrijving</b><br>
 <br>
-<b>HISTORIEK VAN HET BEDEVAARTSOORD IN OOSTAKKER</b><br>
+Het bedevaartsoord en de kapel Onze-Lieve-Vrouw Kerselare zijn getuigen van de eeuwenlange Mariadevotie in de streek, opklimmend tot de 15de eeuw. De faam van de kapel en het Mariabeeldje is te danken aan de talrijke mirakels die werden genoteerd vanaf de 15de eeuw. De 16de-eeuwse kapel, gebouwd door de heren van Pamele, werd na de brand van 1961 vervangen door een nieuwe, betonnen kapel naar ontwerp van architect Juliaan Lampens. De huidige kapel bewaart nog het miraculeus beeldje van Onze-Lieve-Vrouw van Kerselare, een gepolychromeerd laatgotisch beeldje uit de eerste helft van 15de eeuw (vermoedelijk rond 1440) van de Mechelse Sint-Lucasgilde.<br>
 <br>
-Traditiegetrouw gaan in de meimaand talrijke bedevaarders naar één of ander Mariaoord. In onze contreien is dit nogal dikwijls naar het heiligdom van Oostakker-Lourdes. Hoe is dit bedevaartsoord daar ontstaan en waarom is de devotie tot Maria nog steeds actueel.<br>
+<figure><img src="images/pb-mira.jpg" alt=" Miraculeus beeld © Kerknet" style="max-height: 500px; max-width: 500px;" /><figcaption> Miraculeus beeld © Kerknet</figcaption></figure><br>
 <br>
-De geschiedenis van het Vlaamse Lourdes begint in het domein van het kasteel van Oostakker in de wijk Slotendries. Baron Frans de Plotho voelde zich geroepen tot het trappistenleven. Maar het strenge monnikenleven was te zwaar voor zijn zwakke gezondheid. Hij ging over naar het seminarie en werd in Gent priester gewijd in 1790. Na enige tijd trok hij zich terug op het domein. Hij bouwde een kluis om er als priester-kluizenaar een leven van gebed en boetvaardigheid te leiden. Onze streken werden toen geteisterd door de verschrikkingen van het Franse geweld. Daarom liet E.H. de Plotho een huis bouwen, waarin hij in die onveilige tijden een onderkomen kon verschaffen aan verbannen geestelijken. Hij stierf op <b>31 december 1811</b>.<br>
+Het kleine mirakuleuze beeldje bevindt zich in het reliekschrijn waarmee na de missen gezegend wordt.<br>
 <br>
-Zestig jaar later besloot de Markiezin de Courtebourne, een zeer vrome vrouw, de kluis die E.H. de Plotho voor zichzelf gebouwd had, om te bouwen. De ingang daarvan werd belegd met rotsstenen. E.H. Moreels, de pastoor van Oostakker, suggereerde in de rotsstenen een nis aan te brengen voor een beeld van Onze-Lieve-Vrouw van Lourdes. Ze verzocht de pastoor het beeld te komen wijden. Dat gebeurde op <b>29 juni 1873</b>.<br>
+<figure><img src="images/pb-reliek.jpg" alt=" Reliekschrijn © Kerknet" style="max-height: 500px; max-width: 500px;" /><figcaption> Reliekschrijn © Kerknet</figcaption></figure><br>
 <br>
-Tweeduizend mensen woonden de ceremonie bij. Ze drukten het verlangen uit geregeld op de plaats te komen bidden. Het werd hun toegestaan om op zon- en feestdagen naar de grot te komen.<br>
+<b>Historiek van de kapel</b><br>
 <br>
-<figure><img src="images/pb-el.jpg" alt=" Eerste Lourdesgrot © Kerknet" style="max-height: 500px; max-width: 500px;" /><figcaption> Eerste Lourdesgrot © Kerknet</figcaption></figure><br>
+Eerste kapel, 1460<br>
 <br>
-Al vlug werd gesproken van gebedsverhoringen en de stroom bedevaarders groeide snel aan. Daarom vatte de markiezin het plan op een kapel te laten bouwen. Een opzienbarend wonder versterkte die idee. Op <b>7 april 1875</b> genas Pieter De Rudder. Over die genezing zou de gekende Lourdes-dokter Boissarie later verklaren: "Geen enkele van de te Lourdes bekomen genezingen kan vergeleken worden met die van Pieter De Rudder".<br>
+<figure><img src="images/pb-eerst.jpg" alt=" Eerste kapel © Kerknet" style="max-height: 500px; max-width: 500px;" /><figcaption> Eerste kapel © Kerknet</figcaption></figure><br>
 <br>
-Pieter was vader van twee kinderen. Hij woonde in het West-Vlaamse Jabbeke. Toen hij op de avond van <b>16 februari 1867</b> van zijn werk naar huis terugkeerde, ging hij enkele boomhakkers een handje toesteken maar door een bruuske beweging van een boom werden het scheen- en kuitbeen van Pieter gebroken. Men hoopte dat het been na enkele weken zou hersteld zijn. Maar de toestand verergerde. Er gaapte een etterende wonde onder de knie en het verband veroorzaakte nog een kneuzing boven de voet. Pieter doorstond veel pijn en bleef werkonbekwaam. Hij weigerde zijn been te laten afzetten, maar stelde zijn hoop op het gebed. Acht jaar duurde de zware beproeving toen Pieter besloot op bedevaart te gaan naar Oostakker. Gezien zijn erbarmelijke toestand raadde iedereen hem de tocht af. Maar de arme man was van zijn voornemen niet af te brengen. Hij begon een noveen tot Onze-Lieve-Vrouw van Lourdes en de lijdende Zaligmaker en op 7 april ondernam hij de zware tocht. Daar zakte hij uitgeput neer voor het beeld van de Onbevlekte op de eerste bank naast het beeld van de heilige Bernadette. Vurig en vol vertrouwen smeekte hij de genezing af om opnieuw voor zijn gezin te kunnen zorgen. Hulpeloos zonk hij neer op de knieën. Precies op dat ogenblik stond de man op en zette enkele stappen zonder krukken. Die krukken hing hij meteen op bij het Mariabeeld en uit dankbaarheid ging hij nog driemaal rond de grot. Hij verwijderde het verband. Zijn been was gaaf en gezond en van de wonde aan de voet bleef alleen een litteken over.<br>
+Volgens de legende werd in 1452 een Mariabeeld dat voorheen toebehoorde aan de pastoor van Volkegem na zijn dood hier opgehangen aan een kerselaar. Een eerste mirakel bij het beeld vond plaats in 1455.<br>
+De eerstesteenlegging van de oudste kapel, behorende tot de abdij van Ename, bisdom Kamerijk, op de plaats van de kerselaar vond plaats op <b>10 juli 1457</b>, inwijding op <b>3 mei 1460</b>. Van toen af startte ook de traditie om in de meimaand elke dag een mis te lezen. De talrijke mirakelen, toegeschreven aan Onze-Lieve-Vrouw van Kerselare, werden opgetekend in een Mirakelenboek.<br>
 <br>
-<figure><img src="images/pb-pdr.jpg" alt=" Pieter De Rudder © Kerknet" style="max-height: 500px; max-width: 500px;" /><figcaption> Pieter De Rudder © Kerknet</figcaption></figure><br>
+Vergroting kapel, 1570<br>
 <br>
-Heel Jabbeke deelde in de vreugde. De dokter verklaarde dat het been aaneengegroeid en de notabelen van de gemeente ondertekenden een verklaring als getuigenis voor het wonder. Na een grondig onderzoek erkende in 1908 Mgr. Waffelaert, bisschop van Brugge, het mirakel Pieter De Rudder.<br>
+<figure><img src="images/pb-groot.jpg" alt=" Vergroting kapel © Kerknet" style="max-height: 500px; max-width: 500px;" /><figcaption> Vergroting kapel © Kerknet</figcaption></figure><br>
 <br>
-De genezing van Pieter De Rudder  trok natuurlijk nog meer bedevaarders aan. De markiezin vroeg toestemming aan Mgr. Bracq, bisschop van Gent, om de kapel te bouwen. Merkwaardig genoeg antwoordde hij: "Neen, Mevrouw. Hier is niet een kapel nodig, maar een kerk". De markiezin stemde daarmee in.  Op <b>22 mei 1875</b> legde de bisschop de eerste steen en de kerk werd afgewerkt in juni 1877. Op <b>4 juni 1924</b> werd de kerk officieel verheven tot basiliek.<br>
+De kapel werd vergroot in 1570 (oorspronkelijk kapelletje bleef behouden als zijkoor) in opdracht van Jacob van Joigny, baron van Pamele, vermoedelijk als gevolg van een gelofte door zijn vader Joos nadat hij in Egypte door een krokodil aangevallen werd. De gebalsemde krokodil werd later in de kapel opgehangen en in 1804 en 1860 vervangen door een houten geschilderde krokodil van beeldhouwer Van Biesbroeck.<br>
+Circa 1614 werden herstellingswerken uitgevoerd aan de kapel na vernielingen tijdens godsdienstoorlogen. In 1619 werden twee altaren ingewijd. Belangrijke werken werden ook uitgevoerd in 1679. In 1763 maakte zilversmid Van den Hende uit Oudenaarde een zilverschrijn voor het gotische miraculeus beeldje uit de 15de eeuw waarmee nu nog na de mis gezegend wordt.<br>
 <br>
-<figure><img src="images/pb-bo.jpg" alt=" Basiliek Lourdes © Kerknet" style="max-height: 500px; max-width: 500px;" /><figcaption> Basiliek Lourdes © Kerknet</figcaption></figure><br>
+De kapel in de 19de eeuw<br>
+Na de Franse Revolutie werd de kapel in 1796 verkocht aan een particulier en in 1831 kwam ze in het bezit van de kerkfabriek van Pamele. In de loop van de 19de eeuw werd de kapel voorzien van nieuw meubilair, onder andere een communiebank (1844), een altaar (1864 en 1868), een biechtstoel (1864), een orgel (1873). In 1887 liet de pastoor van Edelare, Jozef Verheyden, de bouwvallig geworden kapel restaureren. In 1902 kwam er nog een nieuwe preekstoel.<br>
 <br>
-De Franse beeldhouwer, Froc-Robert, beitelde een prachtig beeld van de Onbevlekte Maagd uit eikenhout. Op <b>5 augustus 1888</b> kwam Mgr. Lambrechts het beeld plechtig kronen.<br>
+Kapel vernield door brand<br>
+De kapel van 1570 wordt op <b>21 februari 1961</b> door brand totaal vernield. Enkel het befaamde beeldje in zijn reliek kon worden gered.<br>
 <br>
-<figure><img src="images/pb-mb.jpg" alt=" Mariabeeld basiliek © Kerknet" style="max-height: 500px; max-width: 500px;" /><figcaption> Mariabeeld basiliek © Kerknet</figcaption></figure><br>
+<figure><img src="images/pb-brand.jpg" alt=" Kapel in brand © Kerknet" style="max-height: 500px; max-width: 500px;" /><figcaption> Kapel in brand © Kerknet</figcaption></figure><br>
 <br>
-In 1883 werden omheen de grot zeven kapelletjes opgericht met beelden die de zeven smarten van Maria oproepen. Haar voorbeeld is voor talloze mensen een steun in hun beproevingen.<br>
+Nieuwe, betonnen kapel, 1963-1966<br>
 <br>
-Op <b>17 mei 1913</b> werden in een tweede ommegang vijftien kapelletjes geplaatst om bij de mysteries van de rozenkrans stil te staan en ze te overwegen.<br>
+<figure><img src="images/pb-beton.jpg" alt=" Betonnen kapel © Kerknet" style="max-height: 500px; max-width: 500px;" /><figcaption> Betonnen kapel © Kerknet</figcaption></figure><br>
 <br>
-In Oostakker is de Vlaamse Mariadevotie altijd duidelijk zichtbaar en ze duurt nog onverminderd voort.<br>
+De kerkfabriek van Onze-Lieve-Vrouw van Pamele en pastoor Hye van Pamele beslisten een nieuwe kapel te bouwen. De nieuwe kapel werd gebouwd in 1963-1966 naar het ontwerp van architect Juliaan Lampens.<br>
+<br>
+Van restaureren naar conserveren<br>
+<br>
+Toen in 2011 de dakconstructie een verbuiging vertoonde werd om voor de veiligheid redenen het dak gestut. Omdat het gebouw stabiel is werd de aanpak verschoven van restaureren naar conserveren om de schade plaatselijk te herstellen. In de kapel wordt het houten meubilair gerestaureerd en de bedevaartskandelaars worden gereconstrueerd. Rond de kapel worden ook het groen, de betonverharding en de rotssculpturen van de kleine ommegang opgeknapt. Deze hele opknapbeurt is mogelijk gemaakt door tussenkomst van de Vlaamse gemeenschap.<br>
+<br>
+<b>Ommegang</b><br>
+<br>
+Op de vroegere bedevaartweide ten noordwesten van de oude kapel is in het begin van de jaren 1950 in opdracht van pastoor Hye ook de 'kleine ommegang' aangelegd van 'Onze-Lieve-Vrouw van VII Weeën' in rotstaferelen.<br>
+<br>
+<figure><img src="images/pb-rots.jpg" alt=" Rotstafereel © Kerknet" style="max-height: 500px; max-width: 500px;" /><figcaption> Rotstafereel © Kerknet</figcaption></figure><br>
+<br>
+Op het voorplein staat een Piëta van graniet op een hoge sokkel vervaardigd door de Gentse beeldhouwer Bert Servaes (1909-1994).<br>
+<br>
+<figure><img src="images/pb-pieta.jpg" alt=" © Kerknet" style="max-height: 500px; max-width: 500px;" /><figcaption> © Kerknet</figcaption></figure><br>
+<br>
+<b>Autowijding en lange ommegang</b><br>
+<br>
+Op initiatief van de pastoor van Edelare, eerwaarde Heer Lourdault, en burgemeester Jozef Thienpont werd op Hemelvaartsdag 1953 een autowijding georganiseerd. De auto-motowijding van Kerselare is de grootste van het land en gaat elk jaar door op Hemelvaartsdag.<br>
+<br>
+<figure><img src="images/pb-auto.jpg" alt=" Autowijding © Kerknet" style="max-height: 500px; max-width: 500px;" /><figcaption> Autowijding © Kerknet</figcaption></figure><br>
+<br>
+In 2008 liet de pastoor ook de "lange ommegang" met vijftien arduinen kapelletjes vernieuwen.<br>
+<br>
+<figure><img src="images/pb-lang.jpg" alt=" Lange ommegang © Kerknet" style="max-height: 500px; max-width: 500px;" /><figcaption> Lange ommegang © Kerknet</figcaption></figure><br>
 <br>
 <br>
 <br>

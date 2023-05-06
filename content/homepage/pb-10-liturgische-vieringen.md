@@ -11,38 +11,6 @@ header_menu: true
 <br>
 <br>
 
-##### Woensdag 3 mei 2023  
-<dl><dt>&nbsp;</dt><dd>HH. FILIPPUS EN JAKOBUS, apostelen<br></dd><dt><b>08.30 u. Nazareth:</b></dt><dd>Eucharistie</dd>
-</dl>
-
-##### Donderdag 4 mei 2023  
-<dl><dt><b>08.00 u. Eke:</b></dt><dd>Voor genezing (VLM)</dd>
-</dl>
-
-##### Vrijdag 5 mei 2023  
-<dl><dt><b>08.00 u. Eke:</b></dt><dd>Voor overleden ouders en meter</dd>
-</dl>
-
-##### Zaterdag 6 mei 2023  
-<dl><dt><b>10.00 u. Eke:</b></dt><dd>Eerste Communie<br>Lectoren: Communicanten</dd>
-<dt><b>13.30 u. Nazareth:</b></dt><dd>Huwelijk Liesbeth Dhaenens en Philippe Audrain</dd>
-<dt><b>15.00 u. Asper:</b></dt><dd>Eerste Communie<br>Lectoren: Communicanten</dd>
-<dt><b>18.00 u. Eke:</b></dt><dd>Edmond Gevaert en familie<br><i>Lector: Philippe Lammens</i></dd>
-</dl>
-
-##### Zondag 7 mei 2023  
-<dl><dt>&nbsp;</dt><dd>5e ZONDAG VAN PASEN<br></dd><dt><b>09.00 u. Gavere:</b></dt><dd>Eerste Communie<br>Eeuwigdurend voor A. Van Trappen<br>Lectoren: Communicanten</dd>
-<dt><b>10.30 u. Nazareth:</b></dt><dd>Jgt. Adrienne Schietse<br><i>Lector: Patrick Decock</i></dd>
-</dl>
-
-##### Maandag 8 mei 2023  
-<dl><dt>&nbsp;</dt><dd><b>H. Macharius,</b> bisschop<br></dd><dt><b>08.00 u. Eke:</b></dt><dd>V.M.</dd>
-</dl>
-
-##### Dinsdag 9 mei 2023  
-<dl><dt><b>08.00 u. Eke:</b></dt><dd>Overleden ouders en zus</dd>
-</dl>
-
 ##### Woensdag 10 mei 2023  
 <dl><dt>&nbsp;</dt><dd><b>H. Johannes van Avila, priester en kerkleraar</b><br><b>H. Damiaan de Veuster</b>, priester<br></dd><dt><b>08.30 u. Nazareth:</b></dt><dd>Eucharistie</dd>
 </dl>
@@ -61,7 +29,40 @@ header_menu: true
 
 ##### Zondag 14 mei 2023  
 <dl><dt>&nbsp;</dt><dd>6e ZONDAG VAN PASEN<br>H. MATTIAS, apostel<br></dd><dt><b>09.00 u. Gavere:</b></dt><dd>Mariaviering<br>Om kracht en sterkte en een spoedige genezing<br>Eeuwigdurend voor P. De Vreese<br><i>Lector: Martine Van Der Haegen</i></dd>
-<dt><b>10.30 u. Nazareth:</b></dt><dd>Jgt. Julien en Irma Kint-De Meester en overleden familieleden<br>Jgt. Jozef Van Herzeele, echtg. Adelaide Kint en overleden familieleden<br>Jgt. |Constant De Vos, echtg. Adrienne Kint en overledenen|<br><i>Lector: Patrick Van Hecke</i></dd>
+<dt><b>10.30 u. Nazareth:</b></dt><dd>Agnes De Vriese<br>Jgt. Julien en Irma Kint-De Meester en overleden familieleden<br>Jgt. Jozef Van Herzeele, echtg. Adelaide Kint en overleden familieleden<br>Jgt. |Constant De Vos, echtg. Adrienne Kint en overledenen|<br><i>Lector: Patrick Van Hecke</i></dd>
+</dl>
+
+##### Maandag 15 mei 2023  
+<dl><dt><b>08.00 u. Eke:</b></dt><dd>V.M.</dd>
+</dl>
+
+##### Dinsdag 16 mei 2023  
+<dl><dt><b>20.00 u. Nazareth:</b></dt><dd>Hoeveviering tgv de Kruisdagen (boerderij Thienpont, Steenweg Deinze)</dd>
+</dl>
+
+##### Woensdag 17 mei 2023  
+<dl><dt><b>08.30 u. Nazareth:</b></dt><dd>Mis stichtingen 6/15</dd>
+</dl>
+
+##### Donderdag 18 mei 2023  
+<dl><dt>&nbsp;</dt><dd><b>ONS-HEERHEMELVAART</b><br><b>H. Johannes I</b>, paus en martelaar<br></dd><dt><b>09.00 u. Eke:</b></dt><dd>Vormsel<br><i>Lector: Eigen lectoren</i></dd>
+<dt><b>09.00 u. Gavere:</b></dt><dd>Gebedsdienst t.g.v. de hoogdag<br><i>Lector: Dries Biesemans</i></dd>
+<dt><b>10.30 u. Nazareth:</b></dt><dd>Eerste Communie</dd>
+</dl>
+
+##### Vrijdag 19 mei 2023  
+<dl><dt><b>08.00 u. Eke:</b></dt><dd>|Overledenen van ons gezin en familie|</dd>
+</dl>
+
+##### Zaterdag 20 mei 2023  
+<dl><dt>&nbsp;</dt><dd><b>H. Bernardinus van Siëna,</b> priester<br></dd><dt><b>15.00 u. Asper:</b></dt><dd>Vormsel<br>Lectoren: vormelingen</dd>
+<dt><b>17.00 u. Nazareth:</b></dt><dd>Vormsel</dd>
+<dt><b>18.00 u. Eke:</b></dt><dd>Georges Moreels en echtg. Martha De Maerteleire en dochter Lydia Moreels<br><i>Lector: Kathy Wellems</i></dd>
+</dl>
+
+##### Zondag 21 mei 2023  
+<dl><dt>&nbsp;</dt><dd>7e ZONDAG VAN PASEN<br>(<b>HH. Christophoor Magalianes,</b> priester, <b>en gezellen,</b> martelaren)<br></dd><dt><b>09.00 u. Gavere:</b></dt><dd>Vormsel<br>Lectoren: vormelingen</dd>
+<dt><b>10.30 u. Nazareth:</b></dt><dd>Uit dankbaarheid voor onze ouders Jacques Geiregat - Antoinette Hoste<br>Jgt. André D'Oosterlinck, echtg. Bea De Reu<br><i>Lector: Martin Dhaenens</i></dd>
 </dl>
 <br>
 <br>

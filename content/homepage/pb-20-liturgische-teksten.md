@@ -11,26 +11,54 @@ header_menu: true
 
 
 
-#### KRUISDAGEN
-<br>
-<figure><img src="images/pb-kruis.jpg" alt=" Kruisdagen © Het nieuwsblad" style="max-height: 500px; max-width: 500px;" /><figcaption> Kruisdagen © Het nieuwsblad</figcaption></figure><br>
-<br>
-Het is een aloude gewoonte als de lente overal het land in bloei zet, om God zijn zegen te vragen over de vruchten der aarde. Generaties lang hebben boeren dat gedaan. Zij beseffen heel goed dat de mens wel kan ploegen, zaaien en bemesten, maar dat de resultaten van dat werk niet helemaal in mensenhanden liggen. Wetenschap en techniek kunnen veel helpen, maar het mysterie van het leven zelf blijft even mooi en onvatbaar voor onze ingrepen. Vanuit dat besef blijft het zinvol om in deze tijd van het jaar even halt te houden om de Schepper van al dat goeds te danken en te loven.<br>
-<br>
-<br>
-<br>
-
-
-
-
-
 #### HEMELVAART
 <br>
-<figure><img src="images/pb-hv.jpg" alt=" Hemelvaart © RK documenten" style="max-height: 500px; max-width: 500px;" /><figcaption> Hemelvaart © RK documenten</figcaption></figure><br>
+<figure><img src="images/pb-hvg.jpg" alt=" © RK documenten" style="max-height: 500px; max-width: 500px;" /><figcaption> © RK documenten</figcaption></figure><br>
 <br>
 Op Pasen vieren we dat Jezus niet dood is maar leeft vanuit het vertrouwen dat de dood niet het laatste woord heeft. De 40ste dag na Pasen vieren de christenen Hemelvaartsdag. Hemelvaart vertelt ons dat Jezus bij God leeft, maar zijn wij Hem dan volledig kwijt op aarde? Betekent dit dat de leerlingen afscheid moesten nemen van Hem en dat ze er vanaf dat moment volledig alleen voor stonden? Niets is minder waar. Door een gelovige bril is Jezus juist blijvend maar anders verbonden met ons. Jezus is inderdaad niet langer in levende lijve aanwezig, maar wel vanuit een "goddelijke tegenwoordigheid" die Hij op Pinksteren tot uiting zal brengen door aan zijn leerlingen en aan ons "Zijn Geest" te schenken.<br>
-<br>
 Op Hemelvaart vieren we dat we ons gedragen mogen weten door een God. Dat "gedragen zijn" komt sterk tot uiting op momenten waarop mensen elkaar nabij zijn naar het voorbeeld van Jezus en ze zelf ervaren "ik doe dit niet helemaal alleen, er is Iemand die me kracht geeft om er te blijven zijn voor de ander".<br>
+<br>
+<br>
+<br>
+
+
+
+
+
+#### PINKSTEREN - ZONDAG 28 MEI
+<br>
+<figure><img src="images/pb-nhg.jpg" alt=" Nederdaling Heilige Geest © C. Piens" style="max-height: 500px; max-width: 500px;" /><figcaption> Nederdaling Heilige Geest © C. Piens</figcaption></figure><br>
+<br>
+Nadat op Pasen de boodschap dat Jezus nog steeds 'leeft', wordt gevierd en nadat dit geloof na veertig dagen wordt bekrachtigd met de Hemelvaart (Jezus leeft bij God, maar terzelfdertijd nog steeds met ons), vieren christenen 10 dagen na hemelvaart Pinksteren. Het grote feest waarop wereldwijd wordt herdacht dat Christus zijn beloofde Geest (de derde Persoon van de Drie-eenheid) aan zijn leerlingen heeft geschonken. De leerlingen trokken daarop de wereld in om de boodschap van Jezus verder uit te dragen. Pinksteren kan daarmee ook worden beschouwd als het geboortefeestje van onze kerk. Moge hetzelfde vuur dat Hem en zijn leerlingen bezielde ook ons in vuur en vlam zetten.<br>
+Een Zalige Hoogdag<br>
+Met Pinksteren sluit de katholieke kerk ook de Paastijd af!<br>
+<br>
+<b>BEZINNING</b><br>
+<b>Pinkstergedachte</b><br>
+<br>
+<i>De Geest van God</i><br>
+<i>is geen spookbeeld of hersenschim.</i><br>
+<i>Hij is onder ons aanwezig,</i><br>
+<i>voelbaar en tastbaar.</i><br>
+<i>Hij spreekt soms uit de blik in onze ogen.</i><br>
+<i>Je ziet hem in de mensen</i><br>
+<i>die verdraagzaam zijn</i><br>
+<i>en respectvol omgaan met elkaar.</i><br>
+<i>Je voelt hem in dat liefdevolle gebaar</i><br>
+<i>of die hartelijke handdruk.</i><br>
+<br>
+<i>De Geest van God</i><br>
+<i>is de scheppende kracht</i><br>
+<i>die bruggen slaat over de diepste kloven,</i><br>
+<i>die mensen bij elkaar brengt</i><br>
+<i>en conflicten ombuigt</i><br>
+<i>in begrip en verzoening.</i><br>
+<i>Het is de energie die bergen kan verzetten</i><br>
+<i>en mensen boven hun kleinheid uittilt</i><br>
+<i>- de levensadem van God -</i><br>
+<i>die mensen bezielt en in beweging zet.</i><br>
+<br>
+Greet Brokerhof - van der Waa<br>
 <br>
 <br>
 <br>

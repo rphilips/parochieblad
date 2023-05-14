@@ -11,32 +11,14 @@ header_menu: true
 
 
 
-#### GROOT-GAVERE: ZONDAG 14 MEI - MARIA IN DE SCHIJNWERPERS
+#### DOOPSEL
 <br>
-<figure><img src="images/pb-olvg.jpg" alt=" Onze-Lieve-Vrouw van Gavere © C. Piens" style="max-height: 500px; max-width: 500px;" /><figcaption> Onze-Lieve-Vrouw van Gavere © C. Piens</figcaption></figure><br>
+Hebben het doopselsacrament ontvangen:<br>
 <br>
-Naar jaarlijkse traditie staat in de meimaand een zondagse eucharistie in het teken van Maria, onze hemelse Moeder en onze voorspreekster bij haar Zoon. Maria is op een uitzonderlijke wijze door Gods liefde geraakt. Zij wist zich aangesproken door God om mee te werken aan het heil van alle mensen. Haar geestdrift voor Gods plan maakte haar tot een vreugdevol iemand die de liefde deelde met allen die Zij ontmoette. Met zoveel moederlijke eenvoud en een groot vertrouwend geloof doordringt zij onze gelovige harten.<br>
-<br>
-In de jubelviering op zondag <b>14 mei</b> willen we bidden opdat wij in ons dagelijks leven iets zouden ervaren van Haar gedrevenheid, van Haar geloof en vertrouwen.<br>
-Aan ieder van u welkom om Haar lof en eer te brengen.<br>
-<br>
-<b>Gebed tot Onze-Lieve-Vrouw van Gavere</b><br>
-<br>
-<i>Maria,</i><br>
-<i>Ik kom U groeten er erken</i><br>
-<i>dat Gij mijn beschermende Moeder zijt.</i><br>
-<i>Vol vertrouwen wil ik tot U bidden en vragen: </i><br>
-<i>bewaar en koester in Uw hart</i><br>
-<i>alles wat ik U toevertrouw.</i><br>
-<i>Laat geluk en liefde wonen</i><br>
-<i>in mijn hart, in mijn familie,</i><br>
-<i>in de kleine en de grote wereld.</i><br>
-<i>Blijf mij nabij met Uw bescherming</i><br>
-<i>iedere dag van mijn aardse leven,</i><br>
-<i>luister naar mijn noden</i><br>
-<i>en keer alles ten goede.</i><br>
-<i>Maria, spreek voor mij ten beste</i><br>
-<i>bij Uw Zoon. Amen.</i><br>
+<i>Aumani Van Beversluys</i>, Nazareth<br>
+<i>Antoine Van den Abeele</i>, Dikkelvenne<br>
+<i>Lio Chan</i>, Nazareth<br>
+<i>Loïc Verpoort</i>, Dikkelvenne<br>
 <br>
 <br>
 <br>
@@ -45,9 +27,40 @@ Aan ieder van u welkom om Haar lof en eer te brengen.<br>
 
 
 
-#### GROOT-GAVERE: EERSTE COMMUNIE - EEN DAG OM MEE TE DRAGEN, EEN LEVEN LANG.
+#### OVERLIJDEN
 <br>
-Niets dan alleen maar stralende gezichtjes en fiere mama's, papa's, oma's en opa's. De communicantjes, uitgedost in hun mooiste kleren, hebben het meer dan goed gedaan. Hun kinderhartjes waren klaar om Jezus voor het eerst te ontvangen. De goed ingeoefende tekstjes, liederen en de mooi versierde kerken in het kader van het thema "Zacheüs kom uit je boom, straks kom ik bij jou op bezoek" maakten het geheel af. Niet alleen de kinderen maar de catechisten en leerkrachten verdienden zeker ook een grote pluim want zonder hen was al dit moois niet mogelijk. Proficiat en hopelijk zien we jullie spoedig terug.<br>
+We namen in de kerk afscheid van:<br>
+<br>
+<i>Marcelle Rombout</i>, 95 j., weduwe Joseph Vandecasteele<br>
+<i>Georgette D'Haese</i>, 97 j., weduwe Paul Steyaert<br>
+<i>Maria Martens</i>, 78 j., echtg. Maria Robbens<br>
+<i>Simonne Schaibroeck</i>, wed. André Coryn<br>
+<br>
+<br>
+<br>
+
+
+
+
+
+#### VORMSELVIERING EKE
+<br>
+Donderdag <b>18 mei</b> om 9:00.00 u. ontvangen 18 jongens en meisjes het H.Vormsel in de Sint Amanduskerk in Eke. In deze viering zullen zij hun doopbeloften hernieuwen. Ze ontvangen het Heilig Chrisma uit de handen van de vormheer EH Kannunik Bert Vanderhaegen, gezonden door onze bisschop Lode. We wensen deze vormelingen een mooie toekomst als jongchristenen waarin ze zich geroepen voelen om te leven naar het voorbeeld van Jezus.<br>
+<br>
+<i>Alicia De Geest, Eline De Wagtere, Finn De Schampelaere, Gaëlle Van Rysseghem, Hanne Vaernewyck , Isa De Cock, Jaro De Wulf, Jelte Wostijn, Jools De Meester, Julie Callens, Kirstens Daniels, Lander De Winter, Léon Duchatelet, Lucas Mortier, Luna Buckens, Noémie Depuydt, Nola Ingh, Victor Vancoppenole.</i><br>
+<br>
+<br>
+<br>
+
+
+
+
+
+#### GROOT-GAVERE: WIJ BRACHTEN LOF EN EER AAN MARIA
+<br>
+<figure><img src="images/pb-vmb.jpg" alt=" Versierd Maria beeld © C. Piens" style="max-height: 500px; max-width: 500px;" /><figcaption> Versierd Maria beeld © C. Piens</figcaption></figure><br>
+<br>
+In de eucharistieviering van zondag <b>14 mei</b> brachten we Maria lof en eer met bloemen, gebeden en gezangen. We zochten naar Haar nabijheid met al onze vragen en twijfels en ons zoekend geloof. Het feit dat we bijeen waren mag een teken van hoop zijn in deze verwarde tijden waarin de verdeeldheid groot is. Maria is DE moeder van de hoop, in Haar zien we hoe geloof, hoop en liefde in een mensenleven kunnen werken. Zij heeft Jezus in haar leven ontvangen, Zij heeft Hem doorgegeven aan anderen, Zij heeft de herinnering aan Hem levend gehouden. Moge ons vertrouwen in Haar nabijheid kracht geven om te blijven geloven dat voor God niets onmogelijk is.<br>
 <br>
 <br>
 <br>
@@ -82,53 +95,11 @@ Deze basisinitiatie kan voor sommige jongeren een aanzet zijn om de gave van het
 
 
 
-#### ZONDAG 14 MEI - MOEDERDAG
+#### INZAMELACTIE VOOR VZW DE TINTEN IN DE MAAND MEI EN JUNI. DE VRIJWILLIGERS ONDERSTEUNEN MENSEN ZONDER WETTIG VERBLIJF EN DAKLOZEN.
 <br>
-<figure><img src="images/pb-moederdag.jpg" alt=" Moederdag © Kerknet" style="max-height: 500px; max-width: 500px;" /><figcaption> Moederdag © Kerknet</figcaption></figure><br>
+Op <b>18 mei</b> ontvangen wij het H.Vormsel in deze kerk. Op deze vreugdevolle dag willen we ook aan de mensen denken die het niet zo gemakkelijk hebben in onze maatschappij.<br>
 <br>
-<i>"Omdat God niet overal kon zijn zorgde hij ervoor dat er moeders waren".</i><br>
-<br>
-Zij zijn altijd in de weer om zichzelf weg te cijferen, om te luisteren, te bemoedigen. In die zorgende, troostende en helpende handen, in alle kleine dingen des levens zijn zij, net zoals Maria, een toonbeeld van Gods liefde.<br>
-<br>
-Proficiat aan alle mama's en vrouwen met een moederhart.<br>
-<br>
-<br>
-<br>
-
-
-
-
-
-#### GROOT-GAVERE: BEDEVAART NAAR KERSELARE
-<br>
-Op zaterdag <b>13 mei</b> organiseert Beweging.net een bedevaart naar Onze-Lieve-Vrouw van Kerselare met eucharistieviering in de kapel om 8.30 uur. Voetgangers vertrekken om 6 uur 's morgens en fietsers om 7.15 uur aan de kerk van Asper.<br>
-"Maria, samen met U vragen wij Gods zegen in voor- en tegenspoed".<br>
-<br>
-<br>
-<br>
-
-
-
-
-
-#### GROOT-GAVERE: KRUISDAGVIERING
-<br>
-Verwijzend naar het eeuwenoude gebruik om in het voorjaar Gods zegen te vragen over landerijen en dieren plant de Landelijke Gilde een kruisdagviering op dinsdag <b>16 mei</b> om 19 uur in het O.C. Sint-Martinus te Asper. Welkom aan iedereen.<br>
-<br>
-<br>
-<br>
-
-
-
-
-
-#### GAVERE: GEWIJZIGDE PARKEERSITUATIE RONDOM DE KERK VAN VANAF 1 MEI
-<br>
-<figure><img src="images/pb-parkeer.jpg" alt=" Parkeerschijf © Wikipedia" style="max-height: 500px; max-width: 500px;" /><figcaption> Parkeerschijf © Wikipedia</figcaption></figure><br>
-<br>
-De blauwe parkeerschijf is ook verplicht op zon- en feestdagen van 9 uur tot 12 uur in alle straten rondom de kerk (Kloosterstraat, Molenstraat, Baaigemstraat, Weverij, Onderstraat, Markt, ...)<br>
-<br>
-Leg de parkeerschijf duidelijk zichtbaar achter de voorruit van uw wagen. Met een geldige schijf kan u 2 uur parkeren, te rekenen vanaf het aanvangsuur dat werd aangeduid op de schijf.<br>
+Een warme oproep naar ieder van jullie ! We doen een inzamelingsactie voor De Tinten in Gent. We verzamelen toiletartikelen : zeep, douchegel, shampoo, tandenborstels en tandpasta, scheerschuim en scheergerief, maandverband, pampers voor de allerkleinsten.<br>
 <br>
 <br>
 <br>
@@ -139,8 +110,7 @@ Leg de parkeerschijf duidelijk zichtbaar achter de voorruit van uw wagen. Met ee
 
 #### KAPELLETJESVIERINGEN MEIMAAND TE NAZARETH
 <br>
-<figure><img src="images/pb-stein.jpg" alt=" Kapel Steinstraat 1 © Rita Van Oost" style="max-height: 500px; max-width: 500px;" /><figcaption> Kapel Steinstraat 1 © Rita Van Oost</figcaption></figure><br>
-<figure><img src="images/pb-men.jpg" alt=" Kapel Steinstraat 2 © Rita Van Oost" style="max-height: 500px; max-width: 500px;" /><figcaption> Kapel Steinstraat 2 © Rita Van Oost</figcaption></figure><br>
+<figure><img src="images/pb-kk.jpg" alt=" Kapel Kortrijkse Heerweg © Marc Perseyn" style="max-height: 500px; max-width: 500px;" /><figcaption> Kapel Kortrijkse Heerweg © Marc Perseyn</figcaption></figure><br>
 <br>
 Maria is de patrones van de parochie Nazareth en hieraan zijn verschillende (eeuwen)oude tradities verbonden.<br>
 <br>
@@ -156,9 +126,6 @@ Ook dit jaar willen we opnieuw met velen samenkomen aan onze wijkkapelletjes. We
 <br>
 De planning voor dit jaar is als volgt:<br>
 <br>
-Donderdag <b>11 mei 2023</b>: Kasteelstraat<br>
-Donderdag <b>11 mei 2023</b>: Boeregemstraat<br>
-Vrijdag <b>12 mei 2023</b>: Eeckhoutsdreef<br>
 Woensdag <b>24 mei 2023</b>: Warandestraat<br>
 Woensdag <b>24 mei 2023</b>: Kortrijkseheerweg<br>
 Donderdag <b>25 mei 2023</b>: Deinsestraat<br>
@@ -179,7 +146,7 @@ Ook de hoeveviering gaat dit jaar opnieuw door in de meimaand: <b>op dinsdag 16 
 
 #### VIERINGEN ROND DE WIJKKAPELLETJES TE EKE
 <br>
-<figure><img src="images/pb-kw.jpg" alt=" Kapel Kwaadstraat-Nederbosstraat © Marc Perseyn" style="max-height: 500px; max-width: 500px;" /><figcaption> Kapel Kwaadstraat-Nederbosstraat © Marc Perseyn</figcaption></figure><br>
+<figure><img src="images/pb-lidl.jpg" alt=" Kapel Kapel aan de Liddle N60 © Marc Perseyn" style="max-height: 500px; max-width: 500px;" /><figcaption> Kapel Kapel aan de Liddle N60 © Marc Perseyn</figcaption></figure><br>
 <br>
 Ook in de parochie Eke vinden we dit jaar opnieuw vele Mariavereerders die in de meimaand graag willen samenkomen met de mensen van de wijk rond hun wijkkapel.<br>
 <br>
@@ -187,7 +154,6 @@ Op deze manier willen we stilstaan en bidden voor de vele zieken, voor onze over
 <br>
 Iederéén is van harte welkom op één van de volgende gebedsmomenten:<br>
 <br>
-Woensdag <b>10 mei 2023</b>: Kapel OLV van Lourdes in de Ganzenbroek - Duivelstraat.<br>
 Dinsdag <b>23 mei 2023</b>: kapel OLV aan de rotonde N60 ter hoogte van de Liddl.<br>
 Vrijdag <b>26 mei 2023</b>: Kapel Heilige Anna op Eke Landuit.<br>
 <br>
@@ -198,48 +164,19 @@ Vrijdag <b>26 mei 2023</b>: Kapel Heilige Anna op Eke Landuit.<br>
 
 
 
-#### PAROCHIEBLAD TEAM 'HAUTE QUIZINE' OP VERDIENSTELIJKE ZEVENDE PLAATS
+#### EKE-NAZARETH: INFORMATIENAMIDDAG OVER VROEGTIJDIGE ZORGPLANNING
 <br>
-<figure><img src="images/pb-team.jpg" alt=" Parochieblad team 'HAUTE QUIZINE' © Greta Peil" style="max-height: 500px; max-width: 500px;" /><figcaption> Parochieblad team 'HAUTE QUIZINE' © Greta Peil</figcaption></figure><br>
+Dienstencentrum Nazareth, Samana Nazareth en Gezinsbond Nazareth-Eke organiseren een informatienamiddag over VROEGTIJDIGE ZORGPLANNING. Deze vindt plaats in het WZC Wielkine, Stropstraat 3 te Nazareth op maandag <b>12 juni 2023</b> om 14.00 u.<br>
 <br>
-Vrijdagavond <b>28 april 2023</b>: voor het eerst sedert corona was er in WZC De Lichtervelde opnieuw een quiz.<br>
-De opbrengst van de avond gaat naar de VZW LISANGA, die tot doel heeft om aangepaste hulp en vorming te bieden in ontwikkelingslanden.<br>
+Herman Debbaut, vrijwilliger bij palliatieve thuiszorg Gent Eeklo, zal meer klaarheid brengen in onderwerpen zoals palliatieve zorg, voorafgaande wilsverklaringen; euthanasie, palliatieve sedatie, verklaring over de wijze van teraardebestelling, enzovoort.<br>
 <br>
-Met een aantal vrijwilligers die verantwoordelijk zijn voor jullie parochieblad werd een groepje gevormd.<br>
-Richard is verantwoordelijk voor het samenvoegen van de teksten en het wekelijks doorsturen ervan naar Halewijn, Christine en Chris zorgen voor de informatie, teksten en duiding van groot-Gavere en Paul en Greta zijn verantwoordelijk voor de abonnementen en de informatie over de Mariale Ommegang.<br>
-De nieuwe parochie was perfect vertegenwoordigd: Asper, Eke, Gavere en Nazareth.<br>
+Deze informatienamiddag staat open voor alle belangstellenden en is volledig gratis.<br>
 <br>
-Onze algemene kennis werd grondig op de proef gesteld.<br>
-Er werd gepeild naar onze kennis in de abc-ronde, naar onze kennis van sport, muziek, boekskes en programma's, aardrijkskunde en geschiedenis, actualiteit en 'van alles en nog wat'.<br>
-Na 7 vragenrondes en 2 bonusrondes met foto's en breinbrekers kwamen we uit op een mooie zevende plaats.<br>
+Graag uw aanwezigheid bevestigen tegen <b>8 juni</b> via onderstaand contact.<br>
 <br>
-We hebben genoten van onze avond van inspanning en ontspanning.<br>
-<br>
-Chris, Christine, Richard, Paul & Greta<br>
-<br>
-<br>
-<br>
-
-
-
-
-
-#### TIENDE BEELDENGROEP DEFINITIEF IN ZIJN KAPEL
-<br>
-<figure><img src="images/pb-tempel.jpg" alt=" Het terugvinden van Jezus in de Tempel © Greta Peil" style="max-height: 500px; max-width: 500px;" /><figcaption> Het terugvinden van Jezus in de Tempel © Greta Peil</figcaption></figure><br>
-<br>
-De kapel op de hoek van de Steinstraat en de Kapellestraat is gerestaureerd! Hierdoor kon de Werkgroep Mariale Ommegang de afgewerkte beeldengroep 'Het terugvinden van Jezus in de Tempel', vorige week definitief terugplaatsen.<br>
-We kregen zelfs van kunstenaar Bart Verbeke lovende woorden: <i>"Mooi, de kleuren passen goed met de achtergrond. En het is ook een mooi hersteld kapelletje, top. Groetjes, Bart"</i><br>
-<br>
-<figure><img src="images/pb-omme.jpg" alt=" Kapel hoek Kasteelstraat-Ommegangstraat © Greta Peil" style="max-height: 500px; max-width: 500px;" /><figcaption> Kapel hoek Kasteelstraat-Ommegangstraat © Greta Peil</figcaption></figure><br>
-<br>
-Ondertussen kreeg ook de kapel op de hoek van de Ommegangstraat en de Kasteelstraat een grondige beurt. De volledige voorgevel werd opnieuw gevoegd, de nis werd hersteld en in zacht blauw geverfd en de kieren onder de dakrand werden proper afgewerkt met houten latten.<br>
-Dikke merci aan Daniel en Pieter voor het mooie werk.<br>
-En dankjewel aan Marc en Andrea om tijdens de werken de beeldengroep veilig te bewaren.<br>
-<br>
-<b>De Werkgroep Mariale Ommegang heeft de afgelopen 2 jaar heel wat tijd en energie in de restauraties en beveiliging van deze beelden gestoken.</b><br>
-<b>Om alles in de komende decennia in goede staat te behouden, hebben we ook uw hulp nodig.</b><br>
-<b>Indien u langs één van deze 13 kapellen passeert, en u denkt dat er iets niet in orde is met het beeld of met de kapel zelf, aarzel dan niet om zo snel mogelijk iemand van de werkgroep te contacteren. Dit kan ook op de volgende nummers: 09/385 57 31 - 0475/61 20 62 - 09/385 85 31. U vindt deze nummers ook terug op de website van de Mariale Ommegang.</b><br>
+Contact via Annick Geiregat<br>
+Tel: {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:0474309902">0474 30 99 02</a><br>
+Mail: {{<icon class="fa fa-envelope">}}&nbsp;<a href="annick.grt@gmail.com">annick.grt@gmail.com</a><br>
 <br>
 <br>
 <br>
@@ -264,6 +201,21 @@ Onderweg zijn er voldoende stops voorzien om iets te eten en even uit te rusten.
 Iedereen die onze bedevaarders een hart onder de riem wil steken, mag hen komen uitzwaaien aan de kerk van Eke of is welkom in Halle rond middernacht.<br>
 <br>
 Wie graag meer informatie wil, mag contact opnemen met Marc Perseyn op {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:093855731">09 385 57 31</a> of {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:0475612062">0475 61 20 62</a> of {{<icon class="fa fa-envelope">}}&nbsp;<a href="marc.perseyn@skynet.be">marc.perseyn@skynet.be</a><br>
+<br>
+<br>
+<br>
+
+
+
+
+
+#### GAVERE: GEWIJZIGDE PARKEERSITUATIE RONDOM DE KERK
+<br>
+<figure><img src="images/pb-parkeer.jpg" alt=" © Wikipedia" style="max-height: 500px; max-width: 500px;" /><figcaption> © Wikipedia</figcaption></figure><br>
+<br>
+De blauwe parkeerschijf is ook verplicht op zon- en feestdagen van 9 uur tot 12 uur in alle straten rondom de kerk (Kloosterstraat, Molenstraat, Baaigemstraat, Weverij, Onderstraat, Markt, ...)<br>
+<br>
+Leg de parkeerschijf duidelijk zichtbaar achter de voorruit van uw wagen. Met een geldige schijf kan u 2 uur parkeren, te rekenen vanaf het aanvangsuur dat werd aangeduid op de schijf.<br>
 <br>
 <br>
 <br>

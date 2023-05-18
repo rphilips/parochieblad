@@ -40,9 +40,11 @@ Na de rondleiding wordt u een gratis drankje aangeboden.<br>
 
 #### FERM ASPER
 <br>
-<b>Dinsdag 23 mei</b> om 14.00 u. Start bij bestuurslid Micheline (Burgemeester P.Ceuterickstraat 4, Asper): Wekelijkse wandeltocht (+ 5 km)<br>
 <b>Donderdag 25 mei</b> om 19.30 u. Start aan de voorkant van de kerk te Asper: Wekelijkse wandeltocht (+ 5 km)<br>
+<b>Maandag 29 mei</b> om 13.30 u.: Sneukeltoer. Start van 13.30 u. tot 14.30 u. O.C. St.-Martinus - Hulstraat 27 te Asper. Gezinsfietstocht (+ 30 km) met lekkers onderweg en een broodje Breydel bij aankomst. Inschrijven voor <b>20 mei</b> bij Christiane Loontjens op {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:093240927">09 324 09 27</a> of via {{<icon class="fa fa-envelope">}}&nbsp;<a href="Loontjens.chris@telenet.be.">Loontjens.chris@telenet.be.</a> Volwassenen: EUR 14 - Kinderen tot 12 jaar: EUR 7<br>
+<b>Dinsdag 30 mei</b> om 14.00 u. Start bij bestuurslid Micheline (Burgemeester P.Ceuterickstraat 4, Asper): Wekelijkse wandeltocht (+ 5 km)<br>
 <br>
+<b>Donderdag 1 juni</b> om 19.30 u. Start aan de voorkant van de kerk te Asper: Wekelijkse wandeltocht (+ 5 km)<br>
 <br>
 <br>
 <br>
@@ -70,34 +72,10 @@ Inschrijven l ten laatste tot <b>1 juni 2023</b> bij Tuypens Isabelle op tel.nr.
 
 #### LDC 'DEN OEVER' - KLOOSTERSTRAAT - GAVERE
 <br>
-<b>Woensdag 17 mei</b> om 08.30 u.: Ontbijt<br>
-<b>Maandag 22 mei</b> om 14.00 u.: Kaarting i.s.m. OKRA<br>
-<b>Dinsdag 23 mei</b> om 10.00 u.: Yoga<br>
-<b>Dinsdag 23 mei</b> om 14.00 u.: Lijndansen, portrettekenen, rummikub<br>
 <b>Woensdag 24 mei</b> om 14.00 u.: Bingo<br>
 <b>Donderdag 25 mei</b> om 09.00 u.: Spaans op reis i.s.m. KISP<br>
 <b>Donderdag 25 mei</b> om 10.00 u.: Sacraal dansen<br>
 <b>Donderdag 25 mei</b> om 14.00 u.: Bonte baknamiddag : Wafels<br>
-<br>
-<br>
-<br>
-
-
-
-
-
-#### OKRA EKE WINT WZC KWIS
-<br>
-OKRA-EKE KAAPT EERSTE EN DERDE PRIJS WEG<br>
-<br>
-<figure><img src="images/pb-okra.jpg" alt=" Team 1e, Team 3e, Team sympa @ An Velghe © Guy Claus" style="max-height: 500px; max-width: 500px;" /><figcaption> Team 1e, Team 3e, Team sympa @ An Velghe © Guy Claus</figcaption></figure><br>
-<br>
-Vorige week kon je hier lezen over de deelname van ons dapper "Parochiebladteam" aan de quiz op <b>28 april 2023</b>. Ook OKRA-Eke was van de partij! Om WZC De Lichtervelde in hun hulp aan Lisanga te steunen, namen we met niet minder dan drie teams deel.<br>
-Gesterkt door kleinkinderen kaapten we de eerste prijs weg op een totaal van 21 teams. En het was Robert, onze oudste deelnemer die, na een schiftingsvraag over de exacte oppervlakte van België, ervoor zorgde dat we ook de 3de prijs wegkaapten, en dat vóór een ex aequo jeugdig team.<br>
-<br>
-Deelnemen is belangrijker dan winnen! Een dikke proficiat aan alle deelnemers, maar op de eerste plaats aan ons derde team dat uit louter sympathie kwam meedoen.<br>
-<br>
-Een warme dank aan "Jef" van de pastoraal en de zorg voor Lisanga in ons WZC De Lichtervelde om een quiz van dergelijk hoog niveau in mekaar te boksen. Proficiat Jef èn de helpers-van-deze-avond voor jullie extra werk! Het was een bijzonder leerrijke én leuke avond!<br>
 <br>
 <br>
 <br>
@@ -111,6 +89,9 @@ Een warme dank aan "Jef" van de pastoraal en de zorg voor Lisanga in ons WZC De 
 <b>Woensdag 24 mei</b> om 14.00 u. in CC De Brouwerij: Kaarten<br>
 <b>Donderdag 25 mei</b> om 09.00 u. in CC De Brouwerij: Lijndans<br>
 <b>Donderdag 25 mei</b> om 13.45 u. vertrek aan de kerk: Wandelen en fietsen<br>
+<b>Maandag 29 mei</b> om 13.30 u. in CC De Brouwerij: Crea-atelier<br>
+<b>Dinsdag 30 mei</b> om 14.00 u. in Sporthal Nazareth: Petanque<br>
+<b>Woensdag 31 mei</b> om 13.30 u. vertrek aan de kerk: Bedevaart Oostakker-Lourdes<br>
 <br>
 <br>
 <br>
@@ -123,22 +104,12 @@ Een warme dank aan "Jef" van de pastoraal en de zorg voor Lisanga in ons WZC De 
 <br>
 Activiteitenkalender<br>
 <br>
-<b>Dinsdag 23 mei</b> om 14.00 u. aan de Sporthal: Petanque<br>
+<b>Dinsdag 30 mei</b> om 09.30 u. in cc Het Centrum: Bestuursvergadering<br>
+<b>Dinsdag 30 mei</b> om 09.30 u. in cc Het Centrum: Kaarten en Rummikub<br>
 <br>
+<b>Donderdag 1 juni</b> om 14.00 u. in cc Het Centrum: Fietsen<br>
 <br>
 !!! Voor meer info: tel. {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:093855371">09 385 53 71</a><br>
-<br>
-<br>
-<br>
-
-
-
-
-
-#### SAMANA NAZARETH
-<br>
-<b>Zaterdag 20 mei</b> om 14.00 u. afspraak op de parking vh sportterrein: Uitstap naar Oostakker-Lourdes. Inschrijven verplicht. Info: {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:093855069">09 385 50 69</a><br>
-<br>
 <br>
 <br>
 <br>

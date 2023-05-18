@@ -13,12 +13,15 @@ header_menu: true
 
 #### DOOPSEL
 <br>
-Hebben het doopselsacrament ontvangen:<br>
+Rechtzetting:<br>
 <br>
-<i>Aumani Van Beversluys</i>, Nazareth<br>
+In het vorig parochieblad stonden er onder 'dopen' enkele fouten. Hier volgt de juiste versie.<br>
+<br>
+<i>Armani Van Beversluys</i>, Nazareth<br>
 <i>Antoine Van den Abeele</i>, Dikkelvenne<br>
 <i>Lio Chan</i>, Nazareth<br>
-<i>Loïc Verpoort</i>, Dikkelvenne<br>
+<i>Loïc De Muynck</i>, Nazareth<br>
+<i>Karel Verpoort</i>, Dikkelvenne<br>
 <br>
 <br>
 <br>
@@ -27,79 +30,18 @@ Hebben het doopselsacrament ontvangen:<br>
 
 
 
-#### OVERLIJDEN
+#### OPEN KERKEN WEEKEND 3 EN 4 JUNI IN DE KERK VAN NAZARETH
 <br>
-We namen in de kerk afscheid van:<br>
+<figure><img src="images/pb-ok.jpg" alt=" Open Kerk te Nazareth © Open Churches" style="max-height: 500px; max-width: 500px;" /><figcaption> Open Kerk te Nazareth © Open Churches</figcaption></figure><br>
 <br>
-<i>Marcelle Rombout</i>, 95 j., weduwe Joseph Vandecasteele<br>
-<i>Georgette D'Haese</i>, 97 j., weduwe Paul Steyaert<br>
-<i>Maria Martens</i>, 78 j., echtg. Maria Robbens<br>
-<i>Simonne Schaibroeck</i>, wed. André Coryn<br>
+Sinds 2007 hebben vele cultusgebouwen zich bij het project 'open kerken' aangesloten en zetten ze hun deuren wagenwijd open.<br>
+Houdt U van erfgoed, kunst, ontmoeting, onthaal....of zoek je gewoon even een verpozing?<br>
 <br>
+Welkom in onze kerk van Nazareth, deelnemer aan het OPENKERKEN WEEKEND en speciaal open in het weekend van 3 en <b>4 juni 2023</b>.<br>
+In de namiddag is er van 14.00 tot 16.00 uur een geleid bezoek met info over onze kerk en de Ommegang.<br>
 <br>
-<br>
-
-
-
-
-
-#### VORMSELVIERING EKE
-<br>
-Donderdag <b>18 mei</b> om 9:00.00 u. ontvangen 18 jongens en meisjes het H.Vormsel in de Sint Amanduskerk in Eke. In deze viering zullen zij hun doopbeloften hernieuwen. Ze ontvangen het Heilig Chrisma uit de handen van de vormheer EH Kannunik Bert Vanderhaegen, gezonden door onze bisschop Lode. We wensen deze vormelingen een mooie toekomst als jongchristenen waarin ze zich geroepen voelen om te leven naar het voorbeeld van Jezus.<br>
-<br>
-<i>Alicia De Geest, Eline De Wagtere, Finn De Schampelaere, Gaëlle Van Rysseghem, Hanne Vaernewyck , Isa De Cock, Jaro De Wulf, Jelte Wostijn, Jools De Meester, Julie Callens, Kirstens Daniels, Lander De Winter, Léon Duchatelet, Lucas Mortier, Luna Buckens, Noémie Depuydt, Nola Ingh, Victor Vancoppenole.</i><br>
-<br>
-<br>
-<br>
-
-
-
-
-
-#### GROOT-GAVERE: WIJ BRACHTEN LOF EN EER AAN MARIA
-<br>
-<figure><img src="images/pb-vmb.jpg" alt=" Versierd Maria beeld © C. Piens" style="max-height: 500px; max-width: 500px;" /><figcaption> Versierd Maria beeld © C. Piens</figcaption></figure><br>
-<br>
-In de eucharistieviering van zondag <b>14 mei</b> brachten we Maria lof en eer met bloemen, gebeden en gezangen. We zochten naar Haar nabijheid met al onze vragen en twijfels en ons zoekend geloof. Het feit dat we bijeen waren mag een teken van hoop zijn in deze verwarde tijden waarin de verdeeldheid groot is. Maria is DE moeder van de hoop, in Haar zien we hoe geloof, hoop en liefde in een mensenleven kunnen werken. Zij heeft Jezus in haar leven ontvangen, Zij heeft Hem doorgegeven aan anderen, Zij heeft de herinnering aan Hem levend gehouden. Moge ons vertrouwen in Haar nabijheid kracht geven om te blijven geloven dat voor God niets onmogelijk is.<br>
-<br>
-<br>
-<br>
-
-
-
-
-
-#### GROOT-GAVERE: ONTVANG HET ZEGEL VAN DE HEILIGE GEEST, DE GAVE GODS
-<br>
-<figure><img src="images/pb-vormsel.jpg" alt=" Vormsel © Kerknet" style="max-height: 500px; max-width: 500px;" /><figcaption> Vormsel © Kerknet</figcaption></figure><br>
-<br>
-Kan. Bert Vanderhaegen tekent in het weekend van 20 en <b>21 mei</b> onze 57 kandidaat-vormelingen met het zegel van de Heilige Geest.<br>
-Het sacrament van het vormsel is een belangrijke stap in de geloofsgroei van jongeren en iets waar je in alle vrijheid voor kiest. Met het vormsel hernieuwen de vormelingen de doopbeloften en wordt van hen verwacht dat ze zich verbonden weten met de geloofsgemeenschap en bereid zijn het geloof daadwerkelijk te beleven. Een grote opdracht die een heuse voorbereiding vraagt. Als basisinitiatie in de beleving van het geloof volgen de jongeren een aantal maanden vormselcatechese. Zo kunnen zij ervaren dat het evangelie het leven van mensen rijker kan maken.<br>
-<br>
-Het authentieke geloofsgetuigenis van onze catechisten Chris, Christiane, Liesbeth en Rita en van andere gelovigen zal voor hen de leidraad zijn bij het thuiskomen in de drie grote dimensies van de geloofsgemeenschap : de diaconie of dienst aan de wereld, de geloofsverkondiging en -verdieping, en de liturgie.<br>
-<br>
-Deze basisinitiatie kan voor sommige jongeren een aanzet zijn om de gave van het geloof stap voor stap een plaats te geven in hun leven.  Voor anderen zal dat niet het geval zijn.  Dat betekent niet dat wij als kerkgemeenschap en als catechisten mislukt zijn.  Wij hebben een dienst bewezen aan het levensverhaal van jonge mensen en blijven geloven dat Gods Woord ook in hun leven vruchten zal doen ontspruiten.<br>
-<br>
-<b>Vormelingen Asper</b><br>
-<br>
-<i>Attah Saow Maybel, Baert Emma, Beyls Lieze, Daelemans Brecht, De Clercq Elena, De Muer Margaux, De Vrieze Kato, De Vrieze Namory, De Zutter Zoë, Dhont Thimo, Gevaert Harley, Goeminne Femke, Simoens Louise, Tommelein Mathieu, Van Caeneghem Lien, Van Der Loooven Roel, Van Weyenbergh Fleur, Van Wonterghem Louwis, Vanmeirhaeghe Jef, Von Der Crone Lisa</i><br>
-<br>
-<b>Vormelingen Gavere</b><br>
-<br>
-<i>Becu Elise, Christiaen Helena, Collet Eva, Courtheyn Senne, Croes Matteo, De Brabandere Sam, De Paepe Laure, De Poortere Lowie, De Smet Jesse, De Vuyst Daan, Dedeken Lucas, Demoor Tess, D'hondt Nona, Dury Anne-Elle, Fabel Levi, Masureel Audrey, Mele Jonathan, Mendes Amorim Ariana, Meulenyzer Mauro, Misson Mirte, Ojumah Emma, Sucaet Eleana, Uyttersprot Maud, Van Heirzeele Thibaut, Van Melckebeke Djuna, Vande Kerckhove Estée, Vandehove Emile, Vandenbussche Jarne, Vandewalle Cyriel, Vanaverbeke Fee, Vergotte Ben, Verhoeven Lotte, Verstraete Héloïse, Visotti Ilaria, Volckaert Lobke, Volckaert Renske, Willequet Thibault</i><br>
-<br>
-<br>
-<br>
-
-
-
-
-
-#### INZAMELACTIE VOOR VZW DE TINTEN IN DE MAAND MEI EN JUNI. DE VRIJWILLIGERS ONDERSTEUNEN MENSEN ZONDER WETTIG VERBLIJF EN DAKLOZEN.
-<br>
-Op <b>18 mei</b> ontvangen wij het H.Vormsel in deze kerk. Op deze vreugdevolle dag willen we ook aan de mensen denken die het niet zo gemakkelijk hebben in onze maatschappij.<br>
-<br>
-Een warme oproep naar ieder van jullie ! We doen een inzamelingsactie voor De Tinten in Gent. We verzamelen toiletartikelen : zeep, douchegel, shampoo, tandenborstels en tandpasta, scheerschuim en scheergerief, maandverband, pampers voor de allerkleinsten.<br>
+Voor meer info kan U terecht bij Marc Perseyn 09 385 57 31 -0475 61 20 62 of bij Paul en Greta De Wilde-Peil {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:093858531">09 385 85 31</a><br>
+Iederéén is welkom en we hopen elkaar te ontmoeten voor een aangenaam bezoek.<br>
 <br>
 <br>
 <br>
@@ -154,7 +96,6 @@ Op deze manier willen we stilstaan en bidden voor de vele zieken, voor onze over
 <br>
 Iederéén is van harte welkom op één van de volgende gebedsmomenten:<br>
 <br>
-Dinsdag <b>23 mei 2023</b>: kapel OLV aan de rotonde N60 ter hoogte van de Liddl.<br>
 Vrijdag <b>26 mei 2023</b>: Kapel Heilige Anna op Eke Landuit.<br>
 <br>
 <br>
@@ -201,21 +142,6 @@ Onderweg zijn er voldoende stops voorzien om iets te eten en even uit te rusten.
 Iedereen die onze bedevaarders een hart onder de riem wil steken, mag hen komen uitzwaaien aan de kerk van Eke of is welkom in Halle rond middernacht.<br>
 <br>
 Wie graag meer informatie wil, mag contact opnemen met Marc Perseyn op {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:093855731">09 385 57 31</a> of {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:0475612062">0475 61 20 62</a> of {{<icon class="fa fa-envelope">}}&nbsp;<a href="marc.perseyn@skynet.be">marc.perseyn@skynet.be</a><br>
-<br>
-<br>
-<br>
-
-
-
-
-
-#### GAVERE: GEWIJZIGDE PARKEERSITUATIE RONDOM DE KERK
-<br>
-<figure><img src="images/pb-parkeer.jpg" alt=" © Wikipedia" style="max-height: 500px; max-width: 500px;" /><figcaption> © Wikipedia</figcaption></figure><br>
-<br>
-De blauwe parkeerschijf is ook verplicht op zon- en feestdagen van 9 uur tot 12 uur in alle straten rondom de kerk (Kloosterstraat, Molenstraat, Baaigemstraat, Weverij, Onderstraat, Markt, ...)<br>
-<br>
-Leg de parkeerschijf duidelijk zichtbaar achter de voorruit van uw wagen. Met een geldige schijf kan u 2 uur parkeren, te rekenen vanaf het aanvangsuur dat werd aangeduid op de schijf.<br>
 <br>
 <br>
 <br>

@@ -24,7 +24,8 @@ header_menu: true
 </dl>
 
 ##### Zaterdag 27 mei 2023  
-<dl><dt>&nbsp;</dt><dd><b>H. Augustinus van Canterbury,</b> bisschop<br></dd><dt><b>18.00 u. Eke:</b></dt><dd>Lutgarde Rottiers<br><i>Lector: Ingrid Clemmen</i></dd>
+<dl><dt>&nbsp;</dt><dd><b>H. Augustinus van Canterbury,</b> bisschop<br></dd><dt><b>10.00 u. Gavere:</b></dt><dd>De uitvaart van pastoor Eddy Lebeer</dd>
+<dt><b>18.00 u. Eke:</b></dt><dd>Lutgarde Rottiers<br><i>Lector: Ingrid Clemmen</i></dd>
 </dl>
 
 ##### Zondag 28 mei 2023  

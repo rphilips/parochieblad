@@ -76,6 +76,12 @@ Inschrijven l ten laatste tot <b>1 juni 2023</b> bij Tuypens Isabelle op tel.nr.
 <b>Donderdag 25 mei</b> om 09.00 u.: Spaans op reis i.s.m. KISP<br>
 <b>Donderdag 25 mei</b> om 10.00 u.: Sacraal dansen<br>
 <b>Donderdag 25 mei</b> om 14.00 u.: Bonte baknamiddag : Wafels<br>
+<b>Dinsdag 30 mei</b> om 10.00 u.: Yoga<br>
+<b>Dinsdag 30 mei</b> om 14.00 u.: Lijndansen, Portrettekenen en rummikub<br>
+<br>
+<b>Donderdag 1 juni</b> om 10.00 u.: Sacraal dansen<br>
+<b>Donderdag 1 juni</b> om 13.00 u.: Spaans op reis 2A i.s.m. KISP<br>
+<b>Donderdag 1 juni</b> om 14.00 u.: Samen breien of haken<br>
 <br>
 <br>
 <br>

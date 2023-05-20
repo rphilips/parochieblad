@@ -30,6 +30,26 @@ In het vorig parochieblad stonden er onder 'dopen' enkele fouten. Hier volgt de 
 
 
 
+#### HOEVEVIERING TE NAZARETH
+<br>
+<figure><img src="images/pb-h1.jpg" alt=" Hoeveviering (1) te Nazareth © Mark Perseyn" style="max-height: 500px; max-width: 500px;" /><figcaption> Hoeveviering (1) te Nazareth © Mark Perseyn</figcaption></figure><br>
+<figure><img src="images/pb-h2.jpg" alt=" Hoeveviering (2) te Nazareth © Mark Perseyn" style="max-height: 500px; max-width: 500px;" /><figcaption> Hoeveviering (2) te Nazareth © Mark Perseyn</figcaption></figure><br>
+<br>
+Op dinsdag <b>16 mei</b> was er een hoeveviering bij de familie Dieter en Sari Thienpondt-Vandewalle. Er werd gebeden en gezongen om zegen voor de vruchten op aarde en over Gods Schepping. Pastoor Guy ging de eucharistieviering voor en er waren meer dan 100 aanwezigen. Nadien werd er nog een drankje en een ijsje aangeboden.<br>
+<br>
+Het dankwoord werd uitgesproken door Martin Lamont.<br>
+<br>
+Dank aan de organisatie Landelijke Gilde en Ferm en zeker ook aan Dieter en Sari omdat het mocht doorgaan op hun bedrijf.<br>
+<br>
+ALLE foto's zijn te bekijken via de website www.parochie-in-gavere-nazareth.be<br>
+<br>
+<br>
+<br>
+
+
+
+
+
 #### OPEN KERKEN WEEKEND 3 EN 4 JUNI IN DE KERK VAN NAZARETH
 <br>
 <figure><img src="images/pb-ok.jpg" alt=" Open Kerk te Nazareth © Open Churches" style="max-height: 500px; max-width: 500px;" /><figcaption> Open Kerk te Nazareth © Open Churches</figcaption></figure><br>
@@ -52,7 +72,7 @@ Iederéén is welkom en we hopen elkaar te ontmoeten voor een aangenaam bezoek.<
 
 #### KAPELLETJESVIERINGEN MEIMAAND TE NAZARETH
 <br>
-<figure><img src="images/pb-kk.jpg" alt=" Kapel Kortrijkse Heerweg © Marc Perseyn" style="max-height: 500px; max-width: 500px;" /><figcaption> Kapel Kortrijkse Heerweg © Marc Perseyn</figcaption></figure><br>
+<figure><img src="images/pb-knl.jpg" alt=" Kapel Nieuwlandstraat © Marc Perseyn" style="max-height: 500px; max-width: 500px;" /><figcaption> Kapel Nieuwlandstraat © Marc Perseyn</figcaption></figure><br>
 <br>
 Maria is de patrones van de parochie Nazareth en hieraan zijn verschillende (eeuwen)oude tradities verbonden.<br>
 <br>
@@ -88,7 +108,7 @@ Ook de hoeveviering gaat dit jaar opnieuw door in de meimaand: <b>op dinsdag 16 
 
 #### VIERINGEN ROND DE WIJKKAPELLETJES TE EKE
 <br>
-<figure><img src="images/pb-lidl.jpg" alt=" Kapel Kapel aan de Liddle N60 © Marc Perseyn" style="max-height: 500px; max-width: 500px;" /><figcaption> Kapel Kapel aan de Liddle N60 © Marc Perseyn</figcaption></figure><br>
+<figure><img src="images/pb-land.jpg" alt=" Kapel Eke Landuit © Marc Perseyn" style="max-height: 500px; max-width: 500px;" /><figcaption> Kapel Eke Landuit © Marc Perseyn</figcaption></figure><br>
 <br>
 Ook in de parochie Eke vinden we dit jaar opnieuw vele Mariavereerders die in de meimaand graag willen samenkomen met de mensen van de wijk rond hun wijkkapel.<br>
 <br>

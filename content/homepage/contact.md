@@ -49,12 +49,7 @@ Steenweg 175A bus 6<br />
 9810 Eke<br />
 {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:093854240">09 385 42 40</a><br />
 {{<icon class="fa fa-envelope">}}&nbsp;<a href="mailto:guy.claus2@telenet.be">guy.claus2@telenet.be</a><br />
-<br />
-<b>Eddy Le Beer</b><br />
-Kloosterstraat 1<br />
-9890 Gavere<br />
-{{<icon class="fa fa-phone">}}&nbsp;[09 384 17 23](tel:09s3841723)<br />
-{{<icon class="fa fa-envelope">}}&nbsp;<a href="st.amandus.gavere@skynet.be">st.amandus.gavere@skynet.be</a><br /></dd>
+<br /></dd>
 <dt>Misintenties</dt>
 <dd>
 Voor of na de mis bij pastoor Guy Claus in zowel Nazareth , Eke als Gavere<br />

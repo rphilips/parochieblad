@@ -112,7 +112,9 @@ Volgens zijn wens wordt na de crematie zijn asse toevertrouwd aan de aarde op he
 
 #### GROOT-GAVERE: HET VORMSEL, EEN FEEST!
 <br>
-<figure><img src="images/pb-vormsel2.jpg" alt=" Vormsel 2 © Kerknet" style="max-height: 500px; max-width: 500px;" /><figcaption> Vormsel 2 © Kerknet</figcaption></figure><br>
+<figure><img src="images/pb-vasper.jpg" alt=" Vormelingen Asper © C. Piens" style="max-height: 500px; max-width: 500px;" /><figcaption> Vormelingen Asper © C. Piens</figcaption></figure><br>
+<figure><img src="images/pb-vgavere.jpg" alt=" Vormelingen Gavere © C. Piens" style="max-height: 500px; max-width: 500px;" /><figcaption> Vormelingen Gavere © C. Piens</figcaption></figure><br>
+<figure><img src="images/pb-cat.jpg" alt=" Catechisten © C. Piens" style="max-height: 500px; max-width: 500px;" /><figcaption> Catechisten © C. Piens</figcaption></figure><br>
 <br>
 Zaterdag 20 en zondag <b>21 mei</b> waren feestelijke dagen voor onze 57 vormelingen en hun familie. Het was fijn om in het midden van de belangstelling te staan maar als gevormde houdt het daar niet op. Als christen leven gaat niet zomaar, daarvoor heb je geloof nodig dat God je leven richting geeft. Kan. Bert Vanderhaegen benadrukte dat het vormselsacrament een belangrijke stap is in de geloofsgroei van deze jonge mensen. Als teken van Gods nabijheid tekende hij hen met het Zegel van de Heilige Geest, de gave Gods. Dat geschenk van God werd voor deze jongeren duidelijk aan de hand van twee gebaren. Eerst de handoplegging: God wil hen beschermen en leiden. En daarna de zalving met het chrisma: God wil in elk van deze jongeren Zijn Geest laten doordringen zodat die Geest werkzaam in hen kan worden. Hij is een tochtgenoot, een kracht, een zekerheid dat ze er nooit alleen voor staan.<br>
 <br>

@@ -11,45 +11,6 @@ header_menu: true
 
 
 
-#### DOOPSEL
-<br>
-Rechtzetting:<br>
-<br>
-In het vorig parochieblad stonden er onder 'dopen' enkele fouten. Hier volgt de juiste versie.<br>
-<br>
-<i>Armani Van Beversluys</i>, Nazareth<br>
-<i>Antoine Van den Abeele</i>, Dikkelvenne<br>
-<i>Lio Chan</i>, Nazareth<br>
-<i>Loïc De Muynck</i>, Nazareth<br>
-<i>Karel Verpoort</i>, Dikkelvenne<br>
-<br>
-<br>
-<br>
-
-
-
-
-
-#### HOEVEVIERING TE NAZARETH
-<br>
-<figure><img src="images/pb-h1.jpg" alt=" Hoeveviering (1) te Nazareth © Mark Perseyn" style="max-height: 500px; max-width: 500px;" /><figcaption> Hoeveviering (1) te Nazareth © Mark Perseyn</figcaption></figure><br>
-<figure><img src="images/pb-h2.jpg" alt=" Hoeveviering (2) te Nazareth © Mark Perseyn" style="max-height: 500px; max-width: 500px;" /><figcaption> Hoeveviering (2) te Nazareth © Mark Perseyn</figcaption></figure><br>
-<br>
-Op dinsdag <b>16 mei</b> was er een hoeveviering bij de familie Dieter en Sari Thienpondt-Vandewalle. Er werd gebeden en gezongen om zegen voor de vruchten op aarde en over Gods Schepping. Pastoor Guy ging de eucharistieviering voor en er waren meer dan 100 aanwezigen. Nadien werd er nog een drankje en een ijsje aangeboden.<br>
-<br>
-Het dankwoord werd uitgesproken door Martin Lamont.<br>
-<br>
-Dank aan de organisatie Landelijke Gilde en Ferm en zeker ook aan Dieter en Sari omdat het mocht doorgaan op hun bedrijf.<br>
-<br>
-ALLE foto's zijn te bekijken via de website www.parochie-in-gavere-nazareth.be<br>
-<br>
-<br>
-<br>
-
-
-
-
-
 #### OPEN KERKEN WEEKEND 3 EN 4 JUNI IN DE KERK VAN NAZARETH
 <br>
 <figure><img src="images/pb-ok.jpg" alt=" Open Kerk te Nazareth © Open Churches" style="max-height: 500px; max-width: 500px;" /><figcaption> Open Kerk te Nazareth © Open Churches</figcaption></figure><br>
@@ -88,31 +49,8 @@ Ook dit jaar willen we opnieuw met velen samenkomen aan onze wijkkapelletjes. We
 <br>
 De planning voor dit jaar is als volgt:<br>
 <br>
-Woensdag <b>24 mei 2023</b>: Warandestraat<br>
-Woensdag <b>24 mei 2023</b>: Kortrijkseheerweg<br>
-Donderdag <b>25 mei 2023</b>: Deinsestraat<br>
-Dinsdag <b>30 mei 2023</b>: Nieuwlandstraat<br>
 Woensdag <b>31 mei 2023</b>: Oudenaardseheerweg (Kapel O.L.Vrouw van Scherpenheuvel)<br>
 Woensdag <b>31 mei 2023</b>: 's Gravenstraat<br>
-<br>
-<br>
-<br>
-
-
-
-
-
-#### VIERINGEN ROND DE WIJKKAPELLETJES TE EKE
-<br>
-<figure><img src="images/pb-land.jpg" alt=" Kapel Eke Landuit © Marc Perseyn" style="max-height: 500px; max-width: 500px;" /><figcaption> Kapel Eke Landuit © Marc Perseyn</figcaption></figure><br>
-<br>
-Ook in de parochie Eke vinden we dit jaar opnieuw vele Mariavereerders die in de meimaand graag willen samenkomen met de mensen van de wijk rond hun wijkkapel.<br>
-<br>
-Op deze manier willen we stilstaan en bidden voor de vele zieken, voor onze overleden familie en vrienden, voor de parochies, voor de vrede in de wereld en in ons hart, de vele persoonlijke intenties...<br>
-<br>
-Iederéén is van harte welkom op één van de volgende gebedsmomenten:<br>
-<br>
-Vrijdag <b>26 mei 2023</b>: Kapel Heilige Anna op Eke Landuit.<br>
 <br>
 <br>
 <br>
@@ -134,30 +72,6 @@ Graag uw aanwezigheid bevestigen tegen <b>8 juni</b> via onderstaand contact.<br
 Contact via Annick Geiregat<br>
 Tel: {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:0474309902">0474 30 99 02</a><br>
 Mail: {{<icon class="fa fa-envelope">}}&nbsp;<a href="annick.grt@gmail.com">annick.grt@gmail.com</a><br>
-<br>
-<br>
-<br>
-
-
-
-
-
-#### EKE-NAZARETH: WANDELTOCHT-BEDEVAART NAAR HALLE - ZATERDAG 27 MEI 2023
-<br>
-<figure><img src="images/pb-halle.jpg" alt=" bedevaart naar Halle © Marc perseyn" style="max-height: 500px; max-width: 500px;" /><figcaption> bedevaart naar Halle © Marc perseyn</figcaption></figure><br>
-<br>
-Op de zaterdag van Pinksteren vertrekt al meer dan 60 jaar een groep wandelaars en bedevaarders te voet van aan de kerk van Eke naar de Sint Martinusbasiliek van Halle.<br>
-Iedereen die graag de tocht van ongeveer 60 km wil meestappen, is welkom.<br>
-Het vertrek is op zaterdag <b>27 mei 2023</b> om 07.30 uur aan de zijdeur van de kerk van Eke.<br>
-De aankomst in de basiliek van Halle is voorzien rond middernacht.<br>
-<br>
-Daar wordt door de bedevaarders de meegebrachte bedevaartskaars aangestoken in de eucharistieviering van Pinksteren op zondag <b>28 mei</b> om 01.00 uur 's nachts.<br>
-<br>
-Onderweg zijn er voldoende stops voorzien om iets te eten en even uit te rusten.<br>
-<br>
-Iedereen die onze bedevaarders een hart onder de riem wil steken, mag hen komen uitzwaaien aan de kerk van Eke of is welkom in Halle rond middernacht.<br>
-<br>
-Wie graag meer informatie wil, mag contact opnemen met Marc Perseyn op {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:093855731">09 385 57 31</a> of {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:0475612062">0475 61 20 62</a> of {{<icon class="fa fa-envelope">}}&nbsp;<a href="marc.perseyn@skynet.be">marc.perseyn@skynet.be</a><br>
 <br>
 <br>
 <br>

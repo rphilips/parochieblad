@@ -28,7 +28,7 @@ header_menu: true
 </dl>
 
 ##### Zondag 4 juni 2023  
-<dl><dt>&nbsp;</dt><dd><b>HOOGFEEST VAN DE DRIE-EENHEID</b><br>9e ZONDAG DOOR HET JAAR<br></dd><dt><b>09.00 u. Gavere:</b></dt><dd>Pastoor Eddy le Beer<br><i>Lector: Luc De Coninck</i></dd>
+<dl><dt>&nbsp;</dt><dd><b>HOOGFEEST VAN DE DRIE-EENHEID</b><br>9e ZONDAG DOOR HET JAAR<br></dd><dt><b>09.00 u. Gavere:</b></dt><dd>Eucharistieviering<br><i>Lector: Luc De Coninck</i></dd>
 <dt><b>10.30 u. Nazareth:</b></dt><dd>|Christine Van De Weghe en kinderen en familie|<br>René Bracke, echtg. Rosa Van Ooteghem en familie<br><i>Lector: Annemie De Gussem</i></dd>
 </dl>
 

@@ -68,13 +68,64 @@ Inschrijven l ten laatste tot <b>1 juni 2023</b> bij Tuypens Isabelle op tel.nr.
 
 
 
-#### LDC 'DEN OEVER' - KLOOSTERSTRAAT - GAVERE
+#### FERM EKE: LUXE-VADERDAGONTBIJT
 <br>
+<figure><img src="images/pb-vad.jpg" alt=" 11 e Luxe-vaderdagontbijt © Ferm Eke" style="max-height: 500px; max-width: 500px;" /><figcaption> 11 e Luxe-vaderdagontbijt © Ferm Eke</figcaption></figure><br>
+<br>
+Op zondag <b>11 juni</b>, organiseert Ferm Eke haar 11 e Luxe-vaderdagontbijt, dit keer opnieuw in take-<br>
+away formule.<br>
+<br>
+U kan thuis genieten van een heerlijk luxueus rijkelijk gevuld ontbijtpakket met lokale lekkernijen.<br>
+U kan dit komen afhalen in Cc De Brouwerij van 08.00 u. tot 10.00 u.<br>
+Volwassen betalen 19 EUR , kinderen 8 EUR .<br>
+Wenst u dit thuis geleverd te krijgen, dan betaal je 5 EUR per leveringsadres<br>
+<br>
+Inschrijven door storting op het rekening nr van Ferm Eke :<br>
+<b>{{<icon class="fa fa-piggy-bank">}}&nbsp;BE66 7374 0807 9043</b><br>
+<br>
+Schrijf in voor <b>6 juni</b><br>
+<br>
+<br>
+<br>
+
+
+
+
+
+#### KOOR SINGELEKE: CONCERT "STAND TOGETHER"
+<br>
+<figure><img src="images/pb-sin.jpg" alt=" Singeleke treedt op te Deinze © Singeleke" style="max-height: 500px; max-width: 500px;" /><figcaption> Singeleke treedt op te Deinze © Singeleke</figcaption></figure><br>
+<br>
+Muziek schept verbondenheid!<br>
+<br>
+De koren Cantate Domino Deinze en Singeleke en het kamerorkest Da Capo slaan de handen<br>
+in elkaar. Mensen met verschillende leeftijden, achtergronden vinden elkaar en komen samen<br>
+op een podium om iets moois te brengen.<br>
+Komt dat zien, komt dat horen. Het belooft een verrassende avond te worden.<br>
+Wanneer? Zaterdag <b>3 juni</b> om 20.00 u.<br>
+Waar? Sint Pauluskerk, Oostkouterlaan 5 te Deinze<br>
+<br>
+Kaarten? Tickets zijn online te verkrijgen via {{<icon class="fa fa-external-link">}}&nbsp;<a href="http://shop.stamhoofd.be/stand-together/" taeget=_blank>http://shop.stamhoofd.be/stand-together/</a><br>
+of via www.cantatedominodeinze.net<br>
+<br>
+Tot dan!<br>
+<br>
+<br>
+<br>
+
+
+
+
+
+#### LDC 'DEN OEVER' - KLOOSTERSTRAAT - GAVERE
 <br>
 <b>Donderdag 1 juni</b> om 10.00 u.: Sacraal dansen<br>
 <b>Donderdag 1 juni</b> om 13.00 u.: Spaans op reis 2A i.s.m. KISP<br>
 <b>Donderdag 1 juni</b> om 14.00 u.: Samen breien of haken<br>
 <b>Maandag 5 juni</b> om 14.00 u.: Kaarting i.s.m. OKRA<br>
+<b>Dinsdag 6 juni</b> om 10.00 u.: Yoga<br>
+<b>Dinsdag 6 juni</b> om 14.00 u.: Lijndansen, Portrettekenen, Rummikub<br>
+<b>Woensdag 7 juni</b> om14.00.00 u.: UNO spelnamiddag<br>
 <br>
 <br>
 <br>

@@ -11,55 +11,11 @@ header_menu: true
 
 
 
-#### DAVIDSFONDS EKE-NAZARETH
-<br>
-<figure><img src="images/pb-df.jpg" alt=" Kapel Sint-Hendrik Deinze © Paul Schaubroeck" style="max-height: 500px; max-width: 500px;" /><figcaption> Kapel Sint-Hendrik Deinze © Paul Schaubroeck</figcaption></figure><br>
-<br>
-<i>Is er toekomst voor onze kerken en kapellen?</i><br>
-<br>
-Bezoek aan gerenoveerde kapel Sint-Hendrik Deinze.<br>
-Op donderdag <b>8 juni</b> bent u welkom om 20.00 u. in Deinze, Guido Gezellaan 105 (parkeren kan op de speelplaats).<br>
-Inkom voor leden Davidsfonds EUR 5, niet-leden EUR 10 .<br>
-<br>
-Bij voorkeur vooraf inschrijven via betaling (vermeld naam en aantal personen) op het<br>
-nummer <b>{{<icon class="fa fa-piggy-bank">}}&nbsp;BE62 4457 5147 8161</b> van Davidsfonds Nazareth. {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:0473445487">0473 44 54 87</a> (Marylka De<br>
-Vuyst).  {{<icon class="fa fa-envelope">}}&nbsp;<a href="Davidsfonds.nazareth@gmail.com">Davidsfonds.nazareth@gmail.com</a><br>
-<br>
-Wat moet er in Vlaanderen in de toekomst gebeuren met de 1800 parochiekerken en<br>
-honderden kapellen die onze scholen en kloosters rijk zijn? De kapel Sint-Hendrik is een<br>
-mooi voorbeeld van toekomstgerichte renovatie. Oud-directeur en bezieler van het<br>
-bouwproject Paul Schaubroeck zorgt voor uitleg en een rondleiding.<br>
-Na de rondleiding wordt u een gratis drankje aangeboden.<br>
-<br>
-<br>
-<br>
-
-
-
-
-
 #### FERM ASPER
 <br>
-<b>Donderdag 1 juni</b> om 19.30 u. Start aan de voorkant van de kerk te Asper: Wekelijkse wandeltocht (+ 5 km)<br>
-<b>Dinsdag 6 juni</b> om 14.00 u. Start bij bestuurslid Micheline (Burgemeester P.Ceuterickstraat 4, Asper): Wekelijkse wandeltocht (+ 5 km)<br>
 <b>Donderdag 8 juni</b> om 19.30 u. Start aan de voorkant van de kerk te Asper: Wekelijkse wandeltocht (+ 5 km)<br>
-<br>
-<br>
-<br>
-
-
-
-
-
-#### FERM DIKKELVENNE
-<br>
-Zaterdag <b>10 juni</b> 2023 om 14.00 u. Workshop juwelen maken<br>
-<br>
-Plaats : Beerlegemse baan 70, te Beerlegem (best parkeren rond de kerk)<br>
-<br>
-Prijs : EUR 40 basismateriaal inbegrepen in deze prijs<br>
-<br>
-Inschrijven l ten laatste tot <b>1 juni 2023</b> bij Tuypens Isabelle op tel.nr. 09/384 69 84 - 0489107822 of via mail naar debuysscher-{{<icon class="fa fa-envelope">}}&nbsp;<a href="tuypens@telenet.be">tuypens@telenet.be</a><br>
+<b>Dinsdag 13 juni</b> om 14.00 u. Start bij bestuurslid Micheline (Burgemeester P.Ceuterickstraat 4, Asper): Wekelijkse wandeltocht (+ 5 km)<br>
+<b>Donderdag 15 juni</b> om 19.30 u. Start aan de voorkant van de kerk te Asper: Wekelijkse wandeltocht (+ 5 km)<br>
 <br>
 <br>
 <br>
@@ -70,7 +26,7 @@ Inschrijven l ten laatste tot <b>1 juni 2023</b> bij Tuypens Isabelle op tel.nr.
 
 #### FERM EKE: LUXE-VADERDAGONTBIJT
 <br>
-<figure><img src="images/pb-vad.jpg" alt=" 11 e Luxe-vaderdagontbijt © Ferm Eke" style="max-height: 500px; max-width: 500px;" /><figcaption> 11 e Luxe-vaderdagontbijt © Ferm Eke</figcaption></figure><br>
+<figure><img src="images/pb-vad.jpg" alt=" 11 e Luxe-vaderdagontbijt © Ferm Eke © Ferm Eke" style="max-height: 500px; max-width: 500px;" /><figcaption> 11 e Luxe-vaderdagontbijt © Ferm Eke © Ferm Eke</figcaption></figure><br>
 <br>
 Op zondag <b>11 juni</b>, organiseert Ferm Eke haar 11 e Luxe-vaderdagontbijt, dit keer opnieuw in take-<br>
 away formule.<br>
@@ -92,23 +48,16 @@ Schrijf in voor <b>6 juni</b><br>
 
 
 
-#### KOOR SINGELEKE: CONCERT "STAND TOGETHER"
+#### FERM SEMMERZAKE
 <br>
-<figure><img src="images/pb-sin.jpg" alt=" Singeleke treedt op te Deinze © Singeleke" style="max-height: 500px; max-width: 500px;" /><figcaption> Singeleke treedt op te Deinze © Singeleke</figcaption></figure><br>
+Kookdemo <i>"Klassiek gezonder"</i> op maandag <b>19 juni 2023</b> om 19.00 u. (nieuwe datum) in de Borgwalhoeve, Leenstraat, 31, Vurste.<br>
 <br>
-Muziek schept verbondenheid!<br>
+Van echte klassiekers of populaire gerechten maken we een lekkere, gezonde variant. Alles even lekker maar perfect passend in een gezonde(re) levensstijl.<br>
 <br>
-De koren Cantate Domino Deinze en Singeleke en het kamerorkest Da Capo slaan de handen<br>
-in elkaar. Mensen met verschillende leeftijden, achtergronden vinden elkaar en komen samen<br>
-op een podium om iets moois te brengen.<br>
-Komt dat zien, komt dat horen. Het belooft een verrassende avond te worden.<br>
-Wanneer? Zaterdag <b>3 juni</b> om 20.00 u.<br>
-Waar? Sint Pauluskerk, Oostkouterlaan 5 te Deinze<br>
+We mogen uitgebreid proeven en krijgen de recepten mee naar huis.<br>
 <br>
-Kaarten? Tickets zijn online te verkrijgen via {{<icon class="fa fa-external-link">}}&nbsp;<a href="http://shop.stamhoofd.be/stand-together/" taeget=_blank>http://shop.stamhoofd.be/stand-together/</a><br>
-of via www.cantatedominodeinze.net<br>
-<br>
-Tot dan!<br>
+Ook niet-leden zijn welkom !<br>
+Info en inschrijven vóór maandag <b>12 juni</b> via {{<icon class="fa fa-envelope">}}&nbsp;<a href="FermSemmerzake@gmail.com">FermSemmerzake@gmail.com</a> of bij Rita Nachtergaele {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:093841735">09 384 17 35</a>.<br>
 <br>
 <br>
 <br>
@@ -119,13 +68,12 @@ Tot dan!<br>
 
 #### LDC 'DEN OEVER' - KLOOSTERSTRAAT - GAVERE
 <br>
-<b>Donderdag 1 juni</b> om 10.00 u.: Sacraal dansen<br>
-<b>Donderdag 1 juni</b> om 13.00 u.: Spaans op reis 2A i.s.m. KISP<br>
-<b>Donderdag 1 juni</b> om 14.00 u.: Samen breien of haken<br>
-<b>Maandag 5 juni</b> om 14.00 u.: Kaarting i.s.m. OKRA<br>
-<b>Dinsdag 6 juni</b> om 10.00 u.: Yoga<br>
-<b>Dinsdag 6 juni</b> om 14.00 u.: Lijndansen, Portrettekenen, Rummikub<br>
 <b>Woensdag 7 juni</b> om14.00.00 u.: UNO spelnamiddag<br>
+<b>Dinsdag 13 juni</b> om 10.00 u.: Yoga<br>
+<b>Dinsdag 13 juni</b> om 14.00 u.: Lijndansen, Portrettekenen, Rummikub<br>
+<b>Woensdag 14 juni</b> om 14.00 u.: Workshop "Koken met elk budget"<br>
+<b>Donderdag 15 juni</b> om 09.00 u.: Spaans op reis 2A ism Kisp<br>
+<b>Donderdag 15 juni</b> om 10.00 u.: Sacraal dansen<br>
 <br>
 <br>
 <br>
@@ -136,13 +84,13 @@ Tot dan!<br>
 
 #### OKRA TREFPUNT EKE
 <br>
-<b>Woensdag 31 mei</b> om 13.30 u. vertrek aan de kerk: Bedevaart Oostakker-Lourdes<br>
-<br>
-<b>Donderdag 1 juni</b> om 14.00 u. in CC De Brouwerij: Lijndans en rummikub<br>
 <b>Woensdag 7 juni</b> om 14.00 u. in CC De Brouwerij: Kaarten<br>
 <b>Donderdag 8 juni</b> om 09.00 u. in CC De Brouwerij: Lijndans<br>
 <b>Donderdag 8 juni</b> om 13.45 u. vertrek aan de kerk: Wandelen en fietsen<br>
 <b>Vrijdag 9 juni</b> om 07.30 u. vertrek aan de kerk groep 1: Daguitstap Nieuwpoort - Loppem<br>
+<b>Maandag 12 juni</b> om 13.30 u. in CC De Brouwerij: Crea-atelier<br>
+<b>Dinsdag 13 juni</b> om 14.00 u. in Sporthal Nazareth: Petanque<br>
+<b>Donderdag 15 juni</b> om 14.00 u. in CC De Brouwerij: Lijndans en rummikub<br>
 <br>
 <br>
 <br>
@@ -155,10 +103,10 @@ Tot dan!<br>
 <br>
 Activiteitenkalender<br>
 <br>
-<b>Donderdag 1 juni</b> om 14.00 u. in cc Het Centrum: Fietsen<br>
-<b>Maandag 5 juni</b> om 14.00 u. in cc Het Centrum: Wandelen<br>
-<b>Dinsdag 6 juni</b> om 14.00 u. aan de Sporthal: Petanque<br>
 <b>Donderdag 8 juni</b> om 14.00 u. in cc Het Centrum: Lijndansen<br>
+<b>Dinsdag 13 juni</b> om 14.00 u. in cc Het Centrum: Kaarten, rummikub<br>
+<b>Woensdag 14 juni</b> om 14.00 u. op parking achter de sporthal: Verrassingsreis<br>
+<b>Donderdag 15 juni</b> om 09.15 u. op parking achter de sporthal: Dagfietstocht<br>
 <br>
 !!! Voor meer info: tel. {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:093855371">09 385 53 71</a><br>
 <br>
@@ -172,6 +120,30 @@ Activiteitenkalender<br>
 #### SAMANA ASPER
 <br>
 <b>Donderdag 8 juni</b> om 14.00 u. in het OC St.-Martinus te Asper: Spelnamiddag. Inschrijven en info bij Lydie Vanderstichelen.<br>
+<br>
+Op donderdag <b>22 juni 2023</b> om 14.00 u. komen wij samen in het OC Sint-Martinus, Hulstraat 27, Asper.<br>
+<br>
+Met een stukje taart en koffie/thee, willen wij jullie bedanken voor jullie inzet.<br>
+Caroline Coddens komt spreken over 'Klein geluk voor de mantelzorger in Vlaanderen'.<br>
+<br>
+Mantelzorger zijn is iets wat je meestal overkomt: je partner, ouder, kind of vriend wordt ziek en jij neemt een deel van de zorg op je. Het vergt heel wat van je, en vaak wordt de zorg zwaarder. Het is daarom belangrijk niet te vergeten goed voor jezelf te zorgen.<br>
+Tijdens deze namiddag leer je de 'recepten' en tips uit het boek: 'klein geluk voor de mantelzorger' te gebruiken om je even te laten verademen.<br>
+<br>
+Simpele kleine oefeningen sluiten aan bij jouw noden als mantelzorger. Je leert je eigen behoeften aan rust, ontspanning, energie, contact of vrolijkheid kennen .... Zo kom je zelf weer aan het roer te staan van je leven.<br>
+<br>
+Deze namiddag wordt jullie gratis aangeboden en elke mantelzorger ontvangt een attentie.<br>
+Inschrijven kan tot uiterlijk <b>15 juni 2023</b> bij Lydie Vanderstichelen, Leebeeklaan 34, 9890 Asper, tel. {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:093841423">09 384 14 23</a>.<br>
+<br>
+<br>
+<br>
+
+
+
+
+
+#### SAMANA NAZARETH
+<br>
+<b>Dinsdag 13 juni</b> om 14.00 u. in de Brouwerij: Crea-namiddag<br>
 <br>
 <br>
 <br>

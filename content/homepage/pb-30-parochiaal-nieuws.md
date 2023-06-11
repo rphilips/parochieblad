@@ -38,6 +38,40 @@ We namen in de kerk afscheid van:<br>
 
 
 
+#### 24 JUNI: GEBOORTE VAN JOHANNES DE DOPER
+<br>
+Op deze dag herdenkt de Rooms-Katholieke kerk de geboorte van Johannes de Doper. Volgens het evangelie van Lucas was hij de zoon van de priester Zacharias en Elisabet, de nicht van Jezus' moeder Maria.:<br>
+<br>
+Johannes de Doper was ten tijde van Jezus een boeteprediker in de woestijn van Juda. Hij doopte mensen met water om hen van zonden te reinigen. Hij was de eerste mens die Jezus aanwees als de Messias, de langverwachte redder van het volk van Israël. Daarom wordt hij de Voorloper van Christus genoemd.<br>
+<br>
+Johannes werd onthoofd op last van Herodes Antipas die hij van overspel met Herodias (een bekende vrouw uit de familie van de Herodianen) had beschuldigd. Herodes voelde zich beledigd en liet Johannes gevangen nemen. Hij had hem eigenlijk willen laten doden, maar hij durfde dat niet, bang dat het volk dan in opstand zou komen. Toen de dochter van Herodias op een dag de koning door haar verleidelijke dans had vermaakt, vroeg Herodes Antipas hoe hij haar zou kunnen belonen. Door haar moeder opgestookt, zei ze: "Geef mij hier op een schotel het hoofd van Johannes de Doper." De koning werd bedroefd, maar vanwege zijn eed en omwille van zijn gasten gaf hij het bevel om het haar te geven. En hij liet Johannes in de gevangenis onthoofden. Zijn hoofd werd op een schotel gebracht en aan het meisje gegeven, en zij bracht het naar haar moeder. Zijn leerlingen kwamen het lijk halen en ze begroeven het, en ze gingen Jezus op de hoogte stellen. Toen Jezus dat hoorde, week Hij met een boot uit naar een eenzame plaats om alleen te zijn (Mt 14: 8-13).<br>
+<br>
+<figure><img src="images/pb-jdj.jpg" alt=" Johannes doopt Jezus © Dionysiusparochie" style="max-height: 500px; max-width: 500px;" /><figcaption> Johannes doopt Jezus © Dionysiusparochie</figcaption></figure><br>
+<br>
+<br>
+<br>
+
+
+
+
+
+#### 29 JUNI - FEEST VAN DE APOSTELEN PETRUS EN PAULUS
+<br>
+<b>Wie waren zij?</b><br>
+<br>
+PETRUS was een van de twaalf apostelen en heette oorspronkelijk Simon. Hij was de broer van Andreas en visser van beroep. Geboren in Betsaïda woonde hij ten tijde van zijn ontmoeting met Jezus in Kafarnaüm. Hij was gehuwd. Met Jacobus en Johannes behoorde hij tot de drie bevoorrechte leerlingen die getuigen mochten zijn van Jezus' glorie (de opwekking van Jaïrus' dochtertje, de gedaanteverandering op de berg Thabor) en van zijn vernedering in de hof van Olijven. Petrus verloochende daar Jezus tot driemaal toe. Toch gaf de verrezen Heer hem de opdracht zijn schapen te weiden. Hij kreeg daarmee de functie van "Rots" toegezegd waarop de gelovige gemeenschap moet gefundeerd zijn. Uit de Handelingen van de Apostelen blijkt ook duidelijk dat hij de leiding van de vroege kerk op zich nam. Net als Paulus verbleef Petrus in Rome. Hij stierf er de marteldood, volgens de overlevering de kruisdood tijdens de vervolging door keizer Nero (64-67 na Christus).<br>
+<br>
+PAULUS, wiens Joodse naam Saul was, werd in Tarsus (Zuid-Oost Turkije) geboren. Paulus heeft aanvankelijk het christendom hartgrondig verfoeid en vervolgd. Maar op weg naar Damascus voelde hij zich door de genade van God gegrepen; daar verscheen hem, zoals hij het later zou uitdrukken, de Heer, die hem riep tot het geloof en het apostelschap onder de "heidenvolken". Deze belangrijke ommekeer had plaats enkele jaren na de dood van Jezus. Paulus ondernam drie grote missiereizen. Kort voor het jaar 50 nam hij ook deel aan het apostelconcilie van Jeruzalem, waar Paulus' zending onder de heidenen officieel werd erkend. Omstreeks Pinksteren in het jaar 56 werd hij te Jeruzalem door de Romeinen gearresteerd en twee jaar te Caesarea gevangen gehouden. Na een beroep op de keizer werd hij naar Rome overgebracht waar hij nog twee jaar in gevangenschap doorbracht en onder keizer Nero de marteldood stierf.<br>
+<br>
+<figure><img src="images/pb-pepa.jpg" alt=" Petrus en Paulus © Priorij Thabor" style="max-height: 500px; max-width: 500px;" /><figcaption> Petrus en Paulus © Priorij Thabor</figcaption></figure><br>
+<br>
+<br>
+<br>
+
+
+
+
+
 #### DATA VOOR EERSTE COMMUNIE EN VORMSEL 2024
 <br>
 De meimaand is een drukke en gezellige kerkmaand, Mariamaand, communiemaand. Trots en fier kijken we terug op vieringen met vele communicantjes en gevulde kerken met blije familie.<br>

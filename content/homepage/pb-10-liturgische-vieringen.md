@@ -57,7 +57,7 @@ header_menu: true
 </dl>
 
 ##### Zondag 25 juni 2023  
-<dl><dt>&nbsp;</dt><dd>12e ZONDAG DOOR HET JAAR<br></dd><dt><b>09.00 u. Gavere:</b></dt><dd>Eucharistie<br><i>Lector: Chris Jungbluth</i></dd>
+<dl><dt>&nbsp;</dt><dd>12e ZONDAG DOOR HET JAAR<br></dd><dt><b>09.00 u. Gavere:</b></dt><dd>T.e.v. Onze-Lieve-Vrouw Altijddurende Bijstand voor een genezing<br><i>Lector: Chris Jungbluth</i></dd>
 <dt><b>10.30 u. Nazareth:</b></dt><dd>Eucharistie<br><i>Lector: Geert De Jans</i></dd>
 </dl>
 <br>

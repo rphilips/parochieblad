@@ -11,6 +11,21 @@ header_menu: true
 
 
 
+#### FEMMA ASPER
+<br>
+Fietstocht op zaterdag <b>24 juni 2023</b> voor het hele gezin.(+ 25 km)<br>
+Om 14.00 u. vertrekken we aan het gemeenteplein in Asper. Langs aangename fietswegen rijden we naar 'de Ponthoeve' in De Pinte. Daar maken we voldoende tijd om iets te consumeren, elk naar eigen keuze.<br>
+<br>
+Inschrijven tegen <b>17 juni</b> bij Ann Bergez, Haagstraat 70 , Asper. Tel.: {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:093845583">09 384 55 83</a> of<br>
+{{<icon class="fa fa-phone">}}&nbsp;<a href="tel:0477661589">0477 66 15 89</a><br>
+<br>
+<br>
+<br>
+
+
+
+
+
 #### FERM ASPER
 <br>
 <b>Donderdag 15 juni</b> om 19.30 u. Start aan de voorkant van de kerk te Asper: Wekelijkse wandeltocht (+ 5 km)<br>

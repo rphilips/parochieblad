@@ -11,25 +11,12 @@ header_menu: true
 
 
 
-#### PASTOOR EDDY LEEFT VERDER BIJ DE VADER EN IN ONS HART
+#### DOOPSEL
 <br>
-<figure><img src="images/pb-ged.jpg" alt=" Gedachteniskruisje kerk © C. Piens" style="max-height: 500px; max-width: 500px;" /><figcaption> Gedachteniskruisje kerk © C. Piens</figcaption></figure><br>
+Hebben het doopselsacrament ontvangen:<br>
 <br>
-Na het koude en natte voorjaar was voor Pinksterzaterdag een zonovergoten dag voorspeld. En die voorspelling is volledig uitgekomen. De zon scheen van 's morgens vroeg.<br>
-<br>
-Maar in ons hart was het bar koud en kil, was er enkel verdriet en rouw om het afscheid van priester en pastoor Eddy maar naast die droefheid was er ook grote dankbaarheid. In de Sint-Amanduskerk van Gavere, pastoor Eddy's kerk, waren we in gebed en zang verbonden om hem te dragen en verder te dragen over de grenzen van de dood heen naar het nieuwe leven bij God. Het groot aantal priesters en de vele aanwezigen toonden hoe geliefd hij was.<br>
-<br>
-Pastoor Eddy was niet alleen een grote vriend was maar ook een groot voorbeeld voor iedereen. We missen hem enorm maar we zijn ook dankbaar omdat hij 19 jaar onze herder is mogen zijn. Hij was een voortrekker, de stuwende kracht die de kerkgemeenschap van Groot-Gavere opnieuw op de pastorale kaart zette. Zijn parochieteam gaf hij een grote vrijheid om het christen-zijn op een hedendaagse manier daadwerkelijk te beleven en uit te dragen tot opbouw van de geloofsgemeenschap. Hij was de man van de vernieuwing, hij was Gods dienaar en voor ons een reisgenoot.<br>
-<br>
-Hoe pijnlijk het afscheid ook, nu moeten we naar de toekomst kijken, zijn werk verder zetten, groeikracht geven aan al het mooie dat hij ons heeft meegegeven en de herinnering aan hem heel diep in ons hart koesteren. In zijn testament verwoordde hij het als volgt: "Ik ben uit jullie gezichtsveld verdwenen maar in geloof blijven we met elkaar verbonden; ik laat jullie niet los". Pastoor Eddy, wij laten jou ook niet los. In gebed en in gedachten blijven we voor altijd verbonden.<br>
-<br>
-Twee symbolisch geladen dagen in de Kerk tekenden opnieuw pastoor Eddy. Samen met de Heer is hij op Hemelvaart teruggekeerd naar de Vader. Op Pinksteren herdenkt de Kerk de komst van de Heilige Geest en precies in dit weekend stuurde hij ons ook zijn geest zoals hij beloofd heeft. "Ik laat jullie niet verweesd achter". "Denk aan mij, bid voor mij, werk met pastoor Guy mee aan de opbouw van onze geloofsgemeenschap en Gods Kerk. Wees eensgezind, leef met elkaar mee en heb elkander lief zoals de Heer het verlangt.<br>
-<br>
-Een speciaal dankwoord aan Pastoor Guy Claus die zijn zieke confrater gedurende zijn ziekte en vooral in zijn laatste dagen heeft bijgestaan en de uitvaartliturgie op een serene wijze voorging. Hij sprak vooral woorden van hoop. Geloof in Gods belofte dat pastoor Eddy verder leeft, dat zijn dood slechts een overgang is naar een nieuw en ander leven. De deur is niet toe; zij staat wagenwijd open voor wie gelooft. Ook dank aan zijn medeconcelebranten, het koor, de mensen die de kerk omtoverden tot een bloemenzee, de uitvaartverzorgers en allen die hun steentje hebben bijgedragen om pastoor Eddy op een gepaste wijze te eren.<br>
-<br>
-Priester, pastoor Eddy, u was een uitzonderlijke herder, we zijn trots op u. We vergeten u nooit. Rust nu zacht in de armen van God en bij al je dierbaren. Wij zeggen geen vaarwel maar tot weerziens bij God. A-Dieu.<br>
-<br>
-Volgens zijn wens is zijn asse aan de aarde toevertrouwd op het kerkhof van Drongen, zijn heimat, bij zijn ouders en broers.<br>
+<i>Fran Minnaert</i>, Nazareth<br>
+<i>Leander Hamers</i>, Gavere<br>
 <br>
 <br>
 <br>
@@ -38,132 +25,11 @@ Volgens zijn wens is zijn asse aan de aarde toevertrouwd op het kerkhof van Dron
 
 
 
-#### PRIESTER GUY CLAUS BENOEMD TOT PASTOOR VAN GROOT-GAVERE
+#### OVERLIJDEN
 <br>
-<figure><img src="images/pb-logo.jpg" alt=" Logo Bisdom Gent © Bisdom Gent" style="max-height: 500px; max-width: 500px;" /><figcaption> Logo Bisdom Gent © Bisdom Gent</figcaption></figure><br>
+We namen in de kerk afscheid van:<br>
 <br>
-<figure><img src="images/pb-bebe.jpg" alt=" Benoemingsbesluit © Bisdom" style="max-height: 500px; max-width: 500px;" /><figcaption> Benoemingsbesluit © Bisdom</figcaption></figure><br>
-<br>
-<figure><img src="images/pb-pg.jpg" alt=" Pastoor Guy © Marc Perseyn" style="max-height: 500px; max-width: 500px;" /><figcaption> Pastoor Guy © Marc Perseyn</figcaption></figure><br>
-<br>
-Op <b>1 juni 2023</b> heeft Bisschop Lode priester Guy Claus ook officieel benoemd tot pastoor van de 6 parochies van Groot-Gavere. Naast de parochies Eke en Nazareth is hij nu benoemd tot pastoor van de gehele nieuwe parochie Gavere-Nazareth.<br>
-<br>
-Pastoor Guy, gefeliciteerd met uw benoeming. Groot-Gavere heet u hartelijk welkom maar eigenlijk bent u hier geen onbekende meer. Al meer dan een jaar gaat u voor in gebeds- en eucharistievieringen.<br>
-<br>
-Uit waardering daarvoor willen we u eerst danken omdat u tijdens de ziekte van pastoor Eddy ook de herderlijke zorg voor de geloofsgemeenschap Groot-Gavere op u hebt genomen wetende dan herder zijn van Gods volk in deze geseculariseerde en gedifferentieerde wereld niet altijd gemakkelijk is. "Pastoor zijn van een geloofsgemeenschap" zou men kunnen omschrijven als "een herder die met zorg zijn schapen rond zich verzamelt en hen helpt groeien in geloof rond de figuur van Jezus Christus". Die herder omringen en steunen in zijn pastorale taak tot opbouw van een levende gemeenschap vraagt bemoediging, geduld en respect van ieder van ons.<br>
-<br>
-Pastoor Guy, wees welkom, voel u hier thuis en u mag op ons rekenen om in verbondenheid te wandelen in het spoor van Jezus Christus. Samen met u als leidsman willen wij meebouwen aan een gemeenschap waar elkeen zich geborgen weet.<br>
-<br>
-<br>
-<br>
-
-
-
-
-
-#### PINKSTERVERSIERING TE EKE
-<br>
-<figure><img src="images/pb-vp1.jpg" alt=" Pinksteren te Eke © Guy Claus" style="max-height: 500px; max-width: 500px;" /><figcaption> Pinksteren te Eke © Guy Claus</figcaption></figure><br>
-<figure><img src="images/pb-vp2.jpg" alt=" Pinksteren te Eke © Guy Claus" style="max-height: 500px; max-width: 500px;" /><figcaption> Pinksteren te Eke © Guy Claus</figcaption></figure><br>
-<figure><img src="images/pb-vp3.jpg" alt=" Pinksteren te Eke © Guy Claus" style="max-height: 500px; max-width: 500px;" /><figcaption> Pinksteren te Eke © Guy Claus</figcaption></figure><br>
-<br>
-<br>
-<br>
-
-
-
-
-
-#### VORMSELVIERING EKE
-<br>
-<figure><img src="images/pb-veke.jpg" alt=" Vormsel te Eke © Hilde Vanmeirhaeghe" style="max-height: 500px; max-width: 500px;" /><figcaption> Vormsel te Eke © Hilde Vanmeirhaeghe</figcaption></figure><br>
-<br>
-Onze wens is dat je minstens één mens mag hebben bij wie je geborgen bent, in wie je vertrouwen stelt, bij wie je thuis kan zijn.<br>
-<br>
-Onze wens is dat je minstens elke dag één fijn moment mag beleven: een ontmoeting, een lach, iets goeds, iets moois, iets teder...<br>
-<br>
-Onze wens is dat je iedere dag iets mag hebben dat je boeit, iets waarbij je herademt, iets waarbij je opnieuw moed krijgt.<br>
-<br>
-Onze wens is dat je minstens één mens mag gelukkig maken door je verschijning, je goedheid, je vriendschap en je medeleven.<br>
-<br>
-Onze wens is dan dat je elke avond zachtjes kan zeggen: het leven is heerlijk, mijn vrienden zijn goed, ik ben tevreden. Dank je God!<br>
-<br>
-Van harte proficiat met jullie H.Vormsel<br>
-<br>
-Vanwege,<br>
-<br>
-Het catecheseteam :<br>
-<br>
-Veerle, Marleen, Ria en Hilde<br>
-<br>
-<br>
-<br>
-
-
-
-
-
-#### NAZARETH-EKE: HALLEBEDEVAART
-<br>
-<figure><img src="images/pb-have.jpg" alt=" Hallebedevaart vertrek © Greta Peil" style="max-height: 500px; max-width: 500px;" /><figcaption> Hallebedevaart vertrek © Greta Peil</figcaption></figure><br>
-<br>
-<figure><img src="images/pb-hage.jpg" alt=" Groepsfoto bij de bedevaartskaars bij aankomst in de basiliek van Halle © Greta Peil" style="max-height: 500px; max-width: 500px;" /><figcaption> Groepsfoto bij de bedevaartskaars bij aankomst in de basiliek van Halle © Greta Peil</figcaption></figure><br>
-<br>
-<figure><img src="images/pb-haan.jpg" alt=" Aansteken van de bedevaartskaars bij het begin van de misviering © Greta Peil" style="max-height: 500px; max-width: 500px;" /><figcaption> Aansteken van de bedevaartskaars bij het begin van de misviering © Greta Peil</figcaption></figure><br>
-<br>
-Pinksterzaterdag, een dag die met stip genoteerd staat in de kalender van de Hallebedevaarders.<br>
-<br>
-Op zaterdag <b>27 mei</b> was het weer zo ver en om 07.30 u. vertrokken 4 wandelaars vol goede moed richting Halle.<br>
-Na 65 km door ons mooie Vlaamse landschap bereikten we rond 00.20 u. onze eindbestemming.<br>
-<br>
-Na het intredelied van de mis van 01.00 u. op de hoogdag van Pinksteren, werd een vertegenwoordiger van Nazareth en van Kuurne door de deken uitgenodigd om de meegebrachte bedevaartskaars aan te steken.<br>
-<br>
-Al onze intenties werden toevertrouwd aan Onze Lieve Vrouw van Halle en na de eucharistieviering, die werd voorgegaan door pastoor deken Guy De Keersmaecker, keerden we (met de wagen) voldaan terug naar onze eigen parochie.<br>
-<br>
-<br>
-<br>
-
-
-
-
-
-#### NAZARETH: RESTAURATIE BEELDENGROEPEN - EINDE IS IN ZICHT
-<br>
-<figure><img src="images/pb-bae.jpg" alt=" Bezoek van Maria aan Elisabeth © Bart Verbeke" style="max-height: 500px; max-width: 500px;" /><figcaption> Bezoek van Maria aan Elisabeth © Bart Verbeke</figcaption></figure><br>
-<br>
-<figure><img src="images/pb-behe.jpg" alt=" De hemelvaart van Maria © Bart Verbeke" style="max-height: 500px; max-width: 500px;" /><figcaption> De hemelvaart van Maria © Bart Verbeke</figcaption></figure><br>
-<br>
-Tot grote vreugde van de Werkgroep mariale Ommegang heeft de restaurateur voorrang gegeven aan onze beelden.<br>
-<br>
-De 2 plaasteren beeldengroepen zijn klaar. Deze beide beelden horen in de nissen in de 's Gravenstraat aan Luk en Chris Van den Broek - Vandecasteele.<br>
-<br>
-De restaurateur heeft deze beelden in dezelfde sfeer als de andere terracottas aangepast. Waarschijnlijk verrassend, maar in de bleke kleuren die de beelden oorspronkelijk hadden, kwam het niet goed.<br>
-<br>
-De laatste beeldengroep, 'De kruisiging en dood van Jezus' uit de kapel in de Ommegangstraat, staat klaar om te herschilderen. Ook dit beeld zal dus heel binnenkort volledig afgewerkt zijn.<br>
-<br>
-<b>Parochianen die hun steentje willen bijdragen aan de restauratie van de laatste 3 beeldengroepen, kunnen dit nog steeds.</b><br>
-<b>Jullie giften zijn welkom op rekening {{<icon class="fa fa-piggy-bank">}}&nbsp;BE38 8905 0415 1972 bij VDK Nazareth. Zoals steeds worden alle giften met volledige discretie behandeld en komen deze giften voor 100 % ten goede aan de restauratie van de beelden.</b><br>
-<br>
-<br>
-<br>
-
-
-
-
-
-#### EKE-NAZARETH: INFORMATIENAMIDDAG OVER VROEGTIJDIGE ZORGPLANNING
-<br>
-Dienstencentrum Nazareth, Samana Nazareth en Gezinsbond Nazareth-Eke organiseren een informatienamiddag over VROEGTIJDIGE ZORGPLANNING. Deze vindt plaats in het WZC Wielkine, Stropstraat 3 te Nazareth op maandag <b>12 juni 2023</b> om 14.00 u.<br>
-<br>
-Herman Debbaut, vrijwilliger bij palliatieve thuiszorg Gent Eeklo, zal meer klaarheid brengen in onderwerpen zoals palliatieve zorg, voorafgaande wilsverklaringen; euthanasie, palliatieve sedatie, verklaring over de wijze van teraardebestelling, enzovoort.<br>
-<br>
-Deze informatienamiddag staat open voor alle belangstellenden en is volledig gratis.<br>
-<br>
-Graag uw aanwezigheid bevestigen tegen <b>8 juni</b> via onderstaand contact.<br>
-<br>
-Contact via Annick Geiregat<br>
-Tel: {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:0474309902">0474 30 99 02</a><br>
-Mail: {{<icon class="fa fa-envelope">}}&nbsp;<a href="annick.grt@gmail.com">annick.grt@gmail.com</a><br>
+<i>Gabriëlla Marissen</i>, 8 8j., weduzwe Louis De Deken, Nazareth<br>
 <br>
 <br>
 <br>
@@ -251,6 +117,34 @@ HOU ZEKER REKENING MET DEZE WIJZIGING!<br>
 Je dromen najagen met hard werken is de beste manier om ze uit te laten komen Je hoeft alleen maar in jezelf te geloven.<br>
 <br>
 <figure><img src="images/pb-duim.jpg" alt=" We duimen voor je © Muurkranten" style="max-height: 500px; max-width: 500px;" /><figcaption> We duimen voor je © Muurkranten</figcaption></figure><br>
+<br>
+<br>
+<br>
+
+
+
+
+
+#### BEDEVAART NAAR BANNEUX
+<br>
+<figure><img src="images/pb-ban.jpg" alt=" Bedevaart naar Banneux © Marc Perseyn" style="max-height: 500px; max-width: 500px;" /><figcaption> Bedevaart naar Banneux © Marc Perseyn</figcaption></figure><br>
+<br>
+De Mariabedevaartplaats van Banneux op ongeveer 20 kilometer van Luik, daar is het dat 90 jaar geleden Maria acht keer verscheen aan een meisje van 11 jaar, Mariette Beco. We gaan dit jaar op zondag <b>20 augustus 2023</b> naar Banneux.<br>
+<br>
+Met zegenende handen staat de 'Maagd der Armen' in Banneux de mensen op te wachten.<br>
+Jaarlijks trekken zo'n 500.000 pelgrims naar haar toe. In een park met kapellen en gebedsplaatsen is er voor eenieder ruimte om zich alleen in stilte of samen met een groep in gebed terug te trekken.<br>
+De Maagd Maria verscheen in 1933 aan Mariette Beco en vroeg daarbij om de bouw van een kapel. Die werd nog in 1933 gebouwd op de plaats van de verschijningen. Later werd er ook een basiliek gebouwd.<br>
+In Banneux is ook een geneeskrachtige bron die Maria aan Mariette toonde.<br>
+Elke dag kunnen pelgrims in Banneux terecht voor een H. Mis, ziekenzegening, stille aanbidding, biecht en het rozenkransgebed.<br>
+Ook vanuit onze parochies Nazareth-Eke-Gavere-Asper, De Pinte, St-Martens-Latem, Kruisem, Oudenaarde, Aalter en Deinze trekken er gelovigen naar Banneux.<br>
+<br>
+Dit jaar willen wij opnieuw met een autocar naar Banneux gaan.<br>
+De bedevaart gaat door op zondag <b>20 augustus 2023</b>, voor een ganse dag. De prijs bedraagt 59 EUR en U kan dit storten op rekening <b>{{<icon class="fa fa-piggy-bank">}}&nbsp;BE34 7374 2122 7290</b>. De Betaling geldt als inschrijving. In de prijs in inbegrepen: het vervoer met een autocar, de fooi van de chauffeur, een warm middagmaal, soep, hoofdgerecht en dessert met water op tafel, ( andere dranken NIET inbegrepen) boekje met teksten van de bedevaart. Inschrijven tot uiterlijk <b>10 augustus</b>.<br>
+<br>
+<b>Inlichtingen te bekomen bij:</b><br>
+<br>
+Perseyn Marc, Oudenaardseheerweg 184, 9810 Nazareth Tel. 09/385.57.31 - 0475/ 61.20.62 of via mail: {{<icon class="fa fa-envelope">}}&nbsp;<a href="marc.perseyn@skynet.be">marc.perseyn@skynet.be</a><br>
+Byn Annie, Markt 15/2001, 9890 Gavere Tel. {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:093841978">09 384 19 78</a><br>
 <br>
 <br>
 <br>

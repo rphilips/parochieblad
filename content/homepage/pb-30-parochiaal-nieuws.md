@@ -11,59 +11,11 @@ header_menu: true
 
 
 
-#### DOOPSEL
-<br>
-Hebben het doopselsacrament ontvangen:<br>
-<br>
-<i>Fran Minnaert</i>, Nazareth<br>
-<i>Leander Hamers</i>, Gavere<br>
-<br>
-<br>
-<br>
-
-
-
-
-
 #### OVERLIJDEN
 <br>
 We namen in de kerk afscheid van:<br>
 <br>
-<i>Gabriëlla Marissen</i>, 8 8j., weduzwe Louis De Deken, Nazareth<br>
-<br>
-<br>
-<br>
-
-
-
-
-
-#### 24 JUNI: GEBOORTE VAN JOHANNES DE DOPER
-<br>
-Op deze dag herdenkt de Rooms-Katholieke kerk de geboorte van Johannes de Doper. Volgens het evangelie van Lucas was hij de zoon van de priester Zacharias en Elisabet, de nicht van Jezus' moeder Maria.:<br>
-<br>
-Johannes de Doper was ten tijde van Jezus een boeteprediker in de woestijn van Juda. Hij doopte mensen met water om hen van zonden te reinigen. Hij was de eerste mens die Jezus aanwees als de Messias, de langverwachte redder van het volk van Israël. Daarom wordt hij de Voorloper van Christus genoemd.<br>
-<br>
-Johannes werd onthoofd op last van Herodes Antipas die hij van overspel met Herodias (een bekende vrouw uit de familie van de Herodianen) had beschuldigd. Herodes voelde zich beledigd en liet Johannes gevangen nemen. Hij had hem eigenlijk willen laten doden, maar hij durfde dat niet, bang dat het volk dan in opstand zou komen. Toen de dochter van Herodias op een dag de koning door haar verleidelijke dans had vermaakt, vroeg Herodes Antipas hoe hij haar zou kunnen belonen. Door haar moeder opgestookt, zei ze: "Geef mij hier op een schotel het hoofd van Johannes de Doper." De koning werd bedroefd, maar vanwege zijn eed en omwille van zijn gasten gaf hij het bevel om het haar te geven. En hij liet Johannes in de gevangenis onthoofden. Zijn hoofd werd op een schotel gebracht en aan het meisje gegeven, en zij bracht het naar haar moeder. Zijn leerlingen kwamen het lijk halen en ze begroeven het, en ze gingen Jezus op de hoogte stellen. Toen Jezus dat hoorde, week Hij met een boot uit naar een eenzame plaats om alleen te zijn (Mt 14: 8-13).<br>
-<br>
-<figure><img src="images/pb-jdj.jpg" alt=" Johannes doopt Jezus © Dionysiusparochie" style="max-height: 500px; max-width: 500px;" /><figcaption> Johannes doopt Jezus © Dionysiusparochie</figcaption></figure><br>
-<br>
-<br>
-<br>
-
-
-
-
-
-#### 29 JUNI - FEEST VAN DE APOSTELEN PETRUS EN PAULUS
-<br>
-<b>Wie waren zij?</b><br>
-<br>
-PETRUS was een van de twaalf apostelen en heette oorspronkelijk Simon. Hij was de broer van Andreas en visser van beroep. Geboren in Betsaïda woonde hij ten tijde van zijn ontmoeting met Jezus in Kafarnaüm. Hij was gehuwd. Met Jacobus en Johannes behoorde hij tot de drie bevoorrechte leerlingen die getuigen mochten zijn van Jezus' glorie (de opwekking van Jaïrus' dochtertje, de gedaanteverandering op de berg Thabor) en van zijn vernedering in de hof van Olijven. Petrus verloochende daar Jezus tot driemaal toe. Toch gaf de verrezen Heer hem de opdracht zijn schapen te weiden. Hij kreeg daarmee de functie van "Rots" toegezegd waarop de gelovige gemeenschap moet gefundeerd zijn. Uit de Handelingen van de Apostelen blijkt ook duidelijk dat hij de leiding van de vroege kerk op zich nam. Net als Paulus verbleef Petrus in Rome. Hij stierf er de marteldood, volgens de overlevering de kruisdood tijdens de vervolging door keizer Nero (64-67 na Christus).<br>
-<br>
-PAULUS, wiens Joodse naam Saul was, werd in Tarsus (Zuid-Oost Turkije) geboren. Paulus heeft aanvankelijk het christendom hartgrondig verfoeid en vervolgd. Maar op weg naar Damascus voelde hij zich door de genade van God gegrepen; daar verscheen hem, zoals hij het later zou uitdrukken, de Heer, die hem riep tot het geloof en het apostelschap onder de "heidenvolken". Deze belangrijke ommekeer had plaats enkele jaren na de dood van Jezus. Paulus ondernam drie grote missiereizen. Kort voor het jaar 50 nam hij ook deel aan het apostelconcilie van Jeruzalem, waar Paulus' zending onder de heidenen officieel werd erkend. Omstreeks Pinksteren in het jaar 56 werd hij te Jeruzalem door de Romeinen gearresteerd en twee jaar te Caesarea gevangen gehouden. Na een beroep op de keizer werd hij naar Rome overgebracht waar hij nog twee jaar in gevangenschap doorbracht en onder keizer Nero de marteldood stierf.<br>
-<br>
-<figure><img src="images/pb-pepa.jpg" alt=" Petrus en Paulus © Priorij Thabor" style="max-height: 500px; max-width: 500px;" /><figcaption> Petrus en Paulus © Priorij Thabor</figcaption></figure><br>
+<i>Roger Demeyer</i>, 92 j., weduwnaar Christiane Begyn en Lucienne De Boever<br>
 <br>
 <br>
 <br>
@@ -112,6 +64,53 @@ Voor <b>Asper</b> via mail {{<icon class="fa fa-envelope">}}&nbsp;<a href="cjung
 
 
 
+#### 23 JUNI - DAG VAN DE MANTELZORG
+<br>
+<figure><img src="images/pb-mantel.jpg" alt=" Mantelzorger © Coponcho" style="max-height: 500px; max-width: 500px;" /><figcaption> Mantelzorger © Coponcho</figcaption></figure><br>
+<br>
+<i>Beste mantelzorger,</i><br>
+<br>
+<i>Al vind jij de zorg voor een ander nog zo vanzelfsprekend: ze is dat eigenlijk niet. Wat jij doet is écht bijzonder. Daarom zetten we je op de Dag van de Mantelzorg in de schijnwerpers. Om je te erkennen, te bedanken en aandacht te vragen voor wat je doet. Want als mantelzorger ben je natuurlijk niet alleen 'zorger', maar vaak ook geliefde, steunpilaar, belangenbehartiger, zorgcoördinator, en nog zoveel meer. Het combineren van al die rollen is niet simpel, en toch doe jij het. Dat maakt van jou een (nog te vaak onzichtbare) held in onze zorg en samenleving.</i><br>
+<br>
+<i>Dus dankjewel, mantelzorger. Jij verdient wel hónderd pluimen.</i><br>
+<br>
+<br>
+<br>
+
+
+
+
+
+#### SINT-MARTINUSOMMEGANGEN IN ASPER ZIJN TERUG
+<br>
+<b>8 & 9 juli 2023</b><br>
+<br>
+<figure><img src="images/pb-om1.jpg" alt=" Ommegang 1 © J. Tijtgat" style="max-height: 500px; max-width: 500px;" /><figcaption> Ommegang 1 © J. Tijtgat</figcaption></figure><br>
+<br>
+<figure><img src="images/pb-mika.jpg" alt=" mis aan de kapel 2 © J. Tijtgat" style="max-height: 500px; max-width: 500px;" /><figcaption> mis aan de kapel 2 © J. Tijtgat</figcaption></figure><br>
+<br>
+<figure><img src="images/pb-ver.jpg" alt=" Verenigingen © J. Tijtgat" style="max-height: 500px; max-width: 500px;" /><figcaption> Verenigingen © J. Tijtgat</figcaption></figure><br>
+<br>
+De traditie van ommegangen - in meerdere dorpen in de Vlaamse Ardennen - is overeind gebleven dankzij de inzet van veel plaatselijke enthousiastelingen. Een stuk immaterieel religieus erfgoed. Ook zo in Asper, waar een kleine werkgroep de traditie levend(ig) wil houden. Het vraagt anno 2023 misschien enig doorzettingsvermogen om de Sint-Martinusommegangen in ere te houden. Maar voor vele Asperlingen is het een niet te missen jaarlijks terugkerende afspraak.<br>
+<br>
+Op zaterdag <b>8 juli 2023</b> vertrekken de ruiters en bedevaarders om 07.00 u. stipt aan de kerk van Asper voor de eeuwenoude ommegang. Een tocht langs de grenzen van de parochie is dus meteen een fikse ochtendwandeling. Op het parkoers zijn de veldkapellen door de omwonenden versierd en voor menig venster trekt een afbeelding van Sint Martinus de aandacht van de voorbijtrekkende groep. Dat de ommegang voor de gehele parochie betekenisvol is, blijkt ook uit de aanwezigheid van de verenigingsvlaggen aan de Martinuskapel op de Stationswijk. Wie de volledige tocht meemaakt en na een paar uur stappen terug bij de kerk aankomt, voelt niet zozeer vermoeidheid maar vooral voldoening de volledige ommegang 'gedaan' te hebben! Meteen een oproep aan alle sportieve en andere medeparochianen. Elk jaar mogen wij nieuwe deelnemers begroeten: ben jij er dit jaar ook bij?<br>
+<br>
+Op zondag <b>9 juli 2023</b> geven de plaatselijke ruiters en hun vrienden uit naburige gemeentes kleur aan de feestelijke ommegang. Rond 16.00 u. komen de ruiters, begeleid door de plaatselijke Sint-Ceciliafanfare, aan in de dorpskern. De eindparade van de verschillende ruiters en koetsiers rond de kerk, is voor velen een schouwspel dat kan bekoren. Ook voor jou?<br>
+<br>
+<b>Martinus met kapellen</b><br>
+Het woord kapel is afgeleid van het Latijnse cappa (= mantel of cape), verkleinwoord capella en verwijst naar de mantel van Sint Martinus, bisschop van Tours (316-397). Martinus houwde in zijn periode als Romeins officier zijn rode mantel in twee gelijke delen en gaf een halve mantel weg aan een arme bedelaar die zijn pad kruiste bij de stadspoort van Amiens. Omdat de mantel deels eigendom was van Rome, de 'werkgever' van Martinus, kon hij slechts zijn eigen helft weggeven. Volgens de legende was de bedelaar een verschijning van Jezus en zit hier een verwijzing naar Mattheus 25;36 in: "Ik was naakt en gij hebt Mij gekleed". Het tafereel wordt mooi gebracht onder vorm van een waardevol houten beeld dat vooraan in de kerk van Asper een prominente plaats heeft.<br>
+<br>
+De weggeschonken halve mantel werd als een relikwie beschouwd en de ruimte waarin de mantel werd bewaard ging capella of kapel heten. Vanaf de 7e eeuw werd kapel een naam voor een (klein) bedehuis.<br>
+<br>
+Onze Germaanse voorouders vereerden Wodan en andere goden in bijzondere bomen in het woud. Toen de eerste christen geloofsverkondigers in onze contreien aankwamen, hakten ze deze bomen in hun grote bekeringsijver om. Tot grote woede dikwijls van de plaatselijke bevolking. Gregorius de Grote, paus van 590 tot 605, was zeer pragmatisch aangelegd en wist de oude gewoonte te verzoenen met de nieuwe devotie. Hij liet aan de bomen nissen met beelden van heiligen hangen, zodat de verering van de bomen veranderde in een heiligenverering. Zo'n houten nissen aan de bomen noemt men eveneens kapellen.<br>
+<br>
+<br>
+<br>
+
+
+
+
+
 #### DE VAKANTIE STAAT WELDRA VOOR DE DEUR
 <br>
 <figure><img src="images/pb-kom.jpg" alt=" Komkommertijd © Plus magazine" style="max-height: 500px; max-width: 500px;" /><figcaption> Komkommertijd © Plus magazine</figcaption></figure><br>
@@ -120,8 +119,7 @@ Ook de drukkerij Halewijn neemt verlof. Wat betekent dit voor misintenties en me
 <br>
 Een kort overzichtje.<br>
 <br>
-<b>Nummer 23</b> is het nummer dat u vandaag in handen heeft.<br>
-<b>Nummer 24 en 25</b> verschijnen nog zoals gewoonlijk.<br>
+<b>Nummer 25</b> is het nummer dat u vandaag in handen heeft.<br>
 <br>
 <b>Nummer 26</b> verschijningsdatum <b>28 juni 2023</b><br>
 bevat de intenties en mededelingen van <b>1 juli 2023</b> tot en met <b>21 juli 2023</b><br>
@@ -138,19 +136,6 @@ meedelen aan de redactie uiterlijk <b>30 juni 2023</b><br>
 <b>Nummer 32</b> is terug volgens de gewone regeling<br>
 <br>
 HOU ZEKER REKENING MET DEZE WIJZIGING!<br>
-<br>
-<br>
-<br>
-
-
-
-
-
-#### SUCCES MET DE EXAMENS
-<br>
-Je dromen najagen met hard werken is de beste manier om ze uit te laten komen Je hoeft alleen maar in jezelf te geloven.<br>
-<br>
-<figure><img src="images/pb-duim.jpg" alt=" We duimen voor je © Muurkranten" style="max-height: 500px; max-width: 500px;" /><figcaption> We duimen voor je © Muurkranten</figcaption></figure><br>
 <br>
 <br>
 <br>

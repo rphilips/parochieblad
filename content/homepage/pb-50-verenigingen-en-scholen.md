@@ -28,27 +28,10 @@ Inschrijven tegen <b>17 juni</b> bij Ann Bergez, Haagstraat 70 , Asper. Tel.: {{
 
 #### FERM ASPER
 <br>
-<b>Donderdag 15 juni</b> om 19.30 u. Start aan de voorkant van de kerk te Asper: Wekelijkse wandeltocht (+ 5 km)<br>
-<b>Dinsdag 20 juni</b> om 14.00 u. Start bij bestuurslid Micheline (Burgemeester P.Ceuterickstraat 4, Asper): Wekelijkse wandeltocht (+ 5 km)<br>
 <b>Donderdag 22 juni</b> om 19.30 u. Start aan de voorkant van de kerk te Asper: Wekelijkse wandeltocht (+ 5 km)<br>
+<b>Dinsdag 27 juni</b> om 14.00 u. Start bij bestuurslid Micheline (Burgemeester P.Ceuterickstraat 4, Asper): Wekelijkse wandeltocht (+ 5 km)<br>
+<b>Donderdag 29 juni</b> om 19.30 u. Start aan de voorkant van de kerk te Asper: Wekelijkse wandeltocht (+ 5 km)<br>
 <br>
-<br>
-<br>
-
-
-
-
-
-#### FERM SEMMERZAKE
-<br>
-Kookdemo <i>"Klassiek gezonder"</i> op maandag <b>19 juni 2023</b> om 19.00 u. (nieuwe datum) in de Borgwalhoeve, Leenstraat, 31, Vurste.<br>
-<br>
-Van echte klassiekers of populaire gerechten maken we een lekkere, gezonde variant. Alles even lekker maar perfect passend in een gezonde(re) levensstijl.<br>
-<br>
-We mogen uitgebreid proeven en krijgen de recepten mee naar huis.<br>
-<br>
-Ook niet-leden zijn welkom !<br>
-Info en inschrijven vóór maandag <b>12 juni</b> via {{<icon class="fa fa-envelope">}}&nbsp;<a href="FermSemmerzake@gmail.com">FermSemmerzake@gmail.com</a> of bij Rita Nachtergaele {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:093841735">09 384 17 35</a>.<br>
 <br>
 <br>
 <br>
@@ -59,17 +42,16 @@ Info en inschrijven vóór maandag <b>12 juni</b> via {{<icon class="fa fa-envel
 
 #### LDC 'DEN OEVER' - KLOOSTERSTRAAT - GAVERE
 <br>
-<b>Woensdag 14 juni</b> om 14.00 u.: Workshop "Koken met elk budget"<br>
-<b>Donderdag 15 juni</b> om 09.00 u.: Spaans op reis 2A ism Kisp<br>
-<b>Donderdag 15 juni</b> om 10.00 u.: Sacraal dansen<br>
-<b>Maandag 19 juni</b> om 14.00 u.: Kaarting i.s.m. OKRA<br>
-<b>Dinsdag 20 juni</b> om 10.00 u.: Yoga<br>
-<b>Dinsdag 20 juni</b> om 14.00 u.: Lijndansen, Portrettekenen, Rummikub<br>
 <b>Woensdag 21 juni</b> om 08.30 u.: Zomers ontbijt<br>
 <b>Woensdag 21 juni</b> om 14.00 u.: Diamond painting<br>
 <b>Donderdag 22 juni</b> om 09.00 u.: Spaans op reis i.s.m. KISP<br>
 <b>Donderdag 22 juni</b> om 10.00 u.: Sacraal dansen<br>
 <b>Donderdag 22 juni</b> om 14.00 u.: Bonte baknamiddag: pannenkoeken<br>
+<b>Maandag 26 juni</b> om 14.00 u.: Vragen staat vrij - muzikale namiddag<br>
+<b>Dinsdag 27 juni</b> om 10.00 u.: Yoga<br>
+<b>Dinsdag 27 juni</b> om 14.00 u.: Lijndansen, Portrettekenen, Rummikub<br>
+<b>Woensdag 28 juni</b> om 14.00 u.: Bingo<br>
+<b>Donderdag 29 juni</b> om 10.00 u.: Sacraal dansen<br>
 <br>
 <br>
 <br>
@@ -80,11 +62,13 @@ Info en inschrijven vóór maandag <b>12 juni</b> via {{<icon class="fa fa-envel
 
 #### OKRA TREFPUNT EKE
 <br>
-<b>Donderdag 15 juni</b> om 14.00 u. in CC De Brouwerij: Lijndans en rummikub<br>
 <b>Woensdag 21 juni</b> om 14.00 u. in CC De Brouwerij: Kaarten<br>
 <b>Donderdag 22 juni</b> om 09.00 u. in CC De Brouwerij: Lijndans<br>
 <b>Donderdag 22 juni</b> om 13.45 u. vertrek aan de kerk: Wandelen en fietsen<br>
 <b>Vrijdag 23 juni</b> om 07.30 u. vertrek aan de kerk groep 2: Daguitstap Nieuwpoort - Loppem<br>
+<b>Maandag 26 juni</b> om 13.30 u. in CC De Brouwerij: Crea-atelier<br>
+<b>Dinsdag 27 juni</b> om 14.00 u. in Sporthal Nazareth: Petanque<br>
+<b>Donderdag 29 juni</b> om 14.00 u. in CC De Brouwerij: Lijndans en rummikub<br>
 <br>
 <br>
 <br>
@@ -97,10 +81,12 @@ Info en inschrijven vóór maandag <b>12 juni</b> via {{<icon class="fa fa-envel
 <br>
 Activiteitenkalender<br>
 <br>
-<b>Woensdag 14 juni</b> om 14.00 u. op parking achter de sporthal: Verrassingsreis<br>
-<b>Donderdag 15 juni</b> om 09.15 u. op parking achter de sporthal: Dagfietstocht<br>
-<b>Dinsdag 20 juni</b> om 14.00 u. aan de Sporthal: Petanque<br>
 <b>Donderdag 22 juni</b> om 14.00 u. in cc Het Centrum: Lijndansen<br>
+<b>Maandag 26 juni</b> om 09.30 u. in kleine zaal in cc Het Centrum: Bestuursvergadering<br>
+<b>Dinsdag 27 juni</b> om 14.00 u. in cc Het Centrum: Kaarten, rummikub, crea<br>
+<b>Donderdag 29 juni</b> om 14.00 u. op parking achter de sporthal: Dagfietstocht OKRA<br>
+<br>
+<br>
 <br>
 !!! Voor meer info: tel. {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:093855371">09 385 53 71</a><br>
 <br>
@@ -127,6 +113,39 @@ Simpele kleine oefeningen sluiten aan bij jouw noden als mantelzorger. Je leert 
 <br>
 Deze namiddag wordt jullie gratis aangeboden en elke mantelzorger ontvangt een attentie.<br>
 Inschrijven kan tot uiterlijk <b>15 juni 2023</b> bij Lydie Vanderstichelen, Leebeeklaan 34, 9890 Asper, tel. {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:093841423">09 384 14 23</a>.<br>
+<br>
+<br>
+<br>
+
+
+
+
+
+#### SAMANA ASPER: UITSLAG TOMBOLA
+<br>
+<b>Samana Asper - Uitslag trekking solidariteitsactie 2023</b><br>
+<br>
+De winnende nummers zijn binnen: gelieve contact te nemen met Rita Petereyns ({{<icon class="fa fa-envelope">}}&nbsp;<a href="ritapetereyns@gmail.com">ritapetereyns@gmail.com</a>)<br>
+<br>
+De openbare trekking van de nationale tombola Samana 2023 ten bate van chronisch zieken<br>
+en georganiseerd door Samana, vond plaats op vrijdag <b>9 juni 2023</b>.<br>
+<br>
+<br>
+<br>
+
+
+
+
+
+#### SAMANA NAZARETH
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+Info {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:093855069">09 385 50 69</a><br>
 <br>
 <br>
 <br>

@@ -57,7 +57,7 @@ header_menu: true
 </dl>
 
 ##### Zondag 2 juli 2023  
-<dl><dt>&nbsp;</dt><dd>13e ZONDAG DOOR HET JAAR<br></dd><dt><b>09.00 u. Gavere:</b></dt><dd>Eucharistie<br><i>Lector: Karel Hubau</i></dd>
+<dl><dt>&nbsp;</dt><dd>13e ZONDAG DOOR HET JAAR<br></dd><dt><b>09.00 u. Gavere:</b></dt><dd>Ter ere van Onze-Lieve-Vrouw Altijddurende bijstand<br><i>Lector: Karel Hubau</i></dd>
 <dt><b>10.30 u. Nazareth:</b></dt><dd>Eucharistie<br><i>Lector: Patrick Decock</i></dd>
 </dl>
 <br>

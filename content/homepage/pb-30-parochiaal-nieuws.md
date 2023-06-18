@@ -81,9 +81,7 @@ Voor <b>Asper</b> via mail {{<icon class="fa fa-envelope">}}&nbsp;<a href="cjung
 
 
 
-#### SINT-MARTINUSOMMEGANGEN IN ASPER ZIJN TERUG
-<br>
-<b>8 & 9 juli 2023</b><br>
+#### 8 & 9 JULI 2023: SINT-MARTINUSOMMEGANGEN IN ASPER ZIJN TERUG
 <br>
 <figure><img src="images/pb-om1.jpg" alt=" Ommegang 1 © J. Tijtgat" style="max-height: 500px; max-width: 500px;" /><figcaption> Ommegang 1 © J. Tijtgat</figcaption></figure><br>
 <br>

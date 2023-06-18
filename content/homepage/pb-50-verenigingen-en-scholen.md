@@ -68,7 +68,9 @@ Inschrijven tegen <b>17 juni</b> bij Ann Bergez, Haagstraat 70 , Asper. Tel.: {{
 <b>Vrijdag 23 juni</b> om 07.30 u. vertrek aan de kerk groep 2: Daguitstap Nieuwpoort - Loppem<br>
 <b>Maandag 26 juni</b> om 13.30 u. in CC De Brouwerij: Crea-atelier<br>
 <b>Dinsdag 27 juni</b> om 14.00 u. in Sporthal Nazareth: Petanque<br>
-<b>Donderdag 29 juni</b> om 14.00 u. in CC De Brouwerij: Lijndans en rummikub<br>
+<b>Donderdag 29 juni</b> om 14.00 u. optreden in WZC de Lichtervelde: Lijndans<br>
+<br>
+<br>
 <br>
 <br>
 <br>

@@ -10,5 +10,5 @@ header_logo: "images/favicon.png"
 #
 # Headers are safeHTML, you can use HTML tags such as b,i,u,br
 header_headline: "Parochieblad Gavere - Nazareth"
-header_subheadline: "<b>woensdag 28 juni–zondag 23 juli</b>"
+header_subheadline: "<b>woensdag 19 juli–zondag 13 augustus</b>"
 ---

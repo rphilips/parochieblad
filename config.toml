@@ -2,7 +2,7 @@ baseURL = 'https://rphilips.github.io/parochieblad'
 disableKinds = ["section", "taxonomy", "term", "RSS", "robotsTXT"]
 languageCode = 'nl'
 defaultContentLanguage = 'nl'
-title = 'Parochieblad Gavere - Nazareth: woensdag 19 juli–zondag 13 augustus'
+title = 'Parochieblad Gavere - Nazareth: woensdag 9 augustus–zondag 20 augustus'
 theme = 'hugo-scroll'
 publishDir = "docs"
 
@@ -12,7 +12,7 @@ publishDir = "docs"
     images = ["images/cover-image.jpg"]
     title_guard = false
     title = 'Parochieblad Gavere - Nazareth'
-    description = "Parochieblad Gavere - Nazareth voor de periode van woensdag 19 juli–zondag 13 augustus"
+    description = "Parochieblad Gavere - Nazareth voor de periode van woensdag 9 augustus–zondag 20 augustus"
     copyright = "© Guy Claus"
     hidedesignbyline = true
 

@@ -16,6 +16,11 @@ header_menu: true
 <b>Woensdag 9 augustus</b> om 19.00 u. Start aan de groene zone in de Sint-Janslaan: Fietstocht<br>
 <b>Woensdag 16 augustus</b> om 19.00 u. Start aan de groene zone in de Sint-Janslaan: Fietstocht<br>
 <br>
+<b>Daguitstap met de fiets op donderdag 31 augustus</b><br>
+<br>
+Vertrek op het Carlos Dierickxplein om 09.15 u. voor een fietstocht richting Kruisem met een bezoek aan het wijndomein met rondleiding en proeverij.<br>
+Middagmaal is voorzien bij Foodbar Tante Sarah gevolgd door een fietstocht in de streek met stop bij 'Toffenof'. Inschrijven en inlichtingen bij Christiane Loontjens op {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:0479469650">0479 46 96 50</a> of via {{<icon class="fa fa-envelope">}}&nbsp;<a href="Loontjens.chris@telenet.be.">Loontjens.chris@telenet.be.</a><br>
+<br>
 <br>
 <br>
 
@@ -27,6 +32,8 @@ header_menu: true
 <br>
 <b>Woensdag 9 augustus</b> om 14.00 u.: Diamond painting<br>
 <b>Donderdag 10 augustus</b> om 14.00 u.: Fietstocht<br>
+<b>Maandag 14 augustus</b> om 14.00 u.: IJssalon: Coupe aardbeien<br>
+<b>Woensdag 16 augustus</b> om 08.30 u.: Ontbijt<br>
 <br>
 <br>
 <br>
@@ -115,6 +122,25 @@ ophalen.<br>
 <br>
 <br>
 Info {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:093855069">09 385 50 69</a><br>
+<br>
+<br>
+<br>
+
+
+
+
+
+#### VRIJE BASISSCHOOL NAZARETH: INSCHRIJVINGEN
+<br>
+<figure><img src="images/pb-vbsn.jpg" alt=" Vrije Basisschool Nazareth: inschrijvingen © VBS Nazareth" style="max-height: 500px; max-width: 500px;" /><figcaption> Vrije Basisschool Nazareth: inschrijvingen © VBS Nazareth</figcaption></figure><br>
+Vanaf vrijdag <b>18 augustus</b> kan je op onze Vrije Basisschool Nazareth terecht tussen 14 en 17 uur. Of neem telefonisch contact op: {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:093854288">09 385 42 88</a> of via mail : {{<icon class="fa fa-envelope">}}&nbsp;<a href="directie@vbsnazareth.be">directie@vbsnazareth.be</a><br>
+<br>
+<b>Inschrijven voor het schooljaar 2023-2024</b><br>
+<br>
+Heeft u een peuter die dit schooljaar de eerste stapjes naar school zet ? Of een kleuter of leerling lagere school ? Aarzel niet om ons te contacteren.<br>
+Of kom langs op de onthaalmomenten.<br>
+<br>
+Peuteronthaal instappers op <b>1 september</b> op: dinsdag <b>29 augustus 2023</b> tussen 18.00 en 19.30 uur / tevens onthaal voor alle kleuters en leerlingen 1ste leerjaar.<br>
 <br>
 <br>
 <br>

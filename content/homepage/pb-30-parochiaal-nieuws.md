@@ -224,7 +224,7 @@ Niet alleen op zon- en feestdagen kunnen wij ons laten voeden door het Woord van
 
 
 
-#### HET LICHT VAN DE GODSLAMP BRANDT ZOALS VOORHEEN
+#### KERK GAVERE: HET LICHT VAN DE GODSLAMP BRANDT ZOALS VOORHEEN
 <br>
 Als de elektriciteit uitvalt dan pas beseffen we hoezeer we ervan afhankelijk zijn. Geen licht, geen verwarming, (garage)poort gaat niet open, koken wordt een probleem, uurwerken vallen stil, ... Niet alleen voor gezinnen wordt het dan behelpen maar ook het kerkgebouw deelt in de brokken.<br>
 <br>
@@ -245,14 +245,28 @@ Dit gegeven doet ons nogmaals beseffen hoe belangrijk de ontelbare vrijwilligers
 
 
 
-#### INSCHRIJFAVOND VORMELINGEN EN EERSTE COMMUNICANTEN 2024 - WOENSDAG 13 SEPTEMBER - KERK GAVERE
+#### KERK GAVERE: INSCHRIJFAVOND VORMELINGEN EN EERSTE COMMUNICANTEN 2024 - WOENSDAG 13 SEPTEMBER - KERK GAVERE
 <br>
-De inschrijfavond voor de vormelingen en de eerste communicanten 2024 gaat door in de kerk van Gavere op woensdag <b>13 september</b>.<br>
+De inschrijfavond voor de vormelingen en de eerste communicanten 2024 gaat door in de kerk van Gavere op woensdag <b>13 september 2023</b>.<br>
 <br>
 <b>Planning:</b><br>
 <br>
-- 	19 uur: duiding catechesetraject voor de eerste communicanten<br>
+- 19 uur: duiding catechesetraject voor de eerste communicanten<br>
 - 20 uur: duiding catechesetraject voor de vormelingen<br>
+<br>
+<b>Data eerste communie:</b><br>
+<br>
+- kerk Asper: zaterdag <b>4 mei</b> - 15 uur<br>
+- kerk Gavere: zondag <b>5 mei</b> - 9 uur<br>
+Catechisten: Gavere: Liesbeth Verholen {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:0473754514">0473 75 45 14</a> - Asper: Caroline De Paepe {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:0470631694">0470 63 16 94</a><br>
+<br>
+<b>Data Vormsel:</b><br>
+<br>
+- kerk Asper: zaterdag <b>11 mei</b> - 15 uur<br>
+- kerk Gavere: zondag <b>12 mei</b> - 9 uur<br>
+<br>
+Catechisten: Gavere: Liesbeth Verholen {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:0473754514">0473 75 45 14</a> - Rita Coryn {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:093846768">09 384 67 68</a><br>
+Asper: Chris Jungbluth {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:0474959907">0474 95 99 07</a> - Christiane Devenyns {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:093843313">09 384 33 13</a><br>
 <br>
 <b>Je kan inschrijven:</b><br>
 <br>

@@ -28,6 +28,21 @@ Middagmaal is voorzien bij Foodbar Tante Sarah gevolgd door een fietstocht in de
 
 
 
+#### FERM EKE GAAT FIETSEN !
+<br>
+<figure><img src="images/pb-feke.jpg" alt=" Ferm Eke fiets © Ferm Eke" style="max-height: 500px; max-width: 500px;" /><figcaption> Ferm Eke fiets © Ferm Eke</figcaption></figure><br>
+<br>
+Op zondag <b>27 augustus</b> organiseert Ferm Eke haar jaarlijkse gezinsfietstocht. Er is vrij vertrek van 13.30 u. tot 14.00 u. vanop het kerkplein van Eke voor een landelijke rit van 37 km om en rond Zottegem. Tussenin worden we verwend met 3 verfrissende drankstops met sneukels. Op de eindplaats in de Brouwerij wacht ons vanaf 18.00 u. een heerlijk buffet met warme beenhesp en groentjes. Iedereen is welkom aan het tarief van 22 EUR voor leden, 25 EUR voor niet-leden, kinderen < 12 : 10 EUR , kinderen < 6 : gratis<br>
+<br>
+Info en inschrijvingen bij Rita H voor <b>20 augustus</b> : {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:0498651087">0498 65 10 87</a> of buckens_paul@hotmail.com. Inschrijving pas definitief na betaling op rekeningnr <b>{{<icon class="fa fa-piggy-bank">}}&nbsp;BE66 7374 0807 9043</b>. Plaatsen zijn beperkt !<br>
+<br>
+<br>
+<br>
+
+
+
+
+
 #### LDC 'DEN OEVER' - KLOOSTERSTRAAT - GAVERE
 <br>
 <b>Woensdag 9 augustus</b> om 14.00 u.: Diamond painting<br>

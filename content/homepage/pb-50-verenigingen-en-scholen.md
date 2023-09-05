@@ -11,30 +11,25 @@ header_menu: true
 
 
 
-#### FERM ASPER
+#### DAVIDSFONDS NAZARETH-EKE: APEROWANDELING
 <br>
-<b>Woensdag 9 augustus</b> om 19.00 u. Start aan de groene zone in de Sint-Janslaan: Fietstocht<br>
-<b>Woensdag 16 augustus</b> om 19.00 u. Start aan de groene zone in de Sint-Janslaan: Fietstocht<br>
+<figure><img src="images/pb-apero.jpg" alt=" Aperitiefwandeling © Davidsfonds Nazareth-Eke" style="max-height: 500px; max-width: 500px;" /><figcaption> Aperitiefwandeling © Davidsfonds Nazareth-Eke</figcaption></figure><br>
 <br>
-<b>Daguitstap met de fiets op donderdag 31 augustus</b><br>
+We inviteren jullie graag op een aperitiefwandeling op zondag <b>10 september</b>.<br>
 <br>
-Vertrek op het Carlos Dierickxplein om 09.15 u. voor een fietstocht richting Kruisem met een bezoek aan het wijndomein met rondleiding en proeverij.<br>
-Middagmaal is voorzien bij Foodbar Tante Sarah gevolgd door een fietstocht in de streek met stop bij 'Toffenof'. Inschrijven en inlichtingen bij Christiane Loontjens op {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:0479469650">0479 46 96 50</a> of via {{<icon class="fa fa-envelope">}}&nbsp;<a href="Loontjens.chris@telenet.be.">Loontjens.chris@telenet.be.</a><br>
+Afspraak aan de kerk van Dikkelvenne om 09.15 u.<br>
+De wandeling is vlak en duurt ongeveer twee uur, inclusief een verrassende apero stop.<br>
 <br>
+Na de wandeling bieden we jullie nog graag een glas aan.<br>
 <br>
+Deelnameprijs:<br>
 <br>
-
-
-
-
-
-#### FERM EKE GAAT FIETSEN !
+Davidsfonds cultuurkaart: 5 EUR.<br>
+Andere: 10 EUR.<br>
 <br>
-<figure><img src="images/pb-feke.jpg" alt=" Ferm Eke fiets © Ferm Eke" style="max-height: 500px; max-width: 500px;" /><figcaption> Ferm Eke fiets © Ferm Eke</figcaption></figure><br>
+Inschrijving door storting op <b>{{<icon class="fa fa-piggy-bank">}}&nbsp;BE62 4457 5147 8161</b> van Davidsfonds Nazareth voor <b>5 september</b>.<br>
 <br>
-Op zondag <b>27 augustus</b> organiseert Ferm Eke haar jaarlijkse gezinsfietstocht. Er is vrij vertrek van 13.30 u. tot 14.00 u. vanop het kerkplein van Eke voor een landelijke rit van 37 km om en rond Zottegem. Tussenin worden we verwend met 3 verfrissende drankstops met sneukels. Op de eindplaats in de Brouwerij wacht ons vanaf 18.00 u. een heerlijk buffet met warme beenhesp en groentjes. Iedereen is welkom aan het tarief van 22 EUR voor leden, 25 EUR voor niet-leden, kinderen < 12 : 10 EUR , kinderen < 6 : gratis<br>
-<br>
-Info en inschrijvingen bij Rita H voor <b>20 augustus</b> : {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:0498651087">0498 65 10 87</a> of buckens_paul@hotmail.com. Inschrijving pas definitief na betaling op rekeningnr <b>{{<icon class="fa fa-piggy-bank">}}&nbsp;BE66 7374 0807 9043</b>. Plaatsen zijn beperkt !<br>
+Het mooie weer is besteld.<br>
 <br>
 <br>
 <br>
@@ -43,12 +38,79 @@ Info en inschrijvingen bij Rita H voor <b>20 augustus</b> : {{<icon class="fa fa
 
 
 
-#### LDC 'DEN OEVER' - KLOOSTERSTRAAT - GAVERE
+#### FERM ASPER: 100 JAAR!
 <br>
-<b>Woensdag 9 augustus</b> om 14.00 u.: Diamond painting<br>
-<b>Donderdag 10 augustus</b> om 14.00 u.: Fietstocht<br>
-<b>Maandag 14 augustus</b> om 14.00 u.: IJssalon: Coupe aardbeien<br>
-<b>Woensdag 16 augustus</b> om 08.30 u.: Ontbijt<br>
+Zaterdagavond <b>16 september</b> om 18.00 u. in de kerk van Asper: Viering met aansluitend een kleine receptie (geen inschrijving vereist)<br>
+<br>
+Zondag <b>17 september</b> in Feestzaal Het Molenhuis, Molenstraat 44, Oudenaarde (Eine)<br>
+- 11.00 u. (stipt): Ontvangst & ceremonie met aansluitend receptie<br>
+- 13.00 u. - ... : Feestmaal<br>
+<br>
+Ferm-Asper-leden vieren gratis mee, partners betalen EUR 50 (all-in)<br>
+Inschrijven bij Christiane Loontjens via {{<icon class="fa fa-envelope">}}&nbsp;<a href="loontjens.chris@telenet.be">loontjens.chris@telenet.be</a> of {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:0479469650">0479 46 96 50</a> voor <b>7 september 2023</b>. Insschrijvingen van partners zijn pas definitief na overschrijving op rekeningnr.:<b>{{<icon class="fa fa-piggy-bank">}}&nbsp;BE07 7374 4201 1966</b> (Ferm Asper) met vermelding van naam lid + naam partner.<br>
+Beter Bewegen : Elke dinsdag vanaf <b>12 september</b> t.e.m. <b>19 december</b> (uitgezonderd schoolvakanties) van 20.00 u. tot 21.00 u. in de sporthal Overbeke, Veldstraat te Asper.<br>
+Een tienbeurtenkaart ten bedrage van 30 EUR (3 EUR/les) kanter plaatse aangekocht worden. Inschrijven hoeft niet, kom gewoon af.<br>
+<br>
+Bloemschikles : Droogbloemen of nazomerse schikking (krans)<br>
+Op woensdag <b>20 september</b> om 14.30 u. of om 19.30 u. in het ontmoetingscentrum Martinus, Hulstraat te Asper.<br>
+Info en inschrijvingen voor <b>15 september</b> bij Christiane Devenyns op {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:0474667476">0474 66 74 76</a>of via {{<icon class="fa fa-envelope">}}&nbsp;<a href="christianedevenyns@hotmail.com.">christianedevenyns@hotmail.com.</a><br>
+<br>
+Kookles: Feestelijke stoofpotjes en ovenschotels<br>
+Op woensdag <b>27 september</b> om 19.00 u. in het OC Martinus, Hulstraat te Asper.<br>
+Inschrijven voor <b>24 september</b> bij MIcheline Vandecauter via {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:093860859">09 386 08 59</a> of via {{<icon class="fa fa-envelope">}}&nbsp;<a href="micheline.vdcautere@gmail.com">micheline.vdcautere@gmail.com</a><br>
+<br>
+<br>
+<br>
+
+
+
+
+
+#### FERM DIKKELVENNE
+<br>
+Op woensdag <b>20 september</b> om 19.00 u. , in zaal Bronnendal, nijverheidsstraat 16 te Dikkelvenne (Dicht bij huis !) organiseert FERM Dikkelvenne  de kookles  "Heel de wereld bakt", verzorgd door  Eva Maenhout .<br>
+Wil je graag eens uitpakken met zelfgemaakt gebak , kom dan langs en maak kennis met onze originele en verrassende recepten.   Ontdek hierbij belangrijkste tips & tricks om met geslaagde creaties uit te pakken !...<br>
+Kost  : EUR 16  ( EUR 19 voor niet-leden)<br>
+Je kan je inschrijven voor de les tot en met zaterdag <b>16 september</b> bij Christianne De Doncker<br>
+via telefoon naar {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:093843952">09 384 39 52</a> of via mail naar {{<icon class="fa fa-envelope">}}&nbsp;<a href="christiane.de.donker@telenet.be">christiane.de.donker@telenet.be</a><br>
+en het betalen van EUR 16  via overschrijving op de KVLV rekening <b>{{<icon class="fa fa-piggy-bank">}}&nbsp;BE49 8913 7412 5471</b> met vermelding van  de kookles en je naam.<br>
+<br>
+<br>
+<br>
+
+
+
+
+
+#### LANDELIJKE GILDE EKE: HOEVEFEESTEN
+<br>
+<figure><img src="images/pb-flyer.jpg" alt=" Hoevefeesten © LG Eke" style="max-height: 500px; max-width: 500px;" /><figcaption> Hoevefeesten © LG Eke</figcaption></figure><br>
+<br>
+<br>
+<br>
+
+
+
+
+
+#### LDC DEN OEVER - KLOOSTERSTRAAT - GAVERE
+<br>
+<figure><img src="images/pb-mantel.jpg" alt=" Mantelzorgcafés © Christine Piens" style="max-height: 500px; max-width: 500px;" /><figcaption> Mantelzorgcafés © Christine Piens</figcaption></figure><br>
+<br>
+<figure><img src="images/pb-zorg.jpg" alt=" Zorgvolmacht © Christine Piens" style="max-height: 500px; max-width: 500px;" /><figcaption> Zorgvolmacht © Christine Piens</figcaption></figure><br>
+<br>
+<b>Woensdag 6 september</b> om 14.00 u.: UNO-namiddag<br>
+<b>Donderdag 7 september</b> om 10.00 u.: Gratis proefles Sacraal dansen<br>
+<b>Donderdag 7 september</b> om 13.00 u.: Spaanse les i.s.m. KISP<br>
+<b>Donderdag 7 september</b> om 14.00 u.: Samen breien en haken<br>
+<b>Dinsdag 12 september</b> om 10.00 u.: Yoga<br>
+<b>Dinsdag 12 september</b> om 13.30 u.: Lijndansen<br>
+<b>Dinsdag 12 september</b> om 14.00 u.: Portrettekenen en Rummikub<br>
+<b>Woensdag 13 september</b> om 14.00 u.: Diamond painting<br>
+<b>Donderdag 14 september</b> om 10.00 u.: Sacraal dansen<br>
+<b>Donderdag 14 september</b> om 13.00 u.: Spaanse les i.s.m. KISP<br>
+<b>Donderdag 14 september</b> om 19.00 u.: Mantelzorgcafé - "Zorgvolmacht"<br>
+<b>Vrijdag 15 september</b> om 14.00 u.: Wandeling - Eerste hulp bij geheugenproblemen<br>
 <br>
 <br>
 <br>
@@ -59,9 +121,13 @@ Info en inschrijvingen bij Rita H voor <b>20 augustus</b> : {{<icon class="fa fa
 
 #### OKRA TREFPUNT EKE
 <br>
-<b>Donderdag 10 augustus</b> om 14.00 u. in WZC De Lichtervelde: Rummikub<br>
-<b>Woensdag 16 augustus</b> om 14.00 u. in CC De Brouwerij: Kaarten<br>
-<b>Donderdag 17 augustus</b> om 13.45 u. vertrek aan de kerk: Wandelen en fietsen<br>
+<b>OKRA-TREFPUNT EKE nodigt uit...</b><br>
+<br>
+<b>Donderdag 7 september</b> om 14.00 u. in CC De Brouwerij: Lijndans en rummikub<br>
+<b>Dinsdag 12 september</b> om 07.50 u.: Vertrek aan de kerk voor OKRA-regiotreffen in Ieper en verder naar Wevelgem<br>
+<b>Woensdag 13 september</b> om 14.00 u. in CC De Brouwerij: Kaarten<br>
+<b>Donderdag 14 september</b> om 09.00 u. in CC De Brouwerij: Lijndans<br>
+<b>Donderdag 14 september</b> om 13.45 u. vertrek aan de kerk: Wandelen en fietsen<br>
 <br>
 <br>
 <br>
@@ -74,9 +140,11 @@ Info en inschrijvingen bij Rita H voor <b>20 augustus</b> : {{<icon class="fa fa
 <br>
 Activiteitenkalender<br>
 <br>
-<b>Donderdag 10 augustus</b> om 14.00 u. aan CC Het Centrum: Fietsen<br>
-<b>Vrijdag 11 augustus</b> om 11.00 u. op parking achter de sporthal: Palingreis + museumbezoek<br>
-<b>Donderdag 17 augustus</b> om 14.00 u. in CC Het Centrum: Lijndansen<br>
+<b>Woensdag 6 september</b> om 09.00 u. aan CC Het Centrum: Showreis naar Plopsaland<br>
+<b>Donderdag 7 september</b> om 14.00 u. aan CC Het Centrum: Fietsen<br>
+<b>Dinsdag 12 september</b> om 08.00 u. parking sporthal Ommegangstraat: Regionale bedevaart naar Ieper<br>
+<b>Dinsdag 12 september</b> om 14.00 u. aan de Sporthal: Petanque<br>
+<b>Donderdag 14 september</b> om 14.00 u. in CC Het Centrum: Lijndansen<br>
 <br>
 !!! Voor meer info: tel. {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:093855371">09 385 53 71</a><br>
 <br>
@@ -87,39 +155,23 @@ Activiteitenkalender<br>
 
 
 
-#### ROMMEL EN ANTIEKVEILING KONINKLIJKE HARMONIE VRANK EN VRIJ NAZARETH
+#### SAMANA ASPER
 <br>
-Koninklijke Harmonie "Vrank en Vrij" Nazareth<br>
+Op donderdag <b>21 september 2023</b> staat er een halve daguitstap op ons programma, wij brengen een bezoek aan de Ambachtelijke Koffiebranderij <b>'Buizerd en Saars'</b>, Neerreckhemstraat 11a, 9770 Kruisem.<br>
 <br>
-43ste Zomerfeest<br>
+Tijdens de rondleiding krijgen wij toelichting over de geschiedenis, oorsprong, variëteiten, teelt, verwerkingsproces en het branden van koffie.<br>
+Na de uitleg kunnen wij proeven van een lekkere tas koffie met bijhorende lekkernijen.<br>
+De duurtijd van het bezoek bedraagt ongeveer 2 uur.<br>
 <br>
-Rommel en Antiekveiling<br>
+Wij vertrekken om 14.00 u. aan het Carlos Dierickxplein. De uitstap doen we met eigen vervoer. Voor wie, die dag, chauffeur is, vergeet niet de nummerplaat en het merk van wagen te noteren op het inschrijvingsstrookje. Wij vragen een tijdelijke verzekering aan bij Samana.<br>
 <br>
-Vrijdag <b>18 augustus 2023</b><br>
+<b>Inschrijven kan tot uiterlijk 12 september bij Lydie Vanderstichelen, Leebeeklaan 34, tel. {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:093841423">09 384 14 23</a>, e-mail: {{<icon class="fa fa-envelope">}}&nbsp;<a href="lydie.vanderstichelen@telenet.be.">lydie.vanderstichelen@telenet.be.</a> Tijdig inschrijven is de boodschap het aantal deelnemers is beperkt!</b><br>
 <br>
-De plaats van het gebeuren is het "CC Het Centrum" te Nazareth, Dorp 22.<br>
+Deelnemen kost 15 EUR per persoon, rondleiding en proeven inbegrepen.<br>
 <br>
-GEZOCHT:<br>
+De branderij is toegankelijk voor rolstoelpatienten!<br>
 <br>
-De harmonie is voor hun veiling nog op zoek naar allerhande voorwerpen die nog in min of meer goede staat zijn zoals kleine inboedel, siervoorwerpen, afgedankte doch herstelbare toestellen, aardewerken, boeken en nog vele andere. Al deze goederen kunnen aan de harmonie geschonken worden en zullen per opbod verkocht worden. De opbrengst zal gebruikt worden voor de aankoop van instrumenten, partituren, het betalen van auteursrechten, enz.<br>
-<br>
-Alle voorwerpen zullen op vrijdag <b>18 augustus</b> van 18 uur tot 19 uur te bezichtigen zijn.<br>
-<br>
-De veiling zelf begint om 19 uur. (Er zijn geen veilingkosten)<br>
-<br>
-Wie nog wat materiaal kwijt wil kan steeds een seintje geven aan één van de comitéleden.<br>
-<br>
-Bel NU één van onderstaande comitéleden en wij komen zelf de goederen bij u thuis<br>
-<br>
-ophalen.<br>
-<br>
-- Christiaan Van herzeele, Tel. {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:093841806">09 384 18 06</a>.<br>
-<br>
-- Stefaan De Jonghe, Tel. {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:093848509">09 384 85 09</a>.<br>
-<br>
-- John Willems, Tel. {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:093858068">09 385 80 68</a>.<br>
-<br>
-- Sebastiaan Simoens, GSM 0473/523<br>
+Het team van Samana Asper<br>
 <br>
 <br>
 <br>
@@ -130,43 +182,13 @@ ophalen.<br>
 
 #### SAMANA NAZARETH
 <br>
-<b>Woensdag 9 augustus</b> om 14.00 u. in CC Het Centrum: CREA, gratis, iedereen van harte welkom<br>
-<br>
+<b>Vrijdag 8 september</b>: De Mariale Ommegang met bloemetjes verkoop rondom de kerk tvv Samana Nazareth<br>
+<b>Dinsdag 12 september</b> om 14.00 u. in CC Het Centrum: CREA, gratis, iedereen van harte welkom<br>
 <br>
 <br>
 <br>
 <br>
 Info {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:093855069">09 385 50 69</a><br>
-<br>
-<br>
-<br>
-
-
-
-
-
-#### VRIJE BASISSCHOOL NAZARETH: INSCHRIJVINGEN
-<br>
-<figure><img src="images/pb-vbsn.jpg" alt=" Vrije Basisschool Nazareth: inschrijvingen © VBS Nazareth" style="max-height: 500px; max-width: 500px;" /><figcaption> Vrije Basisschool Nazareth: inschrijvingen © VBS Nazareth</figcaption></figure><br>
-Vanaf vrijdag <b>18 augustus</b> kan je op onze Vrije Basisschool Nazareth terecht tussen 14 en 17 uur. Of neem telefonisch contact op: {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:093854288">09 385 42 88</a> of via mail : {{<icon class="fa fa-envelope">}}&nbsp;<a href="directie@vbsnazareth.be">directie@vbsnazareth.be</a><br>
-<br>
-<b>Inschrijven voor het schooljaar 2023-2024</b><br>
-<br>
-Heeft u een peuter die dit schooljaar de eerste stapjes naar school zet ? Of een kleuter of leerling lagere school ? Aarzel niet om ons te contacteren.<br>
-Of kom langs op de onthaalmomenten.<br>
-<br>
-Peuteronthaal instappers op <b>1 september</b> op: dinsdag <b>29 augustus 2023</b> tussen 18.00 en 19.30 uur / tevens onthaal voor alle kleuters en leerlingen 1ste leerjaar.<br>
-<br>
-<br>
-<br>
-
-
-
-
-
-#### ZOMERFEEST KONINKLIJKE HARMONIE VRANK EN VRIJ NAZARETH
-<br>
-<figure><img src="images/pb-vrank.jpg" alt=" Zomerfeest Koninklijke harmonie vrank en vrij © Koninklijke harmonie" style="max-height: 500px; max-width: 500px;" /><figcaption> Zomerfeest Koninklijke harmonie vrank en vrij © Koninklijke harmonie</figcaption></figure><br>
 <br>
 <br>
 <br>

@@ -11,30 +11,87 @@ header_menu: true
 
 
 
-#### DOOPSEL
-<br>
-Hebben het doopselsacrament ontvangen:<br>
-<br>
-<i>Leon Van Vlam</i>, Eke<br>
-<i>Charlotte en Louise Van Crombrugge</i>, Eke<br>
-<i>Elias De Vlieger</i>, Eke<br>
-<br>
-<br>
-<br>
-
-
-
-
-
 #### OVERLIJDEN
 <br>
 We namen in de kerk afscheid van:<br>
 <br>
-<i>Simonne Achtergaele</i>, 90 j., weduwe Raoul Vermaecke, Gavere<br>
-<i>Roger Vermeire</i>, 83 j., echtg. Edith Moerman, Eke<br>
-<i>Marie De Ketelaere</i>, 74 j., Nazareth<br>
-<i>Antoon Vindevogel</i>, 91 j., Bernice De Scheerdere, Nazareth<br>
-<i>Geert Martens</i>, 62 j., levensgezel van Lutgarde Claeys, Gavere<br>
+<i>Jean-Pierre Wieme</i>, 73 j., echtg. Geneviève Rottier, Asper<br>
+<br>
+<br>
+<br>
+
+
+
+
+
+#### GAVERE: KAPELLEKESWANDELING BEWONERS WZC MARIAHUIS GAVERE
+<br>
+Op dinsdag <b>29 augustus</b> - KAPELLEKESWANDELING BEWONERS WZC MARIAHUIS GAVERE<br>
+<br>
+Vrijdag <b>8 september</b> viert de kerk het hoogfeest van Maria Geboorte. Maria, die bijbelse figuur blijft aan de huid kleven van velen niet alleen omdat zij de Moeder van Jezus is maar ook omdat zij de verbindingspersoon blijft tussen haar Zoon en ons aardse mensen.<br>
+<br>
+In talrijke Vlaamse dorpen vind je her en der nog Mariakapelletjes. Een rustplaats voor een kort gebedje of om een kaarsje te branden. Wie herinnert zich nog zijn kindertijd waar in de meimaand 's avonds de rozenkrans werd gebeden voor uitgesproken of in het hart geborgen intenties en afgesloten werd met een Marialied?<br>
+<br>
+In talrijke bewonerskamers van het WZC Mariahuis prijkt nog een Mariabeeldje wat erop wijst dat Maria nog steeds aanwezig blijft in hun leven. De weerman voorspelde droog weer en meteen een aansporing voor de pastorale werkgroep voor een extra-muros-activiteit onder de noemer "Kom tot Maria". Met de medewerking van personeel en vrijwilligers kregen bewoners de mogelijkheid om deel te nemen aan een tocht langs enkele Mariakapelletjes in Gavere. Een glimlach naar Haar beeltenis, een gebedje prevelen of een kruisteken slaan om Maria te groeten betekende zoveel voor hen.<br>
+De stralende gezichten van de talrijke groep bewoners en de vele jeugdherinneringen die naar boven kwamen maakten deze namiddag tot een topactiviteit.<br>
+<br>
+<figure><img src="images/pb-vos.jpg" alt=" O.-L.-Vrouw Moeder Gods Vossestraat © C. Piens" style="max-height: 500px; max-width: 500px;" /><figcaption> O.-L.-Vrouw Moeder Gods Vossestraat © C. Piens</figcaption></figure><br>
+<br>
+<figure><img src="images/pb-onder.jpg" alt=" O.-L.-Vrouw van Lourdes Onderstraat © C. Piens" style="max-height: 500px; max-width: 500px;" /><figcaption> O.-L.-Vrouw van Lourdes Onderstraat © C. Piens</figcaption></figure><br>
+<br>
+<figure><img src="images/pb-paard.jpg" alt=" O.-L.-Vrouw van de Paardenkouter © C. Piens" style="max-height: 500px; max-width: 500px;" /><figcaption> O.-L.-Vrouw van de Paardenkouter © C. Piens</figcaption></figure><br>
+<br>
+<figure><img src="images/pb-gavere.jpg" alt=" O.-L.-Vrouw van Gavere © C. Piens" style="max-height: 500px; max-width: 500px;" /><figcaption> O.-L.-Vrouw van Gavere © C. Piens</figcaption></figure><br>
+<br>
+<figure><img src="images/pb-af.jpg" alt=" Afsluiten bedevaart in de kerk © C. Piens" style="max-height: 500px; max-width: 500px;" /><figcaption> Afsluiten bedevaart in de kerk © C. Piens</figcaption></figure><br>
+<br>
+<figure><img src="images/pb-groep.jpg" alt=" Groepsfoto © C. Piens" style="max-height: 500px; max-width: 500px;" /><figcaption> Groepsfoto © C. Piens</figcaption></figure><br>
+<br>
+<br>
+<br>
+
+
+
+
+
+#### GAVERE: ALZHEIMER DAG
+<br>
+<figure><img src="images/pb-alz.jpg" alt=" © Alzheimer liga Vlaanderen" style="max-height: 500px; max-width: 500px;" /><figcaption> © Alzheimer liga Vlaanderen</figcaption></figure><br>
+<br>
+Op donderdag <b>21 september</b> organiseert de WHO de WERELD ALZHEIMER DAG<br>
+<br>
+Thema: "SAMEN AAN TAFEL"<br>
+<br>
+De Wereldgezondheidsorganisatie (WHO) van de Verenigde Naties heeft <b>21 september</b> uitgeroepen tot Alzheimer Dag.<br>
+Op die dag wordt extra aandacht besteed aan dementie.<br>
+Wereldwijd lijden naar schatting 46 miljoen mensen aan de ziekte van Alzheimer.<br>
+<br>
+<b>Plaatselijke activiteit t.v.v. de actie</b><br>
+<br>
+Het WZC Mariahuis in Gavere organiseert een verkoop van suiker- en hartenwafels ten voordele van de stichting Alzheimeronderzoek. De ingezamelde fondsen geven universiteiten meer mogelijkheden voor onderzoek om levens te verbeteren.<br>
+U kan bestellen tot dinsdag <b>19 september</b>.<br>
+<br>
+De kostprijs bedraagt 5 EUR per zakje.<br>
+<br>
+Afhalen kan op 26 en <b>27 september</b> tussen 13.30 u. en 16.30 u.<br>
+<br>
+Interesse: neem contact met Margot (referentiepersoon dementie in het WZC Mariahuis) op het nummer {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:093892013">09 389 20 13</a> of mail naar {{<icon class="fa fa-envelope">}}&nbsp;<a href="referentdementie@sitemariahuis.be">referentdementie@sitemariahuis.be</a> met vermelding van uw naam, adres, aantal bestelde zakjes suiker en/of hartenwafeltjes en de dag wanneer u uw bestelling afhaalt (Onderstraat 9 Gavere).<br>
+<br>
+<figure><img src="images/pb-dement.jpg" alt=" Eerste hulp bij geheugenproblemen © Steunactie dementie" style="max-height: 500px; max-width: 500px;" /><figcaption> Eerste hulp bij geheugenproblemen © Steunactie dementie</figcaption></figure><br>
+<br>
+<br>
+<br>
+
+
+
+
+
+#### TRACTORWIJDING NAZARETH
+<br>
+Op zondag <b>10 september</b> om 11.30 u., traktorwijding aan de zijkant van de kerk te Eke.<br>
+<br>
+<figure><img src="images/pb-t1.jpg" alt=" Tractorwijding 1 © Guy Claus" style="max-height: 500px; max-width: 500px;" /><figcaption> Tractorwijding 1 © Guy Claus</figcaption></figure><br>
+<figure><img src="images/pb-t2.jpg" alt=" Tractorwijding 2 © Guy Claus" style="max-height: 500px; max-width: 500px;" /><figcaption> Tractorwijding 2 © Guy Claus</figcaption></figure><br>
 <br>
 <br>
 <br>
@@ -57,38 +114,14 @@ Zondag <b>10 september 2023</b> om 10.30 u. : Solemniteit van O.L.V Geboorte, di
 Woensdag <b>13 september 2023</b> om 08.30 u. : Mis t.e.v. Onze Lieve Vrouw van Nazareth<br>
 Zondag <b>17 september 2023</b> om 10.30 u. : Parochiale Missiezondag. Dienst met bijzondere collecte voor onze Nazarethse missionarissen<br>
 Woensdag <b>20 september 2023</b> om 08.30 u. : Mis t.e.v. Onze Lieve Vrouw van Nazareth<br>
+Maandag <b>18 september 2023</b> om 09.30 u. : Kermismaandag en dienst voor de overleden parochianen<br>
 Zondag <b>24 september 2023</b> om 10.30 u. : Plechtige hoogmis en afsluiten van de 15 dagen t.e.v. Onze Lieve Vrouw van Nazareth<br>
 <br>
 Na de ommegang worden alle bedevaarders uitgenodigd in CC Het Centrum voor een lekkere eclair met een kopje koffie, een gemoedelijke babbel en een gezellig samenzijn.<br>
 <br>
 Vanaf half augustus zullen er in de kerk van Nazareth affiches van de Ommegang uitgedeeld worden. Parochianen die niet tot in de kerk geraken en toch graag een affiche willen uithangen, kunnen dit laten weten via mail op {{<icon class="fa fa-envelope">}}&nbsp;<a href="werkgroepmarialeommegang@gmail.com">werkgroepmarialeommegang@gmail.com</a> of telefonisch op {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:093855731">09 385 57 31</a>, {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:0475612062">0475 61 20 62</a> of {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:093858531">09 385 85 31</a>. We bezorgen jullie met plezier een affiche aan huis.<br>
 <br>
-<br>
-<br>
-
-
-
-
-
-#### NAZARETH: RENOVATIEWERKEN BEELDENGROEPEN AFGEROND
-<br>
-<figure><img src="images/pb-kruis.jpg" alt=" De kruisiging en dood van Jezus © Greta Peil" style="max-height: 500px; max-width: 500px;" /><figcaption> De kruisiging en dood van Jezus © Greta Peil</figcaption></figure><br>
-<br>
-Na <b>22 maart</b> is het eindelijk opnieuw zo ver!<br>
-<br>
-De 13 bewaarde beeldengroepen van de Mariale Ommegang van Nazareth zijn allemaal terug in Nazareth.<br>
-Dit zijn de 10 bewaard gebleven beelden uit 1904 die volledig hersteld en gerestaureerd zijn en 3 volledig nieuwe beeldengroepen, gemaakt a.h.v. enkele oude en wazige foto's.<br>
-<br>
-De 3 laatste afgewerkte beeldengroepen werden eind juli bij de restaurateur opgehaald. Het beeld aan de kapel in de Ommegangstraat werd al definitief teruggeplaatst (zie foto).<br>
-De 2 plaasteren beelden die in de nissen thuishoren in de 's Gravenstraat (tegenover de Langemunt) zijn iets moeilijker om terug te plaatsen. Deze beide opgefleurde beeldengroepen worden zo snel mogelijk teruggeplaatst.<br>
-<br>
-Vanuit de Werkgroep Mariale Ommegang hopen we dat deze beelden nu opnieuw enkele decennia meegaan.<br>
-<br>
-Indien u toch een onregelmatigheid zou opmerken aan één van de beelden, of aan één van de kapellen, vragen wij om dit zo snel mogelijk te melden aan de Werkgroep. Dit kan via mail op {{<icon class="fa fa-envelope">}}&nbsp;<a href="werkgroepmarialeommegang@gmail.com">werkgroepmarialeommegang@gmail.com</a> of telefonisch op {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:093855731">09 385 57 31</a>, {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:0475612062">0475 61 20 62</a>, {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:093858531">09 385 85 31</a> of {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:0471903801">0471 90 38 01</a>.<br>
-<br>
-<b>Parochianen die de Werkgroep nog willen steunen bij de betaling van de laatste factuur, kunnen dit doen op rekening </b>{{<icon class="fa fa-piggy-bank">}}&nbsp;BE38 8905 0415 1972<b> bij VDK Nazareth.</b><br>
-<br>
-De Werkgroep Mariale Ommegang wil graag de beide kunstenaars, Achiel Pauwels en Bart Verbeke van harte bedanken voor hun mooie werk. Daarnaast willen we alle parochianen bedanken die ons op de één of andere manier gesteund hebben, hetzij door een gift, hetzij door hun bemoedigende woorden. Tot slot ook een woordje van dank aan de mensen van de Erfgoedcel Leie Schelde en de mensen van de Cultuur en Erfgoedcel van de gemeente Nazareth voor hun steun en ondersteuning gedurende ons traject.<br>
+<b>De ochtendmissen op woensdag 13 september en woensdag 20 september 2023 zullen doorgaan zoals vermeld op de affiche.</b><br>
 <br>
 <br>
 <br>
@@ -97,18 +130,38 @@ De Werkgroep Mariale Ommegang wil graag de beide kunstenaars, Achiel Pauwels en 
 
 
 
-#### EKE: VIERING AAN DE KAPEL VAN DE HEILIGE ANNA
+#### NAZARETH: DE MARIALE OMMEGANG IS IMMATERIEEL ERFGOED
 <br>
-Zondag <b>30 juli</b> was er een eucharistieviering aan de kapel van de Heilige Anna op de wijk Eke Landuit. Deze werd voorgegaan door E.H. Dirk De Bruycker. Zo hebben een 100tal mensen de regen getrotseerd om aanwezig te zijn bij deze misviering naar aanleiding van de feestdag van de Heilige Anna (<b>26 juli</b>) en de wijkkermis.<br>
+<figure><img src="images/pb-erf.jpg" alt=" Nazareth + Mariale Ommegang © Gemeente Nazareth en Immaterieel Erfgoed" style="max-height: 500px; max-width: 500px;" /><figcaption> Nazareth + Mariale Ommegang © Gemeente Nazareth en Immaterieel Erfgoed</figcaption></figure><br>
 <br>
-In de homilie had de pastoor dat wij het hier allemaal nog goed hebben, als men de verschrikkelijke beelden zien op TV van mensen op de vlucht voor een beter leven, die sterven in de Sahara van honger en dorst. Wij allen zijn medeverantwoordelijk. Ieder mens heeft recht op geluk en menswaardig leven.<br>
+De Mariale Ommegang van Nazareth is een bijzonder stuk erfgoed. Uniek om allerlei redenen, maar niet in het minst omdat het onlosmakelijk verbonden is met de kapellen waarin de verschillende mysteries van de rozenkrans zijn afgebeeld. Deze kapellen hebben de laatste 2 jaar extra in de aandacht gestaan door de restauratie van de beeldengroepen door de Werkgroep Mariale Ommegang.<br>
 <br>
-Dank aan Ivonne en Roland en alle helpende handen om deze viering mogelijk gemaakt te hebben.<br>
+Nu de Mariale Ommegang erkend is als immaterieel erfgoed, willen we ook de volgende stap zetten en ervoor zorgen dat het wordt opgenomen in de Inventaris Vlaanderen. Deze inventaris is opgezet door de Vlaamse overheid om erfgoed te borgen, d.w.z. in stand houden en bewaren voor ons nageslacht.<br>
 <br>
-<figure><img src="images/pb-anna1.jpg" alt=" Viering kapel Heilige Anna (foto 1) © Marc Perseyn" style="max-height: 500px; max-width: 500px;" /><figcaption> Viering kapel Heilige Anna (foto 1) © Marc Perseyn</figcaption></figure><br>
-<figure><img src="images/pb-anna2.jpg" alt=" Viering kapel Heilige Anna (foto 2) © Marc Perseyn" style="max-height: 500px; max-width: 500px;" /><figcaption> Viering kapel Heilige Anna (foto 2) © Marc Perseyn</figcaption></figure><br>
-<figure><img src="images/pb-anna3.jpg" alt=" Viering kapel Heilige Anna (foto 3) © Marc Perseyn" style="max-height: 500px; max-width: 500px;" /><figcaption> Viering kapel Heilige Anna (foto 3) © Marc Perseyn</figcaption></figure><br>
-<figure><img src="images/pb-anna4.jpg" alt=" Viering kapel Heilige Anna (foto 4) © Marc Perseyn" style="max-height: 500px; max-width: 500px;" /><figcaption> Viering kapel Heilige Anna (foto 4) © Marc Perseyn</figcaption></figure><br>
+Om deze onderneming te doen slagen hebben we jullie hulp nodig.<br>
+<br>
+Eén van de factoren die bepalend zijn, is het aantonen van een draagvlak.<br>
+Graag hadden we jullie steun voor de Ommegang mee opgenomen in het dossier.<br>
+Dat kan bijvoorbeeld in de vorm van een (korte) steunbrief, een solidariteitsverklaring zo je wil. Een korte mededeling waarin jullie de aanvraag mee steunen. Beschrijf hoe de Ommegang jullie raakt of hoe jullie bij de Ommegang, al dan niet rechtstreeks, betrokken zijn.<br>
+<br>
+De Ommegang reikt immers veel verder dan alleen het religieuze ritueel. Het is één van die onzichtbare draden die ons met het verre verleden verbindt.<br>
+<br>
+Jullie kunnen de reactie sturen naar {{<icon class="fa fa-envelope">}}&nbsp;<a href="erfgoed@nazareth.be">erfgoed@nazareth.be</a> én<br>
+{{<icon class="fa fa-envelope">}}&nbsp;<a href="werkgroepmarialeommegang@gmail.com">werkgroepmarialeommegang@gmail.com</a><br>
+Wij voegen ze dan toe aan het dossier.<br>
+<br>
+Mensen die niet over een computer beschikken en ons toch willen steunen, mogen hun steun ook op papier neerschrijven en bezorgen aan: Werkgroep Mariale Ommegang, p/a Leegzakstraat 33 C te Nazareth. Wij zorgen er dan voor dat alles in het dossier terechtkomt.<br>
+<br>
+Vermits we met een deadline moeten indienen, hadden we graag jullie bijdrage ten laatste op <b>18 september</b> ontvangen.<br>
+<br>
+Alvast bedankt.<br>
+Met vriendelijke groet,<br>
+Jan Decalf en de voltallige Werkgroep Mariale Ommegang (Willy, Paul, Marc, Marc, Luc, Hilde, Hilde, Greta & Eddy)<br>
+<br>
+Contact of graag meer info?:<br>
+Erfgoed Nazareth, {{<icon class="fa fa-envelope">}}&nbsp;<a href="erfgoed@nazareth.be">erfgoed@nazareth.be</a>, {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:093964932">09 396 49 32</a><br>
+of<br>
+Werkgroep Mariale Ommegang, {{<icon class="fa fa-envelope">}}&nbsp;<a href="werkgroepmarialeommegang@gmail.com">werkgroepmarialeommegang@gmail.com</a>, {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:093858531">09 385 85 31</a> of {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:0471903801">0471 90 38 01</a><br>
 <br>
 <br>
 <br>
@@ -140,111 +193,6 @@ Francine De Geyter - Gsm. {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:04874
 
 
 
-#### 15 AUGUSTUS 2023 - MARIA TENHEMELOPNEMING
-<br>
-<b>Maria, Moeder van Jezus, onze Heer,</b><br>
-<b>krachtige en inspirerende vrouw,</b><br>
-<b>ook voor ons, in onze tijd.</b><br>
-<br>
-Dit feest wordt in de Katholieke Kerk jaarlijks gevierd op <b>15 augustus</b>. Herdacht wordt dat Maria, aan het einde van haar aardse leven door God in de hemel werd opgenomen.<br>
-<br>
-Maria heeft ons haar hele leven lang laten zien, dat zij tegen God 'ja' wilde zeggen. Zelfs in die laatste dagen van Jezus' leven, hoe zwaar het haar ook viel, heeft zij tegen God gezegd: "uw wil geschiede op aarde, zoals in de hemel." Ook op die laatste dag van haar aardse leven, toen zij door de engelen van God ten hemel werd opgenomen, bleef zij stralen, kon zij de Kerk en al haar dierbare mensen gemakkelijk loslaten, wetend, dat zij in en vanuit de hemel nog beter voor de mensen kon zorgen. Haar lichamelijke aanwezigheid op aarde mag dan wel het einde geweest zijn maar als een echte Moeder is zij nog steeds bij ons.<br>
-<br>
-<figure><img src="images/pb-maria.jpg" alt=" Maria Tenhemelopneming © Kerknet" style="max-height: 500px; max-width: 500px;" /><figcaption> Maria Tenhemelopneming © Kerknet</figcaption></figure><br>
-<br>
-<b>Bezinning</b><br>
-<br>
-<i>Maria,</i><br>
-<i>leer mijn hart en handen</i><br>
-<i>die zachte kracht van de trouwe dienstbaarheid.</i><br>
-<i>Doorbreek de hardheid van mijn denken,</i><br>
-<i>van mijn veel te vlugge woorden,</i><br>
-<i>van mijn angst voor zelfverlies.</i><br>
-<i>Laat mij met opmerkzaamheid, geduld en moed</i><br>
-<i>meegaan met hen die lijden,</i><br>
-<i>met hen die angstig of eenzaam zijn.</i><br>
-<i>Laat mij uw zoon, Jezus, herkennen</i><br>
-<i>in de mensen die mij gegeven zijn.</i><br>
-<i>Schenk ons uw vertrouwen,</i><br>
-<i>leer ons leven en groeien naar uw voorbeeld.</i><br>
-<i>Amen.</i><br>
-<br>
-<br>
-<br>
-
-
-
-
-
-#### SAMEN EUCHARISTIE VIEREN = KRACHT VAN VERBONDENHEID
-<br>
-In het evangelie van Matteüs lezen we in hoofdstuk 18 vers 20 "Waar twee of drie verenigd zijn in Mijn naam, daar ben ik in hun midden".<br>
-<br>
-De tijd van overvolle kerken is voorbij, zeker op weekdagen. Wij zijn een "kleine kudde" geworden. Maar als christenen geloven we dat daar waar mensen samenkomen in gebed en in de eucharistie zij de kracht van verbondenheid ervaren gebeiteld in de Geest van Jezus Christus.<br>
-<br>
-Niet alleen op zon- en feestdagen kunnen wij ons laten voeden door het Woord van de Schrift maar ook op weekdagen wordt u die mogelijkheid geboden.<br>
-<br>
-<b>In de weekkapel van de kerk in Eke is er ochtendeucharistie op maandag, dinsdag, donderdag en vrijdag telkens om 8 uur. In Nazareth op woensdag om 8.30 uur.</b><br>
-<b>Laten we elkaar ontmoeten in geloofsverbondenheid met de Heer.</b><br>
-<b>Iedereen is welkom!</b><br>
-<br>
-<br>
-<br>
-
-
-
-
-
-#### VAKANTIE
-<br>
-<figure><img src="images/pb-vak.jpg" alt=" Vakantie © Facebook" style="max-height: 500px; max-width: 500px;" /><figcaption> Vakantie © Facebook</figcaption></figure><br>
-<br>
-<i>Vakantie is,</i><br>
-<i>bevrijd van moeten en niet mogen,</i><br>
-<i>ruimte scheppen, het wonder zien,</i><br>
-<i>beseffen hoe wij, mensen onderweg,</i><br>
-<i>elkaar gegeven zijn,</i><br>
-<i>verbonden, over grenzen van tijd en ruimte,</i><br>
-<i>elkaar tot vreugde mogen zijn.</i><br>
-<br>
-<i>Vakantie is</i><br>
-<i>je plek vinden in de grootsheid van de schepping,</i><br>
-<i>is nieuwe wegen zien, levenskracht ontvangen</i><br>
-<i>en verder bouwen aan een wereld van vrede en gerechtigheid,</i><br>
-<i>van welzijn en goed leven voor iedereen,</i><br>
-<i>is delen in Gods droom,</i><br>
-<i>die jij en ik, en telkens weer een ander jij en ik,</i><br>
-<i>samen waar mogen maken.</i><br>
-<i>(priester Jan, pater Walbert, Hans, Rita en zuster Lea)</i><br>
-<br>
-<br>
-<br>
-
-
-
-
-
-#### KERK GAVERE: HET LICHT VAN DE GODSLAMP BRANDT ZOALS VOORHEEN
-<br>
-Als de elektriciteit uitvalt dan pas beseffen we hoezeer we ervan afhankelijk zijn. Geen licht, geen verwarming, (garage)poort gaat niet open, koken wordt een probleem, uurwerken vallen stil, ... Niet alleen voor gezinnen wordt het dan behelpen maar ook het kerkgebouw deelt in de brokken.<br>
-<br>
-Woensdagmorgen <b>26 juli</b> om 5.48 uur was er een kortstondige panne in Gavere en viel o.a. ook het torenuurwerk en het klokkengelui stil.<br>
-Gelukkig kent onze kerkraad bedreven mensen die onmiddellijk de koe bij de horens vatten en vrijdagmorgen 8 uur gaf het torenuurwerk terug het juiste uur aan en sloeg de klok precies <b>8 maart</b>.<br>
-Maar in het weekend werd ook opgemerkt dat het licht van de godslamp in de kerk gedoofd bleef. Nochtans een belangrijk symbool dat dag en nacht brandt in de nabijheid van het tabernakel als getuige van de aanwezigheid van het heilig sacrament. Opnieuw stonden onze vrijwilligers klaar om ook dit euvel op te lossen. Martin Hoste en Martin Daniels, onze handige harry's, zijn niet alleen in deze materie maar ook op andere vlakken van onschatbare waarde. Laat het ons zo stellen: zij fonkelen en schitteren om op die onbereikbare hoogte torenuurwerk, klokkengelui en godslamp weer aan de praat te krijgen. Dank aan onze beide Martins, jullie hebben gouden handen, dank voor jullie onbaatzuchtige dienstbaarheid,<br>
-<br>
-Dit gegeven doet ons nogmaals beseffen hoe belangrijk de ontelbare vrijwilligers zijn in onze geloofsgemeenschap en ook in de samenleving. Allen zijn zij lichtpunten, zij maken het verschil, zij verdienen terecht onze oprechte waardering.<br>
-<br>
-<figure><img src="images/pb-godslamp.jpg" alt=" Godslamp © C. Piens" style="max-height: 500px; max-width: 500px;" /><figcaption> Godslamp © C. Piens</figcaption></figure><br>
-<br>
-<figure><img src="images/pb-harry.jpg" alt=" Onze handige harry's © C. Piens" style="max-height: 500px; max-width: 500px;" /><figcaption> Onze handige harry's © C. Piens</figcaption></figure><br>
-<br>
-<br>
-<br>
-
-
-
-
-
 #### KERK GAVERE: INSCHRIJFAVOND VORMELINGEN EN EERSTE COMMUNICANTEN 2024 - WOENSDAG 13 SEPTEMBER - KERK GAVERE
 <br>
 De inschrijfavond voor de vormelingen en de eerste communicanten 2024 gaat door in de kerk van Gavere op woensdag <b>13 september 2023</b>.<br>
@@ -258,6 +206,7 @@ De inschrijfavond voor de vormelingen en de eerste communicanten 2024 gaat door 
 <br>
 - kerk Asper: zaterdag <b>4 mei</b> - 15 uur<br>
 - kerk Gavere: zondag <b>5 mei</b> - 9 uur<br>
+<br>
 Catechisten: Gavere: Liesbeth Verholen {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:0473754514">0473 75 45 14</a> - Asper: Caroline De Paepe {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:0470631694">0470 63 16 94</a><br>
 <br>
 <b>Data Vormsel:</b><br>

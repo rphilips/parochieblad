@@ -144,3 +144,42 @@ Een dankjewel aan alle mensen voor hun steun aan onze vereniging. Merci<br>
 <br>
 
 
+
+
+
+#### GAVERE: DONDERDAG 21 SEPTEMBER - WERELD ALZHEIMER DAG
+<br>
+<b>Thema: "SAMEN AAN TAFEL"</b><br>
+<br>
+<figure><img src="images/pb-alzh.jpg" alt=" © Alzheimer liga Vlaanderen" style="max-height: 500px; max-width: 500px;" /><figcaption> © Alzheimer liga Vlaanderen</figcaption></figure><br>
+<br>
+De Wereldgezondheidsorganisatie (WHO) van de Verenigde Naties heeft <b>21 september</b> uitgeroepen tot Alzheimer Dag. Op die dag wordt extra aandacht besteed aan dementie. Wereldwijd lijden naar schatting 46 miljoen mensen aan de ziekte van Alzheimer.<br>
+<br>
+<b>Plaatselijke activiteit t.v.v. de actie</b><br>
+<br>
+Het WZC Mariahuis in Gavere organiseert een verkoop van suiker- of hartenwafels ten voordele van de stichting Alzheimeronderzoek. De ingezamelde fondsen geven universiteiten meer mogelijkheden voor onderzoek om levens te verbeteren.<br>
+U kan bestellen tot dinsdag <b>19 september</b>.<br>
+De kostprijs bedraagt 5 EUR per zakje.<br>
+<br>
+Afhalen kan op 26 en <b>27 september</b> tussen 13.30 u. en 16.30 u.<br>
+Interesse: neem contact op met Margot (referentiepersoon dementie in het WZC Mariahuis) op het nummer {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:093892013">09 389 20 13</a> of mail naar {{<icon class="fa fa-envelope">}}&nbsp;<a href="referentdementie@sitemariahuis.be">referentdementie@sitemariahuis.be</a> met vermelding van uw naam, adres, aantal bestelde zakjes suiker en/of hartenwafeltjes en de dag wanneer u uw bestelling afhaalt (Onderstraat 9 Gavere).<br>
+<br>
+<figure><img src="images/pb-suiker.jpg" alt=" suikerwafeltjes (5 EUR) / hartenwafeltjes (5 EUR) © Alzheimer liga Vlaanderen" style="max-height: 500px; max-width: 500px;" /><figcaption> suikerwafeltjes (5 EUR) / hartenwafeltjes (5 EUR) © Alzheimer liga Vlaanderen</figcaption></figure><br>
+<br>
+<br>
+<br>
+
+
+
+
+
+#### GAVERE: HERFSTBUFFET IN WZC MARIAHUIS 13 EN 14 OKTOBER
+<br>
+Als oudere is het belangrijk dat je bezig blijft om verveling te voorkomen en eenzaamheid tegen te gaan. De opbrengst van het herfstbuffet en de tombola zal integraal gebruikt worden om allerhande activiteiten te kunnen organiseren voor de bewoners.<br>
+<br>
+<figure><img src="images/pb-buffet.jpg" alt=" Herfstbuffet Mariahuis © Anneleen Heyse" style="max-height: 500px; max-width: 500px;" /><figcaption> Herfstbuffet Mariahuis © Anneleen Heyse</figcaption></figure><br>
+<br>
+<br>
+<br>
+
+

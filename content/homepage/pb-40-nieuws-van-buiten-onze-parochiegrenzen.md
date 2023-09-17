@@ -53,7 +53,7 @@ DRIE AVONDEN van 20.00 u. tot 21.45 u.<br>
 - <b>12 oktober 2023</b><br>
 - <b>26 oktober 2023</b><br>
 <br>
-en ÉÉN WEEKND<br>
+en ÉÉN WEEKEND<br>
 - op 4 en <b>5 november 2023</b><br>
 <br>
 Info en inschrijven:<br>

@@ -11,25 +11,17 @@ header_menu: true
 
 
 
-#### DAVIDSFONDS NAZARETH-EKE: APEROWANDELING
+#### FEMMA ASPER
 <br>
-<figure><img src="images/pb-apero.jpg" alt=" Aperitiefwandeling © Davidsfonds Nazareth-Eke" style="max-height: 500px; max-width: 500px;" /><figcaption> Aperitiefwandeling © Davidsfonds Nazareth-Eke</figcaption></figure><br>
+<b>Woensdag 27 september</b> , <b>25 oktober</b> en <b>29 november 2023</b> om 19.30 u.: .<br>
+<b>Woensdag 27 september</b> om 19.30 u.: Gezellig haken en breien. Info en inschrijving bij Steffie Beyaert - {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:0472386777">0472 38 67 77</a> of {{<icon class="fa fa-envelope">}}&nbsp;<a href="steffi.beyaert@hotmail.com">steffi.beyaert@hotmail.com</a><br>
+<b>Donderdag 28 september</b> , <b>26 oktober</b>, <b>30 november</b> en <b>14 december</b> om 14.00 u.: .<br>
+<b>Donderdag 28 september</b> om 14.00 u.: BINGO - namiddagen. Inschrijven bij Lydie Vanderstichelen op {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:093841423">09 384 14 23</a> of {{<icon class="fa fa-envelope">}}&nbsp;<a href="lydie.vanderstichelen@telenet.be">lydie.vanderstichelen@telenet.be</a><br>
 <br>
-We inviteren jullie graag op een aperitiefwandeling op zondag <b>10 september</b>.<br>
 <br>
-Afspraak aan de kerk van Dikkelvenne om 09.15 u.<br>
-De wandeling is vlak en duurt ongeveer twee uur, inclusief een verrassende apero stop.<br>
 <br>
-Na de wandeling bieden we jullie nog graag een glas aan.<br>
 <br>
-Deelnameprijs:<br>
-<br>
-Davidsfonds cultuurkaart: 5 EUR.<br>
-Andere: 10 EUR.<br>
-<br>
-Inschrijving door storting op <b>{{<icon class="fa fa-piggy-bank">}}&nbsp;BE62 4457 5147 8161</b> van Davidsfonds Nazareth voor <b>5 september</b>.<br>
-<br>
-Het mooie weer is besteld.<br>
+Alle lessen gaan door in het Ontmoetingscentrum St. Martinus in de Hulstraat te Asper<br>
 <br>
 <br>
 <br>
@@ -39,17 +31,6 @@ Het mooie weer is besteld.<br>
 
 
 #### FERM ASPER: 100 JAAR!
-<br>
-Zaterdagavond <b>16 september</b> om 18.00 u. in de kerk van Asper: Viering met aansluitend een kleine receptie (geen inschrijving vereist)<br>
-<br>
-Zondag <b>17 september</b> in Feestzaal Het Molenhuis, Molenstraat 44, Oudenaarde (Eine)<br>
-- 11.00 u. (stipt): Ontvangst & ceremonie met aansluitend receptie<br>
-- 13.00 u. - ... : Feestmaal<br>
-<br>
-Ferm-Asper-leden vieren gratis mee, partners betalen EUR 50 (all-in)<br>
-Inschrijven bij Christiane Loontjens via {{<icon class="fa fa-envelope">}}&nbsp;<a href="loontjens.chris@telenet.be">loontjens.chris@telenet.be</a> of {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:0479469650">0479 46 96 50</a> voor <b>7 september 2023</b>. Insschrijvingen van partners zijn pas definitief na overschrijving op rekeningnr.:<b>{{<icon class="fa fa-piggy-bank">}}&nbsp;BE07 7374 4201 1966</b> (Ferm Asper) met vermelding van naam lid + naam partner.<br>
-Beter Bewegen : Elke dinsdag vanaf <b>12 september</b> t.e.m. <b>19 december</b> (uitgezonderd schoolvakanties) van 20.00 u. tot 21.00 u. in de sporthal Overbeke, Veldstraat te Asper.<br>
-Een tienbeurtenkaart ten bedrage van 30 EUR (3 EUR/les) kanter plaatse aangekocht worden. Inschrijven hoeft niet, kom gewoon af.<br>
 <br>
 Bloemschikles : Droogbloemen of nazomerse schikking (krans)<br>
 Op woensdag <b>20 september</b> om 14.30 u. of om 19.30 u. in het ontmoetingscentrum Martinus, Hulstraat te Asper.<br>
@@ -66,7 +47,21 @@ Inschrijven voor <b>24 september</b> bij MIcheline Vandecauter via {{<icon class
 
 
 
-#### FERM DIKKELVENNE
+#### FERM DIKKELVENNE: COOLE SOKKEN HAKEN
+<br>
+<br>
+<br>
+Verwen jezelf, je kinderen of kleinkinderen met deze leuke, grappige en comforabele pantoffels, waar je blij van wordt. Je kan kiezen uit 20 verschillende ontwerpen met dieren uit de hele wereld, of je kan het ook eenvoudiger houden. Alle patronen hebben dezelfde basis, die je kan haken in verschillende maten van kindermaat 4 jaar tot volwassen schoenmaten. Geen specifieke ervaring vereist;<br>
+Inlichtingen en inschrijving bij Noëlla Carreel {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:093845939">09 384 59 39</a> - {{<icon class="fa fa-envelope">}}&nbsp;<a href="noellacarreel@gmail.com">noellacarreel@gmail.com</a><br>
+<br>
+<br>
+<br>
+
+
+
+
+
+#### FERM DIKKELVENNE: HEEL DE WERELD BAKT
 <br>
 Op woensdag <b>20 september</b> om 19.00 u. , in zaal Bronnendal, nijverheidsstraat 16 te Dikkelvenne (Dicht bij huis !) organiseert FERM Dikkelvenne  de kookles  "Heel de wereld bakt", verzorgd door  Eva Maenhout .<br>
 Wil je graag eens uitpakken met zelfgemaakt gebak , kom dan langs en maak kennis met onze originele en verrassende recepten.   Ontdek hierbij belangrijkste tips & tricks om met geslaagde creaties uit te pakken !...<br>
@@ -82,35 +77,18 @@ en het betalen van EUR 16  via overschrijving op de KVLV rekening <b>{{<icon cl
 
 
 
-#### LANDELIJKE GILDE EKE: HOEVEFEESTEN
+#### LDC DEN OEVER - KLOOSTERSTRAAT GAVERE
 <br>
-<figure><img src="images/pb-flyer.jpg" alt=" Hoevefeesten © LG Eke" style="max-height: 500px; max-width: 500px;" /><figcaption> Hoevefeesten © LG Eke</figcaption></figure><br>
+<b>20 september</b> 8.30 Ontbijt<br>
 <br>
-<br>
-<br>
-
-
-
-
-
-#### LDC DEN OEVER - KLOOSTERSTRAAT - GAVERE
-<br>
-<figure><img src="images/pb-mantel.jpg" alt=" Mantelzorgcafés © Christine Piens" style="max-height: 500px; max-width: 500px;" /><figcaption> Mantelzorgcafés © Christine Piens</figcaption></figure><br>
-<br>
-<figure><img src="images/pb-zorg.jpg" alt=" Zorgvolmacht © Christine Piens" style="max-height: 500px; max-width: 500px;" /><figcaption> Zorgvolmacht © Christine Piens</figcaption></figure><br>
-<br>
-<b>Woensdag 6 september</b> om 14.00 u.: UNO-namiddag<br>
-<b>Donderdag 7 september</b> om 10.00 u.: Gratis proefles Sacraal dansen<br>
-<b>Donderdag 7 september</b> om 13.00 u.: Spaanse les i.s.m. KISP<br>
-<b>Donderdag 7 september</b> om 14.00 u.: Samen breien en haken<br>
-<b>Dinsdag 12 september</b> om 10.00 u.: Yoga<br>
-<b>Dinsdag 12 september</b> om 13.30 u.: Lijndansen<br>
-<b>Dinsdag 12 september</b> om 14.00 u.: Portrettekenen en Rummikub<br>
-<b>Woensdag 13 september</b> om 14.00 u.: Diamond painting<br>
-<b>Donderdag 14 september</b> om 10.00 u.: Sacraal dansen<br>
-<b>Donderdag 14 september</b> om 13.00 u.: Spaanse les i.s.m. KISP<br>
-<b>Donderdag 14 september</b> om 19.00 u.: Mantelzorgcafé - "Zorgvolmacht"<br>
-<b>Vrijdag 15 september</b> om 14.00 u.: Wandeling - Eerste hulp bij geheugenproblemen<br>
+<b>Woensdag 20 september</b> om 14.00 u.: Bingo<br>
+<b>Donderdag 21 september</b> om 10.00 u.: Sacraal dansen<br>
+<b>Donderdag 21 september</b> om 13.00 u.: Spaanse les i.s.m. KISP<br>
+<b>Donderdag 21 september</b> om 14.00 u. Seniorenraad: Wandeling: Eerste hulp bij geheugenproblemen<br>
+<b>Dinsdag 26 september</b> om 10.00 u.: Yoga<br>
+<b>Dinsdag 26 september</b> om 13.30 u.: Lijndansen<br>
+<b>Dinsdag 26 september</b> om 14.00 u.: Portrettekenen en Rummikub<br>
+<b>Woensdag 27 september</b> om 14.00 u.: Ontmoetingsmoment met bewoners van Kloosterstraat - Onderstraat<br>
 <br>
 <br>
 <br>
@@ -123,11 +101,11 @@ en het betalen van EUR 16  via overschrijving op de KVLV rekening <b>{{<icon cl
 <br>
 <b>OKRA-TREFPUNT EKE nodigt uit...</b><br>
 <br>
-<b>Donderdag 7 september</b> om 14.00 u. in CC De Brouwerij: Lijndans en rummikub<br>
-<b>Dinsdag 12 september</b> om 07.50 u.: Vertrek aan de kerk voor OKRA-regiotreffen in Ieper en verder naar Wevelgem<br>
-<b>Woensdag 13 september</b> om 14.00 u. in CC De Brouwerij: Kaarten<br>
-<b>Donderdag 14 september</b> om 09.00 u. in CC De Brouwerij: Lijndans<br>
-<b>Donderdag 14 september</b> om 13.45 u. vertrek aan de kerk: Wandelen en fietsen<br>
+<b>Donderdag 21 september</b> om 10.00 u. vertrek station De Pinte: Met de trein naar Paul Delvauxmuseum Sint-Idesbalt<br>
+<b>Donderdag 21 september</b> om 14.00 u. in CC De Brouwerij: Lijndans en rummikub<br>
+<b>Woensdag 27 september</b> om 14.00 u. in CC De Brouwerij: Kaarten<br>
+<b>Donderdag 28 september</b> om 09.00 u. in CC De Brouwerij: Lijndans<br>
+<b>Donderdag 28 september</b> om 13.45 u. vertrek aan de kerk: Wandelen en fietsen<br>
 <br>
 <br>
 <br>
@@ -140,11 +118,12 @@ en het betalen van EUR 16  via overschrijving op de KVLV rekening <b>{{<icon cl
 <br>
 Activiteitenkalender<br>
 <br>
-<b>Woensdag 6 september</b> om 09.00 u. aan CC Het Centrum: Showreis naar Plopsaland<br>
-<b>Donderdag 7 september</b> om 14.00 u. aan CC Het Centrum: Fietsen<br>
-<b>Dinsdag 12 september</b> om 08.00 u. parking sporthal Ommegangstraat: Regionale bedevaart naar Ieper<br>
-<b>Dinsdag 12 september</b> om 14.00 u. aan de Sporthal: Petanque<br>
-<b>Donderdag 14 september</b> om 14.00 u. in CC Het Centrum: Lijndansen<br>
+<b>Woensdag 20 september</b> om 14.00 u. in CC Het Centrum: Kermis koffietafel<br>
+<b>Donderdag 21 september</b> om 14.00 u. aan CC Het Centrum: Fietsen<br>
+<b>Maandag 25 september</b> om 09.30 u. CC Het Centrum: Bestuursvergadering<br>
+<b>Dinsdag 26 september</b> om 14.00 u. aan de Sporthal: Petanque<br>
+<b>Donderdag 28 september</b> om 14.00 u. in CC Het Centrum: Lijndansen<br>
+<b>Vrijdag 29 september</b> om 14.00 u. in CC Het Centrum: Modenamiddag<br>
 <br>
 !!! Voor meer info: tel. {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:093855371">09 385 53 71</a><br>
 <br>
@@ -155,7 +134,7 @@ Activiteitenkalender<br>
 
 
 
-#### SAMANA ASPER
+#### SAMANA ASPER: BEZOEK AAN DE AMBACHTELIJKE KOFFIEBRANDERIJ
 <br>
 Op donderdag <b>21 september 2023</b> staat er een halve daguitstap op ons programma, wij brengen een bezoek aan de Ambachtelijke Koffiebranderij <b>'Buizerd en Saars'</b>, Neerreckhemstraat 11a, 9770 Kruisem.<br>
 <br>
@@ -180,10 +159,41 @@ Het team van Samana Asper<br>
 
 
 
-#### SAMANA NAZARETH
+#### SAMANA ASPER: DAG VAN DE CHRONISCH ZIEKE MENS OP 12 OKTOBER 2023 OM 12.00 UUR
 <br>
-<b>Vrijdag 8 september</b>: De Mariale Ommegang met bloemetjes verkoop rondom de kerk tvv Samana Nazareth<br>
-<b>Dinsdag 12 september</b> om 14.00 u. in CC Het Centrum: CREA, gratis, iedereen van harte welkom<br>
+Jaarlijks feestmaal in het O.C. St.Martinus in de Hulstraat te Asper 			- Tomatenroomsoep<br>
+- Hertenragout met groenten en kroketjes<br>
+- Crème brulée met koffie en thee<br>
+<br>
+Prijs: EUR 42/persoon, aperitief en dranken inbegrepen.<br>
+<br>
+Inschrijven kan tegen uiterlijk <b>4 oktober</b> bij Ann Bergez : tel.{{<icon class="fa fa-phone">}}&nbsp;<a href="tel:0477661859">0477 66 18 59</a> of {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:093845583">09 384 55 83</a><br>
+of {{<icon class="fa fa-envelope">}}&nbsp;<a href="annbergez@gmail.com">annbergez@gmail.com</a><br>
+<br>
+U kan cash betalen of via overschrijving op het rekeningnummer van<br>
+Samana Asper : <b>{{<icon class="fa fa-piggy-bank">}}&nbsp;BE53 8912 5401 8253</b><br>
+<br>
+<br>
+<br>
+
+
+
+
+
+#### SAMANA ASPER: SPELNAMIDDAGEN
+<br>
+Spelnamiddagen op <b>19 oktober</b> en <b>23 november 2023</b><br>
+Speel je graag met de kaarten of gooi je liever met de dobbelstenen? Speel je liever Rummikub of hou je niet zo van spelletjes, maar wil je graag andere mensen ontmoeten? Niets moet, alles kan. Voor iedereen is er koffie of thee met een versnapering. Prijs: EUR 4/ persoon.<br>
+Graag inschrijven bij een van de bestuursleden.<br>
+<br>
+<br>
+<br>
+
+
+
+
+
+#### SAMANA NAZARETH
 <br>
 <br>
 <br>

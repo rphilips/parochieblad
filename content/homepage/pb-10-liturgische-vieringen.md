@@ -24,7 +24,7 @@ header_menu: true
 </dl>
 
 ##### Zaterdag 23 september 2023  
-<dl><dt>&nbsp;</dt><dd>H. Pius van Pietrelcina, priester<br></dd><dt><b>18.00 u. Eke:</b></dt><dd>Jgt. Raymond Goeman en echtg. Madeleine De Smeyter en kinderen Gabriel en Monique<br>Martin Goeman en echtg. Annette Seeuws<br>Andrea Bracke<br>Om een gunst te bekomen voor een bijzondere genezing<br>Voor O.L.Vrouw en de Heilige Rita<br>Rufin Goeman, echtg. Maria Vandecapelle<br>Agnes Bijn en overleden familieleden<br><i>Lector: Eigen lectoren</i></dd>
+<dl><dt>&nbsp;</dt><dd>H. Pius van Pietrelcina, priester<br></dd><dt><b>18.00 u. Eke:</b></dt><dd>Jgt. Raymond Goeman en echtg. Madeleine De Smeyter en kinderen Gabriel en Monique<br>Martin Goeman en echtg. Annette Seeuws<br>Rufin Goeman, echtg. Maria Vandecapelle<br>Andrea Bracke<br>Om een gunst te bekomen voor een bijzondere genezing<br>Voor O.L.Vrouw en de Heilige Rita<br>Rufin Goeman, echtg. Maria Vandecapelle<br>Agnes Bijn en overleden familieleden<br><i>Lector: Eigen lectoren</i></dd>
 </dl>
 
 ##### Zondag 24 september 2023  

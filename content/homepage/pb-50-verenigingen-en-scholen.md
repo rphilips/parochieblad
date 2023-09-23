@@ -18,6 +18,7 @@ header_menu: true
 <b>Donderdag 28 september</b> , <b>26 oktober</b>, <b>30 november</b> en <b>14 december</b> om 14.00 u.: .<br>
 <b>Donderdag 28 september</b> om 14.00 u.: BINGO - namiddagen. Inschrijven bij Lydie Vanderstichelen op {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:093841423">09 384 14 23</a> of {{<icon class="fa fa-envelope">}}&nbsp;<a href="lydie.vanderstichelen@telenet.be">lydie.vanderstichelen@telenet.be</a><br>
 <br>
+<b>Woensdag 4 oktober</b> om 19.00 u.: Bakken voor zoetebekken. We focussen ons op het maken van dessertkoekjes zoals bokkepootjes, baisers, rotskes, tartines russes, margrietjes... roubleyn via {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:093240942">09 324 09 42</a> of {{<icon class="fa fa-envelope">}}&nbsp;<a href="troubleynma@telenet.be">troubleynma@telenet.be</a><br>
 <br>
 <br>
 <br>
@@ -32,10 +33,6 @@ Alle lessen gaan door in het Ontmoetingscentrum St. Martinus in de Hulstraat te 
 
 #### FERM ASPER: 100 JAAR!
 <br>
-Bloemschikles : Droogbloemen of nazomerse schikking (krans)<br>
-Op woensdag <b>20 september</b> om 14.30 u. of om 19.30 u. in het ontmoetingscentrum Martinus, Hulstraat te Asper.<br>
-Info en inschrijvingen voor <b>15 september</b> bij Christiane Devenyns op {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:0474667476">0474 66 74 76</a>of via {{<icon class="fa fa-envelope">}}&nbsp;<a href="christianedevenyns@hotmail.com.">christianedevenyns@hotmail.com.</a><br>
-<br>
 Kookles: Feestelijke stoofpotjes en ovenschotels<br>
 Op woensdag <b>27 september</b> om 19.00 u. in het OC Martinus, Hulstraat te Asper.<br>
 Inschrijven voor <b>24 september</b> bij MIcheline Vandecauter via {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:093860859">09 386 08 59</a> of via {{<icon class="fa fa-envelope">}}&nbsp;<a href="micheline.vdcautere@gmail.com">micheline.vdcautere@gmail.com</a><br>
@@ -49,9 +46,10 @@ Inschrijven voor <b>24 september</b> bij MIcheline Vandecauter via {{<icon class
 
 #### FERM DIKKELVENNE: COOLE SOKKEN HAKEN
 <br>
+<b>Woensdag 4 oktober</b> om 14.00 u. in zaal 'Bronnendal': Coole sokken haken<br>
 <br>
 <br>
-Verwen jezelf, je kinderen of kleinkinderen met deze leuke, grappige en comforabele pantoffels, waar je blij van wordt. Je kan kiezen uit 20 verschillende ontwerpen met dieren uit de hele wereld, of je kan het ook eenvoudiger houden. Alle patronen hebben dezelfde basis, die je kan haken in verschillende maten van kindermaat 4 jaar tot volwassen schoenmaten. Geen specifieke ervaring vereist;<br>
+Verwen jezelf, je kinderen of kleinkinderen met deze leuke, grappige en comforabele pantoffels, waar je blij van wordt. Je kan kiezen uit 20 verschillende ontwerpen met dieren uit de hele wereld, of je kan het ook eenvoudiger houden. Alle patronen hebben dezelfde basis, die je kan haken in verschillende maten van kindermaat 4 jaar tot volwassen schoenmaten. Geen specifieke ervaring vereist!<br>
 Inlichtingen en inschrijving bij Noëlla Carreel {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:093845939">09 384 59 39</a> - {{<icon class="fa fa-envelope">}}&nbsp;<a href="noellacarreel@gmail.com">noellacarreel@gmail.com</a><br>
 <br>
 <br>
@@ -61,14 +59,21 @@ Inlichtingen en inschrijving bij Noëlla Carreel {{<icon class="fa fa-phone">}}&
 
 
 
-#### FERM DIKKELVENNE: HEEL DE WERELD BAKT
+#### GAVERE: LDC 'DEN OEVER'
 <br>
-Op woensdag <b>20 september</b> om 19.00 u. , in zaal Bronnendal, nijverheidsstraat 16 te Dikkelvenne (Dicht bij huis !) organiseert FERM Dikkelvenne  de kookles  "Heel de wereld bakt", verzorgd door  Eva Maenhout .<br>
-Wil je graag eens uitpakken met zelfgemaakt gebak , kom dan langs en maak kennis met onze originele en verrassende recepten.   Ontdek hierbij belangrijkste tips & tricks om met geslaagde creaties uit te pakken !...<br>
-Kost  : EUR 16  ( EUR 19 voor niet-leden)<br>
-Je kan je inschrijven voor de les tot en met zaterdag <b>16 september</b> bij Christianne De Doncker<br>
-via telefoon naar {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:093843952">09 384 39 52</a> of via mail naar {{<icon class="fa fa-envelope">}}&nbsp;<a href="christiane.de.donker@telenet.be">christiane.de.donker@telenet.be</a><br>
-en het betalen van EUR 16  via overschrijving op de KVLV rekening <b>{{<icon class="fa fa-piggy-bank">}}&nbsp;BE49 8913 7412 5471</b> met vermelding van  de kookles en je naam.<br>
+<b>Woensdag 27 september</b> om 14.00 u.: Ontmoetingsmoment met bewoners Kloosterstraat - Onderstraat<br>
+<b>Donderdag 28 september</b> om 10.00 u.: Sacraal dansen<br>
+<b>Donderdag 28 september</b> om 13.00 u.: Spaanse les i.s.m. KISP<br>
+<b>Donderdag 28 september</b> om 14.00 u. Bont baknamiddag: Appelbeignets<br>
+<br>
+Familiegroep dementie: Wandeling: Eerste hulp bij geheugenproblemen<br>
+<b>2 oktober</b> 14.00 Kaarten i.s.m. OKRA<br>
+<b>3 oktober</b> 10.00 Yoga<br>
+<b>3 oktober</b> 14.00 Lijndansen, Portrettekenen, Rummikub<br>
+<b>4 oktober</b> 14.00 UNO - spelnamiddag<br>
+<b>5 oktober</b> 10.00 Sacraal dansen<br>
+<b>5 oktober</b> 13.00 Spaanse les i.s.m. KISP<br>
+<b>5 oktober</b> 14.00 Samen breien & haken<br>
 <br>
 <br>
 <br>
@@ -77,18 +82,9 @@ en het betalen van EUR 16  via overschrijving op de KVLV rekening <b>{{<icon cl
 
 
 
-#### LDC DEN OEVER - KLOOSTERSTRAAT GAVERE
+#### LG / FERM / KLJ NAZARETH: 40E BARBECUE
 <br>
-<b>20 september</b> 8.30 Ontbijt<br>
-<br>
-<b>Woensdag 20 september</b> om 14.00 u.: Bingo<br>
-<b>Donderdag 21 september</b> om 10.00 u.: Sacraal dansen<br>
-<b>Donderdag 21 september</b> om 13.00 u.: Spaanse les i.s.m. KISP<br>
-<b>Donderdag 21 september</b> om 14.00 u. Seniorenraad: Wandeling: Eerste hulp bij geheugenproblemen<br>
-<b>Dinsdag 26 september</b> om 10.00 u.: Yoga<br>
-<b>Dinsdag 26 september</b> om 13.30 u.: Lijndansen<br>
-<b>Dinsdag 26 september</b> om 14.00 u.: Portrettekenen en Rummikub<br>
-<b>Woensdag 27 september</b> om 14.00 u.: Ontmoetingsmoment met bewoners van Kloosterstraat - Onderstraat<br>
+<figure><img src="images/pb-bbq.jpg" alt=" FEMMA ASPER LG / FERM / KLJ NAZARETH: 40e Barbecue © LG / FERM / KLJ NAZARETH" style="max-height: 500px; max-width: 500px;" /><figcaption> FEMMA ASPER LG / FERM / KLJ NAZARETH: 40e Barbecue © LG / FERM / KLJ NAZARETH</figcaption></figure><br>
 <br>
 <br>
 <br>
@@ -101,11 +97,14 @@ en het betalen van EUR 16  via overschrijving op de KVLV rekening <b>{{<icon cl
 <br>
 <b>OKRA-TREFPUNT EKE nodigt uit...</b><br>
 <br>
-<b>Donderdag 21 september</b> om 10.00 u. vertrek station De Pinte: Met de trein naar Paul Delvauxmuseum Sint-Idesbalt<br>
-<b>Donderdag 21 september</b> om 14.00 u. in CC De Brouwerij: Lijndans en rummikub<br>
 <b>Woensdag 27 september</b> om 14.00 u. in CC De Brouwerij: Kaarten<br>
 <b>Donderdag 28 september</b> om 09.00 u. in CC De Brouwerij: Lijndans<br>
 <b>Donderdag 28 september</b> om 13.45 u. vertrek aan de kerk: Wandelen en fietsen<br>
+<br>
+<b>Maandag 2 oktober</b> om 13.30 u. in CC De Brouwerij: Crea-atelier<br>
+<b>Dinsdag 3 oktober</b> om 14.00 u. in Sporthal Nazareth: Petanque<br>
+<b>Donderdag 5 oktober</b> om 14.00 u. in CC De Brouwerij: Lijndans en rummikub<br>
+<b>Vrijdag 6 oktober</b> om 11.00 u.: Vertrek aan de kerk naar Philippine en Sluis, groep 1<br>
 <br>
 <br>
 <br>
@@ -118,39 +117,14 @@ en het betalen van EUR 16  via overschrijving op de KVLV rekening <b>{{<icon cl
 <br>
 Activiteitenkalender<br>
 <br>
-<b>Woensdag 20 september</b> om 14.00 u. in CC Het Centrum: Kermis koffietafel<br>
-<b>Donderdag 21 september</b> om 14.00 u. aan CC Het Centrum: Fietsen<br>
-<b>Maandag 25 september</b> om 09.30 u. CC Het Centrum: Bestuursvergadering<br>
-<b>Dinsdag 26 september</b> om 14.00 u. aan de Sporthal: Petanque<br>
 <b>Donderdag 28 september</b> om 14.00 u. in CC Het Centrum: Lijndansen<br>
 <b>Vrijdag 29 september</b> om 14.00 u. in CC Het Centrum: Modenamiddag<br>
 <br>
+<b>Maandag 2 oktober</b> om 13.30 u. aan cc Het Centrum: Wandelen<br>
+<b>Dinsdag 3 oktober</b> om 14.00 u. in cc Het Centrum: Kaarten, Rummikub<br>
+<b>Donderdag 5 oktober</b> om 14.00 u. aan cc Het Centrum: Fietsen<br>
+<br>
 !!! Voor meer info: tel. {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:093855371">09 385 53 71</a><br>
-<br>
-<br>
-<br>
-
-
-
-
-
-#### SAMANA ASPER: BEZOEK AAN DE AMBACHTELIJKE KOFFIEBRANDERIJ
-<br>
-Op donderdag <b>21 september 2023</b> staat er een halve daguitstap op ons programma, wij brengen een bezoek aan de Ambachtelijke Koffiebranderij <b>'Buizerd en Saars'</b>, Neerreckhemstraat 11a, 9770 Kruisem.<br>
-<br>
-Tijdens de rondleiding krijgen wij toelichting over de geschiedenis, oorsprong, variëteiten, teelt, verwerkingsproces en het branden van koffie.<br>
-Na de uitleg kunnen wij proeven van een lekkere tas koffie met bijhorende lekkernijen.<br>
-De duurtijd van het bezoek bedraagt ongeveer 2 uur.<br>
-<br>
-Wij vertrekken om 14.00 u. aan het Carlos Dierickxplein. De uitstap doen we met eigen vervoer. Voor wie, die dag, chauffeur is, vergeet niet de nummerplaat en het merk van wagen te noteren op het inschrijvingsstrookje. Wij vragen een tijdelijke verzekering aan bij Samana.<br>
-<br>
-<b>Inschrijven kan tot uiterlijk 12 september bij Lydie Vanderstichelen, Leebeeklaan 34, tel. {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:093841423">09 384 14 23</a>, e-mail: {{<icon class="fa fa-envelope">}}&nbsp;<a href="lydie.vanderstichelen@telenet.be.">lydie.vanderstichelen@telenet.be.</a> Tijdig inschrijven is de boodschap het aantal deelnemers is beperkt!</b><br>
-<br>
-Deelnemen kost 15 EUR per persoon, rondleiding en proeven inbegrepen.<br>
-<br>
-De branderij is toegankelijk voor rolstoelpatienten!<br>
-<br>
-Het team van Samana Asper<br>
 <br>
 <br>
 <br>
@@ -195,6 +169,7 @@ Graag inschrijven bij een van de bestuursleden.<br>
 
 #### SAMANA NAZARETH
 <br>
+<b>Zondag 8 oktober</b> om 10.30 u. Kerk Nazareth: Herdenking van de afgestorven leden van Samana in de zondagsmis en dit op <i>'De Dag van de Chronisch Zieke Mens '</i><br>
 <br>
 <br>
 <br>

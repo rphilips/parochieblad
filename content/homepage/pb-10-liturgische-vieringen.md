@@ -11,35 +11,6 @@ header_menu: true
 <br>
 <br>
 
-##### Woensdag 20 september 2023  
-<dl><dt>&nbsp;</dt><dd>HH. Andreas Kim Taegon, priester, en Paulus Chong Hasang en gezellen, martelaren<br></dd><dt><b>08.30 u. Nazareth:</b></dt><dd>Mis t.e.v. Onze Lieve Vrouw van Nazareth</dd>
-</dl>
-
-##### Donderdag 21 september 2023  
-<dl><dt>&nbsp;</dt><dd>H. Matteüs, apostel en evangelist<br></dd><dt><b>08.00 u. Eke:</b></dt><dd>Bijzondere intentie</dd>
-</dl>
-
-##### Vrijdag 22 september 2023  
-<dl><dt><b>08.00 u. Eke:</b></dt><dd>*GEEN eucharistieviering*</dd>
-</dl>
-
-##### Zaterdag 23 september 2023  
-<dl><dt>&nbsp;</dt><dd>H. Pius van Pietrelcina, priester<br></dd><dt><b>18.00 u. Eke:</b></dt><dd>Jgt. Raymond Goeman en echtg. Madeleine De Smeyter en kinderen Gabriel en Monique<br>Martin Goeman en echtg. Annette Seeuws<br>Rufin Goeman, echtg. Maria Vandecapelle<br>Andrea Bracke<br>Om een gunst te bekomen voor een bijzondere genezing<br>Voor O.L.Vrouw en de Heilige Rita<br>Rufin Goeman, echtg. Maria Vandecapelle<br>Agnes Bijn en overleden familieleden<br><i>Lector: Eigen lectoren</i></dd>
-</dl>
-
-##### Zondag 24 september 2023  
-<dl><dt>&nbsp;</dt><dd>25e Zondag door het jaar<br>Werelddag Migranten / Vluchtelingen<br></dd><dt><b>09.00 u. Gavere:</b></dt><dd>Eeuwigdurend voor Maria De Muynck<br><i>Lector: Rita Coryn</i></dd>
-<dt><b>10.30 u. Nazareth:</b></dt><dd>Jgt. Polydoor De Beir, echtg. Mariette De Wilde<br>Jgt. Albert Vincke, echtg. Helena Dupont<br>Plechtige hoogmis en afsluiten van de 15 dagen t.e.v. Onze Lieve Vrouw van Nazareth<br><i>Lector: Jo Buysse</i></dd>
-</dl>
-
-##### Maandag 25 september 2023  
-<dl><dt>&nbsp;</dt><dd>H. Gerolf, martelaar<br></dd><dt><b>08.00 u. Eke:</b></dt><dd>*GEEN eucharistieviering*</dd>
-</dl>
-
-##### Dinsdag 26 september 2023  
-<dl><dt>&nbsp;</dt><dd>HH. Cosmas en Damianus, martelaren<br></dd><dt><b>08.00 u. Eke:</b></dt><dd>*GEEN eucharistieviering*</dd>
-</dl>
-
 ##### Woensdag 27 september 2023  
 <dl><dt>&nbsp;</dt><dd>H. Vincentius a Paulo, priester<br></dd><dt><b>08.30 u. Nazareth:</b></dt><dd>Familie Kervyn-De Volkaersbeke</dd>
 </dl>
@@ -59,6 +30,35 @@ header_menu: true
 ##### Zondag 1 oktober 2023  
 <dl><dt>&nbsp;</dt><dd>26e Zondag door het jaar<br><b>H. Theresia van Lisieux,</b> maagd en kerklerares<br>H. BAVO, kloosterling, patroonsfeest van het bisdom<br></dd><dt><b>09.00 u. Gavere:</b></dt><dd>T.e.v. Onze-Lieve-Vrouw Altijddurende bijstand<br>Jgt. Voor Antoine Van der Haegen, echtgenoot van Antoinette Martens<br><i>Lector: Luc De Coninck</i></dd>
 <dt><b>10.30 u. Nazareth:</b></dt><dd>O.L.Vrouw van Nazareth<br><i>Lector: Annemie De Gussem</i></dd>
+</dl>
+
+##### Maandag 2 oktober 2023  
+<dl><dt>&nbsp;</dt><dd>HH. Engelbewaarders<br></dd><dt><b>08.00 u. Eke:</b></dt><dd>V.M.</dd>
+</dl>
+
+##### Dinsdag 3 oktober 2023  
+<dl><dt>&nbsp;</dt><dd>H. Gerardus van Brogne, abt<br></dd><dt><b>08.00 u. Eke:</b></dt><dd>Overleden zus</dd>
+</dl>
+
+##### Woensdag 4 oktober 2023  
+<dl><dt>&nbsp;</dt><dd>H. Franciscus van Assisi<br></dd><dt><b>08.30 u. Nazareth:</b></dt><dd>Mis stichtingen 11/15</dd>
+</dl>
+
+##### Donderdag 5 oktober 2023  
+<dl><dt>&nbsp;</dt><dd>H. Theresia van het kind Jezus, maagd en kerklerares<br></dd><dt><b>08.00 u. Eke:</b></dt><dd>Voor overledenen</dd>
+</dl>
+
+##### Vrijdag 6 oktober 2023  
+<dl><dt>&nbsp;</dt><dd>H. Bruno van Keulen, priester<br>Z. Isidoor de Loor, kloosterling<br></dd><dt><b>08.00 u. Eke:</b></dt><dd>Bijzondere intentie</dd>
+</dl>
+
+##### Zaterdag 7 oktober 2023  
+<dl><dt>&nbsp;</dt><dd>Onze-Lieve-Vrouw van de Rozenkrans<br></dd><dt><b>18.00 u. Eke:</b></dt><dd>Paul Van Dorpe en familie<br>Jgt. Maria Steyaert<br><i>Lector: Ingrid Clemmen</i></dd>
+</dl>
+
+##### Zondag 8 oktober 2023  
+<dl><dt>&nbsp;</dt><dd>27e Zondag door het jaar<br></dd><dt><b>09.00 u. Gavere:</b></dt><dd>T.e.v. het kind Jezus van Praag uit dank<br>Eeuwigdurend voor de familie De Vreese<br><i>Lector: Isabelle Tuypens</i></dd>
+<dt><b>10.30 u. Nazareth:</b></dt><dd>Jgt. Raymond Bogaert en echtg. Lisette Dupré<br>Samana: dag van de chronisch zieke mens<br><i>Lector: Marc Perseyn</i></dd>
 </dl>
 <br>
 <br>

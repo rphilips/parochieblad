@@ -53,7 +53,7 @@ header_menu: true
 </dl>
 
 ##### Zaterdag 7 oktober 2023  
-<dl><dt>&nbsp;</dt><dd>Onze-Lieve-Vrouw van de Rozenkrans<br></dd><dt><b>18.00 u. Eke:</b></dt><dd>Paul Van Dorpe en familie<br>Jgt. Maria Steyaert<br><i>Lector: Ingrid Clemmen</i></dd>
+<dl><dt>&nbsp;</dt><dd>Onze-Lieve-Vrouw van de Rozenkrans<br></dd><dt><b>18.00 u. Eke:</b></dt><dd>Paul Van Dorpe en familie<br>Onze-Lieve-Vrouw van de Rozenkrans<br>Jgt. Maria Steyaert<br><i>Lector: Ingrid Clemmen</i></dd>
 </dl>
 
 ##### Zondag 8 oktober 2023  

@@ -40,7 +40,7 @@ Daarom graag een dankwoord aan al onze vrijwilligers:<br>
 <br>
 Dank aan de dragers van het Mariabeeld, dank aan onze kruisdrager die ieder jaar opnieuw onze Ommegang opent, dank aan de mensen die voor de veiligheid rond de geluidswagen zorgen, dank aan de aanstaande vormelingen voor het dragen van het bord van O.L.V. en om mee te stappen in onze Ommegang, dank aan onze fotografen die meehelpen om ons erfgoed vast te leggen, dank aan de lokale politie om voor onze veiligheid te zorgen, dank aan de voorlezer en de chauffeur van de microwagen, dank aan de buurtbewoners om hun kapel mooi te versieren, dank aan de voorlezers in de kerk, dank aan de mensen die meehelpen bij de koffietafel, dank aan de verenigingen met hun vlag, dank aan pastoor Guy Claus, dank aan alle bedevaarders én aan de mensen die we in voorgaande opsomming vergeten zijn.<br>
 <br>
-Binnenkort zullen alle foto's te bekijken zijn op de website: www.parochie-in-gavere-nazareth.be<br>
+Vanaf nu zijn alle foto's te bekijken op de website van de Mariale Ommegang: www.mariale-ommegang-nazareth.be en ook via www.parochie-in-gavere-nazareth.be<br>
 <br>
 <br>
 <br>

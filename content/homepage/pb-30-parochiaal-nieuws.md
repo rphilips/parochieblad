@@ -11,36 +11,148 @@ header_menu: true
 
 
 
-#### NAZARETH: MARIALE OMMEGANG IN WOORD EN BEELD (DEEL 2)
+#### OVERLIJDEN
 <br>
-Vorige week konden jullie het eerste deel foto's bekijken van de Mariale Ommegang.<br>
+We namen in de kerk afscheid van:<br>
 <br>
-Onze Werkgroep mocht dit jaar op 2 enthousiaste fotografen rekenen.<br>
-Na de sprekende foto's van Sebastian vorige week, laten we jullie deze week genieten van de sfeervolle foto's van Annick.<br>
-Dank je wel aan onze beide fotografen voor hun prachtige beelden.<br>
+<i>Aimé De Sloover</i>, 85 j., wed. Edith Van Hoorde, WZC de Lichtervelde<br>
 <br>
-<figure><img src="images/pb-post.jpg" alt=" De vrijwilligers zijn reeds op post © Annick Geiregat" style="max-height: 500px; max-width: 500px;" /><figcaption> De vrijwilligers zijn reeds op post © Annick Geiregat</figcaption></figure><br>
 <br>
-<figure><img src="images/pb-politie.jpg" alt=" De politie zorgt voor onze veiligheid © Annick Geiregat" style="max-height: 500px; max-width: 500px;" /><figcaption> De politie zorgt voor onze veiligheid © Annick Geiregat</figcaption></figure><br>
 <br>
-<figure><img src="images/pb-kasteel.jpg" alt=" Sfeerbeeld in de Kasteelstraat © Annick Geiregat" style="max-height: 500px; max-width: 500px;" /><figcaption> Sfeerbeeld in de Kasteelstraat © Annick Geiregat</figcaption></figure><br>
+
+
+
+
+
+#### HERABONNERING KERK & LEVEN - SAMEN OP WEG
 <br>
-<figure><img src="images/pb-jeugd.jpg" alt=" Sfeerbeeld in de Kasteelstraat met jeugd en bedevaarders © Annick Geiregat" style="max-height: 500px; max-width: 500px;" /><figcaption> Sfeerbeeld in de Kasteelstraat met jeugd en bedevaarders © Annick Geiregat</figcaption></figure><br>
+<figure><img src="images/pb-saweg.jpg" alt=" Samen op weg © Halewijn" style="max-height: 500px; max-width: 500px;" /><figcaption> Samen op weg © Halewijn</figcaption></figure><br>
 <br>
-<figure><img src="images/pb-vorm.jpg" alt=" Aanstaande vormelingen dragen het bord van OLV © Annick Geiregat" style="max-height: 500px; max-width: 500px;" /><figcaption> Aanstaande vormelingen dragen het bord van OLV © Annick Geiregat</figcaption></figure><br>
+Begin dit jaar verscheen Kerk & Leven in een opgefrist kleedje, met ook inhoudelijke vernieuwingen. Met onze redacties blijven we vanop verschillende niveaus - lokaal en nationaal - als één team samen op weg gaan om u wekelijks te inspireren, te informeren en te verbinden met nieuws uit Kerk en samenleving.<br>
 <br>
-<figure><img src="images/pb-omsluit.jpg" alt=" De Ommegang afsluiten in de kerk © Annick Geiregat" style="max-height: 500px; max-width: 500px;" /><figcaption> De Ommegang afsluiten in de kerk © Annick Geiregat</figcaption></figure><br>
+We doen dit op vertrouwde, stevig gefundeerde wegen maar durven daarbij ook nieuwe paden te betreden. Dit om week na week waardevolle informatie te kunnen brengen over alles wat rondom ons gebeurt, van de eigen parochie tot de grote wereldkerk.<br>
 <br>
-<figure><img src="images/pb-gdruk.jpg" alt=" De grootste drukte is voorbij in CC Het Centrum © Annick Geiregat" style="max-height: 500px; max-width: 500px;" /><figcaption> De grootste drukte is voorbij in CC Het Centrum © Annick Geiregat</figcaption></figure><br>
+Mogen we ook in het komende jaar samen met u als lezer op weg, trouw aan de boodschap en de weg die Hij ons heeft getoond?<br>
 <br>
-De Mariale Ommegang wordt ieder jaar voorbereid door de Werkgroep Mariale Ommegang. Deze telt 9 leden.<br>
-Maar om op <b>8 september</b> alles vlot te laten verlopen, hebben we de hulp nodig van een gans pak vrijwilligers. Deze vrijwilligers helpen er mee voor zorgen dat alles vlekkeloos verloopt.<br>
+Ool de uitgeverswereld ontsnapt niet aan de langdurige en torenhoge inflatie. De sterk gestegen energie- en grondstofprijzen (waaronder die van papier en inkt), de alsmaar hogere distributieprijzen en de loonindexering moet Halewijn helaas maar onvermijdelijk doorrekenen in de abonnementstarieven.<br>
+We beseffen dat de prijsstijging dit jaar meer dan gemiddeld is ten opzichte van de voorgaande jaren. Met de nieuwe tarieven voor een jaarabonnement kunnen we wekelijks een kwaliteitsvol blad in de brievenbus bezorgen.<br>
 <br>
-Daarom graag een dankwoord aan al onze vrijwilligers:<br>
+<b>De aangepaste tarieven (inclusief postverzending in België) voor 2024 zijn: 67 EUR voor een gewoon abonnement en vanaf 69 EUR voor een steunabonnement.</b><br>
 <br>
-Dank aan de dragers van het Mariabeeld, dank aan onze kruisdrager die ieder jaar opnieuw onze Ommegang opent, dank aan de mensen die voor de veiligheid rond de geluidswagen zorgen, dank aan de aanstaande vormelingen voor het dragen van het bord van O.L.V. en om mee te stappen in onze Ommegang, dank aan onze fotografen die meehelpen om ons erfgoed vast te leggen, dank aan de lokale politie om voor onze veiligheid te zorgen, dank aan de voorlezer en de chauffeur van de microwagen, dank aan de buurtbewoners om hun kapel mooi te versieren, dank aan de voorlezers in de kerk, dank aan de mensen die meehelpen bij de koffietafel, dank aan de verenigingen met hun vlag, dank aan pastoor Guy Claus, dank aan alle bedevaarders én aan de mensen die we in voorgaande opsomming vergeten zijn.<br>
+In de tweede helft van oktober gaan de vrijwilligers van Nazareth en Eke opnieuw op pad. Bij de abonnees van groot-Gavere zullen de herabonneringsbrieven net zoals de voorgaande jaren in diezelfde periode in hun bus vallen.<br>
 <br>
-Vanaf nu zijn alle foto's te bekijken op de website van de Mariale Ommegang: www.mariale-ommegang-nazareth.be en ook via www.parochie-in-gavere-nazareth.be<br>
+Mogen wij nogmaals aandringen om steeds de gestructureerde mededeling te gebruiken bij betalingen. Als lokale medewerker weten wij aan de hand van deze gestructureerde mededeling feilloos voor welk abonnement een ontvangen betaling bedoeld is (zelfs indien de betaling gedaan werd door iemand anders dan de abonnee zelf). Met dank om hiermee rekening te houden.<br>
+<br>
+<br>
+<br>
+
+
+
+
+
+#### OKTOBER - ROZENKRANSMAAND
+<br>
+<figure><img src="images/pb-wili.jpg" alt=" Glasraam De Rozenkrans Sint-Willibrorduskerk (Merksplas) © Wikimedia Commons" style="max-height: 500px; max-width: 500px;" /><figcaption> Glasraam De Rozenkrans Sint-Willibrorduskerk (Merksplas) © Wikimedia Commons</figcaption></figure><br>
+<br>
+In onze Rooms-Katholieke Kerk is de maand oktober gewijd aan de Rozenkrans. De keuze van deze maand hangt samen met het feest van O.-L.-V. van de Rozenkrans dat sinds de 16e eeuw op <b>7 oktober</b> gevierd wordt.<br>
+<br>
+De rozenkrans dankt haar naam, volgens de katholieke overlevering, aan een openbaring van Maria zelf: iedere keer dat een 'wees gegroet' wordt gebeden, schenkt men haar een mooie roos.<br>
+<br>
+Tijdens het rozenkransgebed gedenkt men de geloofsmysteries: de 'blijde', de ' droevige ' en de ' glorievolle' mysteries . Bij elkaar geven zij een samenvatting van het evangelie.<br>
+<br>
+Maria speelt een belangrijke rol in deze devotie. Maria wordt gezien als iemand die tot de wereld van mensen behoort maar die tegelijkertijd ook tot de wereld van God behoort.<br>
+<br>
+<br>
+<br>
+
+
+
+
+
+#### OKTOBERCAMPAGNE MISSIO - THEMA "DEEL JE VREUGDE"
+<br>
+<figure><img src="images/pb-missio.jpg" alt=" Missio © Chantal Leterme" style="max-height: 500px; max-width: 500px;" /><figcaption> Missio © Chantal Leterme</figcaption></figure><br>
+<br>
+Oktober is in de hele katholieke kerk de actiemaand van Missio. Dit jaar staat Kameroen in de schijnwerpers. Centraal staat natuurlijk altijd de verkondiging en beleving van het evangelie. Dit mondt uit in een wereldwijd netwerk van solidariteit.<br>
+<br>
+<b>'Deel je vreugde'</b> is het motto voor deze missiemaand. Geïnspireerd door het verhaal van de Emmaüsgangers (Lucas 24, 18-35) herinnert dit motto aan de vreugde die de twee mannen ervoeren toen ze de Verrezen Heer herkenden tijdens het breken van het brood. Door deze ontmoeting veranderde hun teleurstelling in vreugde om Jezus te gaan verkondigen. Missionarissen van vreugde, dat zijn de getuigen die onze gebroken wereld nodig heeft.<br>
+In de maand oktober komen katholieke gemeenschappen in actie om de missie van de Kerk in arme gebieden te ondersteunen. Deze solidariteit uit zich niet alleen in materiële hulp, maar ook in gebed. Moge de missiemaand ons helpen deze vreugde van het geloven te herontdekken en te delen.<br>
+<br>
+<b>Kameroen</b><br>
+<b>Een land met potentieel, maar met harde tijden voor de Kerk</b><br>
+<br>
+Kameroen leeft voornamelijk van de landbouw. Het exporteert o.m. koffie, cacao, ananas, katoen, olie, aluminium en hout. Tot het land geteisterd werd door terreur konden de meeste boeren op het platteland voorzien in de behoeften van hun eigen gezin of familie. Vijf opeenvolgende bedreigingen zorgden voor een ommezwaai: terreur, conflicten met buurlanden, burgeroorlog in de Centraal Afrikaanse Republiek, Covid19 en de gevolgen van de oorlog tussen Oekraïne en Rusland.<br>
+<br>
+Ook de Kerk heeft het moeilijker omdat er minder giften gegeven worden. Onder het terreurbewind hebben de priesters in de stedelijke omgeving en op het platteland het moeilijk om hun werk te doen. Gewapende groepen en bendes maken de wegen en paden te gevaarlijk om te reizen. Materiële hulp is nodig voor de vorming van priesters en leken, voor de verspreiding van het geloof in gebieden waar het onrustig en onveilig is en voor de opvang van kinderen die slachtoffer zijn van het geweld en de politiek-economische crisis.<br>
+<br>
+De <b>jaarlijke omhaling</b> voor het project is in het weekend van <b>21-22 oktober</b>. Uw gift heeft een ongelooflijk positief effect omdat ze daar wordt geïnvesteerd waar de nood het hoogst is. Dank u dat u zich aansluit bij de gelovigen uit de hele wereld die door hun donaties helpen hoop en een betere toekomst te bieden.<br>
+U kan ook storten op het rekeningnummer van Missio <b>{{<icon class="fa fa-piggy-bank">}}&nbsp;BE19 0000 0421 1012</b><br>
+<br>
+<b>Gebed</b><br>
+<br>
+<i>God, onze Vader,</i><br>
+<i>uw Zoon heeft ons zijn missie toevertrouwd.</i><br>
+<i>Kijk naar ons.</i><br>
+<i>We zijn als de Emmaüsgangers: </i><br>
+<i>mannen en vrouwen</i><br>
+<i>die het soms moeilijk hebben,</i><br>
+<i>mensen met twijfels, met moeilijke dagen.</i><br>
+<i>Onze zorgen en onze vreugde vertrouwen we U toe.</i><br>
+<i>Ga met ons mee op de weg van het leven.</i><br>
+<i>Luister naar onze zorgen, onze vreugde.</i><br>
+<i>Open ons hart voor uw Woord,</i><br>
+<i>doe ook ons hart branden.</i><br>
+<i>Kom aan onze tafel zitten,</i><br>
+<i>open onze ogen om U te herkennen</i><br>
+<i>in het breken van het brood</i><br>
+<i>en in het delen van ons leven.</i><br>
+<i>Vol vreugde zullen we dan opstaan</i><br>
+<i>om uw liefde aan onze wereld te openbaren. Amen.</i><br>
+<br>
+Théogène Havugimana<br>
+<br>
+<br>
+<br>
+
+
+
+
+
+#### OMHALING NAZARETHSE MISSIONARISSEN
+<br>
+De omhaling van zondag <b>17 september 2023</b> ten voordelen van onze voormalige Nazarethse missionarissen, bracht slechts 38,23 EUR op.<br>
+<br>
+Vanuit de parochiekas wordt dit bedrag aangevuld, waarvoor dank. Daardoor gaat er 50 EUR naar het missiewerk van de orde van Zr Frieda Schaubroeck. En nog eens 50 EUR wordt overgemaakt voor het missiewerk van de orde van Zr Veerle Ghequière.<br>
+<br>
+Parochianen die het missiewerk van deze beide Zusters willen steunen, mogen ook rechtstreeks een gift overmaken.<br>
+<br>
+Voor Zuster Frieda kan dit op rekeningnummer <b>{{<icon class="fa fa-piggy-bank">}}&nbsp;BE52 0014 1459 0709</b> op naam van 'VZW Zr Bernardinnen - Afrikaanse Provincies BROV'.<br>
+<br>
+Voor Zuster Veerle kan dit op rekeningnummer <b>{{<icon class="fa fa-piggy-bank">}}&nbsp;BE51 4460 2508 6162</b> op naam van 'Zusters Kindsheid Jesu'.<br>
+<br>
+<br>
+<br>
+
+
+
+
+
+#### NAZARETH: BEDEVAART NAAR SCHERPENHEUVEL
+<br>
+<figure><img src="images/pb-scherp.jpg" alt=" Scherpenheuvel © Kerknet" style="max-height: 500px; max-width: 500px;" /><figcaption> Scherpenheuvel © Kerknet</figcaption></figure><br>
+<figure><img src="images/pb-terlinden.jpg" alt=" Onze nieuwe Aartsbisschop Luc Terlinden © Kerknet" style="max-height: 500px; max-width: 500px;" /><figcaption> Onze nieuwe Aartsbisschop Luc Terlinden © Kerknet</figcaption></figure><br>
+<br>
+Naar jaarlijkse gewoonte gaan wij de eerste zondag van november op bedevaart naar de Onze-Lieve-Vrouw van Scherpenheuvel. Dit jaar is dit op zondag <b>5 november 2023</b>.<br>
+<br>
+We vertrekken bij Nazarethcars, Steenweg Deinze 146 om 6.45 uur, aan Eine (Station) rond 07.00 u., aan de kerk van Gavere rond 07.15 u., Kerk Eke om 07.25 u., Gemeentehuis Nazareth 07.35 u., en op het plein aan de St-Pauluskerk te Petegem-Deinze om 07.50 u. (de uren en opstapplaatsen kunnen eventueel nog wijzigen naargelang de inschrijvingen)<br>
+<br>
+Rond 09.30 u. zijn we in Scherpenheuvel voor een grote jaarmarkt rond de Basiliek en bijhorende straten. Om 10.00 uur is er plechtige Hoogmis ter gelegenheid van de kaarsjesprocessie. Ons warm middagmaal gebruiken we in Scherpenheuvel en om 15.00 u. wordt het lof gezongen in de Onze-Lieve-Vrouwebasiliek. Nadien is er kaarsjesprocessie waarin nog steeds het beeld van Onze-Lieve-Vrouw van Scherpenheuvel wordt meegedragen. Deze processie gaat door het park en de straten rond de kerk, opnieuw naar de Basiliek met als afsluiter de gezongen Vespers. De kaarsjesprocessie vormt het einde van het bedevaartseizoen in Scherpenheuvel: "SCHERPENHEUVEL WAAR DE HEMEL DE AARDE RAAKT!!"<br>
+<br>
+Bij al deze vieringen is onze nieuwe Aartsbisschop Luc Terlinden de voorganger.<br>
+<br>
+De prijs voor deze dag bedraagt 59 EUR per persoon. (inbegrepen autobus, fooi chauffeur, warm middagmaal met soep, hoofdgerecht en dessert met water op tafel (andere dranken niet inbegrepen), teksten bedevaart).<br>
+Je kan dit storten als bewijs van inschrijving op rekeningnr. <b>{{<icon class="fa fa-piggy-bank">}}&nbsp;BE34 7374 2122 7290</b> met vermelding bedevaart Scherpenheuvel.<br>
+Voor alle informatie en inschrijvingen kan je terecht bij: Marc Perseyn - 09/385 57 31 - 0475/61 20 62.<br>
 <br>
 <br>
 <br>
@@ -85,78 +197,6 @@ Conny, Rita en Lucia van het pastoraal team<br>
 <figure><img src="images/pb-hbuffet.jpg" alt=" Herfstbuffet Mariahuis © Anneleen Heyse" style="max-height: 500px; max-width: 500px;" /><figcaption> Herfstbuffet Mariahuis © Anneleen Heyse</figcaption></figure><br>
 <br>
 Als oudere is het belangrijk dat je bezig blijft om verveling te voorkomen en eenzaamheid tegen te gaan. De opbrengst van het herfstbuffet en de tombola zal integraal gebruikt worden om allerhande activiteiten te kunnen organiseren voor de bewoners.<br>
-<br>
-<br>
-<br>
-
-
-
-
-
-#### GAVERE: OKTOBER - ROZENKRANSMAAND
-<br>
-In onze Rooms-Katholieke Kerk is de maand oktober gewijd aan de Rozenkrans. De keuze van deze maand hangt samen met het feest van O.-L.-V. van de Rozenkrans dat sinds de 16e eeuw op <b>7 oktober</b> gevierd wordt.<br>
-<br>
-De rozenkrans dankt haar naam, volgens de katholieke overlevering, aan een openbaring van Maria zelf: iedere keer dat een 'wees gegroet' wordt gebeden, schenkt men haar een mooie roos.<br>
-<br>
-Tijdens het rozenkransgebed gedenkt men de geloofsmysteries: de 'blijde', de ' droevige ' en de ' glorievolle' mysteries . Bij elkaar geven zij een samenvatting van het evangelie.<br>
-<br>
-Maria speelt een belangrijke rol in deze devotie. Maria wordt gezien als iemand die tot de wereld van mensen behoort maar die tegelijkertijd ook tot de wereld van God behoort.<br>
-<br>
-<figure><img src="images/pb-glasraam.jpg" alt=" Glasraam De Rozenkrans Sint-Willibrorduskerk (Merksplas) © Wikimedia Commons" style="max-height: 500px; max-width: 500px;" /><figcaption> Glasraam De Rozenkrans Sint-Willibrorduskerk (Merksplas) © Wikimedia Commons</figcaption></figure><br>
-<br>
-<br>
-<br>
-
-
-
-
-
-#### KERK & LEVEN - SAMEN OP WEG
-<br>
-<figure><img src="images/pb-saweg.jpg" alt=" Samen op weg © Halewijn" style="max-height: 500px; max-width: 500px;" /><figcaption> Samen op weg © Halewijn</figcaption></figure><br>
-<br>
-Begin dit jaar verscheen Kerk & Leven in een opgefrist kleedje, met ook inhoudelijke vernieuwingen. Met onze redacties blijven we vanop verschillende niveaus - lokaal en nationaal - als één team samen op weg gaan om u wekelijks te inspireren, te informeren en te verbinden met nieuws uit Kerk en samenleving.<br>
-<br>
-We doen dit op vertrouwde, stevig gefundeerde wegen maar durven daarbij ook nieuwe paden te betreden. Dit om week na week waardevolle informatie te kunnen brengen over alles wat rondom ons gebeurt, van de eigen parochie tot de grote wereldkerk.<br>
-<br>
-Mogen we ook in het komende jaar samen met u als lezer op weg, trouw aan de boodschap en de weg die Hij ons heeft getoond?<br>
-<br>
-Ool de uitgeverswereld ontsnapt niet aan de langdurige en torenhoge inflatie. De sterk gestegen energie- en grondstofprijzen (waaronder die van papier en inkt), de alsmaar hogere distributieprijzen en de loonindexering moet Halewijn helaas maar onvermijdelijk doorrekenen in de abonnementstarieven.<br>
-We beseffen dat de prijsstijging dit jaar meer dan gemiddeld is ten opzichte van de voorgaande jaren. Met de nieuwe tarieven voor een jaarabonnement kunnen we wekelijks een kwaliteitsvol blad in de brievenbus bezorgen.<br>
-<br>
-<b>De aangepaste tarieven (inclusief postverzending in België) voor 2024 zijn:</b><br>
-<b>67 EUR voor een gewoon abonnement en vanaf 69 EUR voor een steunabonnement.</b><br>
-<br>
-In de tweede helft van oktober gaan de vrijwilligers van Nazareth en Eke opnieuw op pad. Bij de abonnees van groot-Gavere zullen de herabonneringsbrieven net zoals de voorgaande jaren in diezelfde periode in hun bus vallen.<br>
-<br>
-Mogen wij nogmaals aandringen om steeds de gestructureerde mededeling te gebruiken bij betalingen. Als lokale medewerker weten wij aan de hand van deze gestructureerde mededeling feilloos voor welk abonnement een ontvangen betaling bedoeld is (zelfs indien de betaling gedaan werd door iemand anders dan de abonnee zelf). Met dank om hiermee rekening te houden.<br>
-<br>
-<br>
-<br>
-
-
-
-
-
-#### GAVERE: DONDERDAG 21 SEPTEMBER - WERELD ALZHEIMER DAG
-<br>
-<b>Thema: "SAMEN AAN TAFEL"</b><br>
-<br>
-<figure><img src="images/pb-alzh.jpg" alt=" © Alzheimer liga Vlaanderen" style="max-height: 500px; max-width: 500px;" /><figcaption> © Alzheimer liga Vlaanderen</figcaption></figure><br>
-<br>
-De Wereldgezondheidsorganisatie (WHO) van de Verenigde Naties heeft <b>21 september</b> uitgeroepen tot Alzheimer Dag. Op die dag wordt extra aandacht besteed aan dementie. Wereldwijd lijden naar schatting 46 miljoen mensen aan de ziekte van Alzheimer.<br>
-<br>
-<b>Plaatselijke activiteit t.v.v. de actie</b><br>
-<br>
-Het WZC Mariahuis in Gavere organiseert een verkoop van suiker- of hartenwafels ten voordele van de stichting Alzheimeronderzoek. De ingezamelde fondsen geven universiteiten meer mogelijkheden voor onderzoek om levens te verbeteren.<br>
-U kan bestellen tot dinsdag <b>19 september</b>.<br>
-De kostprijs bedraagt 5 EUR per zakje.<br>
-<br>
-Afhalen kan op 26 en <b>27 september</b> tussen 13.30 u. en 16.30 u.<br>
-Interesse: neem contact op met Margot (referentiepersoon dementie in het WZC Mariahuis) op het nummer {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:093892013">09 389 20 13</a> of mail naar {{<icon class="fa fa-envelope">}}&nbsp;<a href="referentdementie@sitemariahuis.be">referentdementie@sitemariahuis.be</a> met vermelding van uw naam, adres, aantal bestelde zakjes suiker en/of hartenwafeltjes en de dag wanneer u uw bestelling afhaalt (Onderstraat 9 Gavere).<br>
-<br>
-<figure><img src="images/pb-suiker.jpg" alt=" suikerwafeltjes (5 EUR) / hartenwafeltjes (5 EUR) © Alzheimer liga Vlaanderen" style="max-height: 500px; max-width: 500px;" /><figcaption> suikerwafeltjes (5 EUR) / hartenwafeltjes (5 EUR) © Alzheimer liga Vlaanderen</figcaption></figure><br>
 <br>
 <br>
 <br>

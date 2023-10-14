@@ -2,7 +2,7 @@
 title: "Verenigingen en scholen"
 header_menu_title: "Verenigingen"
 navigation_menu_title: "Verenigingen"
-weight: 1004
+weight: 1003
 header_menu: true
 ---
 
@@ -11,48 +11,20 @@ header_menu: true
 
 
 
-#### 100 JAAR BOERINNENBOND - KVLV - FERM IN EKE MOET GEVIERD WORDEN !
+#### DAVIDSFONDS ASPER
 <br>
-<figure><img src="images/pb-j100.jpg" alt=" Logo 100 jaat Ferm te Eke © Ferm Eke" style="max-height: 500px; max-width: 500px;" /><figcaption> Logo 100 jaat Ferm te Eke © Ferm Eke</figcaption></figure><br>
+Het Davidsfondsbestuur Asper nodigt u graag uit op <b>3 november</b> om 20.00 uur voor de lezing:<br>
+Erik de Soir - <i>Menselijk gedrag in crisissituaties</i><br>
 <br>
-Op vrijdag <b>13 oktober</b> vieren we ons 100 jaar bestaan vanaf 18.45 u. in CC De Brouwerij!<br>
+Velen onder ons zullen zich nog de Switelbrand in 1994, de kettingbotsing te Nazareth op de E17 in 1996, het Pukkelpopdrama in 2011, de busramp in Sierre in 2012 of recentelijk de terreuraanslagen op het vliegveld van Zaventem en de metro van Maalbeek in 2016 herinneren.<br>
 <br>
-We starten met een warme welkom met een glaasje en een hapje.<br>
-Uiteraard hoort daar een woordje bij van  Nik Van Gool, nationaal voorzitter Ferm en Lieve Vandriessche, Consulent Ferm en Danny Claeys, burgemeester van Nazareth<br>
+Tijdens zijn lezing "Menselijk gedrag in crisissituaties" schets Erik De Soir hoe mensen reageren bij plotse schokkende en potentieel traumatiserende situaties op basis van reflexen en overlevingsgedrag. Hierbij gaat hij in op rampensituaties zoals ongevallen, oorlogen, geweldmisdrijven, enz... Hij staat stil bij de zware emotionele en psychologische last die alle betrokken partijen kunnen meedragen. Hij illustreert zijn betoog aan de hand van unieke getuigenissen van slachtoffers en hulpverleners.<br>
 <br>
-Nadien kan je genieten van een  feestmaaltijd met gegrilde schartong en bijbehoren, gevolgd door heerlijke kalfslende en groentenweelde, om af te sluiten amandelbiscuit met cremeux van citrus en compote van mango en koffie. Uiteraard omkaderd met bijpassende wijnen.<br>
-Achteraf verrast het vrouwenkoor 'les amies de Charles' ons met een spetterend optreden.<br>
-<br>
-Ook de mannen/partners zijn welkom !<br>
-<br>
-Dresscode : een touch of gold !<br>
-<br>
-Inschrijven voor <b>7 oktober</b> mits betaling van 40 EUR voor deze feestelijke avond op rekening Ferm Eke : <b>{{<icon class="fa fa-piggy-bank">}}&nbsp;BE66 7374 0807 9043</b> Info : {{<icon class="fa fa-envelope">}}&nbsp;<a href="annemie.de.gussem@telenet.be.">annemie.de.gussem@telenet.be.</a><br>
-<br>
-<br>
-<br>
-
-
-
-
-
-#### 100 JAAR FERM ASPER
-<br>
-Op 16 en <b>17 september</b> vierde Ferm Asper haar 100ste verjaardag. Dit jubileum startte op zaterdag <b>16 september</b> met een dankviering in de kerk van Asper voorgegaan door Liesbeth Verholen. Daarna konden alle aanwezigen genieten van een glaasje bubbels of fruitsap om de 100-jarige te vieren.<br>
-<br>
-Op zondag <b>17 september</b> was het opnieuw verzamelen geblazen in 'Het Molenhuis' in Eine. Het feest begon om 11 uur met een academische zitting waarbij iedereen welkom werd geheten door de voorzitster Tiffany De Potter en waar Chris Jungbluth 'oud'voorzitster de geschiedenis schetste van de vereniging. Ook de nationale voorzitster Nic Van Gool en de regio-verantwoordelijke Lieve Vandriessche waren aanwezig om iedereen van harte te feliciteren met dit jubileum.<br>
-<br>
-Na alle officiële geplogenheden volgde een gezellige receptie die tijd bood om keuvelend heel wat herinneringen op te halen. De feestmaaltijd die volgde was meer dan in orde om dit jubelfeest af te sluiten.<br>
-<br>
-Ferm is een katholieke vrouwenbeweging die zich inzet voor een samenleving waar iedereen welkom is om aan het leven een meerwaarde te geven.<br>
-<br>
-Enkele foto's van dit jubelfeest.<br>
-<br>
-<figure><img src="images/pb-adank.jpg" alt=" Dankviering kerk Asper © Ferm Asper" style="max-height: 500px; max-width: 500px;" /><figcaption> Dankviering kerk Asper © Ferm Asper</figcaption></figure><br>
-<br>
-<figure><img src="images/pb-aplbe.jpg" alt=" Plaatselijk bestuur © Ferm Asper" style="max-height: 500px; max-width: 500px;" /><figcaption> Plaatselijk bestuur © Ferm Asper</figcaption></figure><br>
-<br>
-<figure><img src="images/pb-avoor.jpg" alt=" Onze voorzitster en secretaresse met de nationale voorzitster Nic Van Gool © Ferm Asper" style="max-height: 500px; max-width: 500px;" /><figcaption> Onze voorzitster en secretaresse met de nationale voorzitster Nic Van Gool © Ferm Asper</figcaption></figure><br>
+Erik de Soir is Dr in de psychologie (Universiteit Utrecht), Dr in de sociale en militaire wetenschappen (Koninklijke Militaire School, psychotraumatherapeut (De Weg Wijzer) en brandweerpsycholoog verbonden aan de Hulpverleningszone Noord Limburg.<br>
+Het spreekt vanzelf dat de aanwezigen ook de nodige vragen kunnen stellen rond deze thema's.<br>
+OC Martinus, Hulstraat 27, Asper<br>
+DF leden 12 EUR / voorverkoop niet leden 15 EUR / adk iedereen 18 EUR .<br>
+inschrijving: {{<icon class="fa fa-envelope">}}&nbsp;<a href="dirk.van.heule@telenet.be">dirk.van.heule@telenet.be</a><br>
 <br>
 <br>
 <br>
@@ -63,7 +35,9 @@ Enkele foto's van dit jubelfeest.<br>
 
 #### FEMMA ASPER
 <br>
-<b>Woensdag 4 oktober</b> om 19.00 u.: Bakken voor zoetebekken. We focussen ons op het maken van dessertkoekjes zoals bokkepootjes, baisers, rotskes, tartines russes, margrietjes... roubleyn via {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:093240942">09 324 09 42</a> of {{<icon class="fa fa-envelope">}}&nbsp;<a href="troubleynma@telenet.be">troubleynma@telenet.be</a><br>
+<b>Maandag 23 oktober</b> om 19.00 u.: Kookdemonstratie: Feestelijk vegetarisch. Inschrijven tegen <b>16 oktober</b> bij Ann Bergez, Haagstraat 70 - {{<icon class="fa fa-envelope">}}&nbsp;<a href="annbergez@gmail.com">annbergez@gmail.com</a> of {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:0477661859">0477 66 18 59</a><br>
+<b>Woensdag 25 oktober</b> om 19.30 u.: Gezellig haken en breien. Info en inschrijving bij Steffie Beyaert - {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:0472386777">0472 38 67 77</a> of {{<icon class="fa fa-envelope">}}&nbsp;<a href="steffi.beyaert@hotmail.com">steffi.beyaert@hotmail.com</a><br>
+<b>Donderdag 26 oktober</b> om 14.00 u.: BINGO - namiddagen. Inschrijven bij Lydie Vanderstichelen op {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:093841423">09 384 14 23</a> of {{<icon class="fa fa-envelope">}}&nbsp;<a href="lydie.vanderstichelen@telenet.be">lydie.vanderstichelen@telenet.be</a><br>
 <br>
 <br>
 <br>
@@ -78,7 +52,10 @@ Alle lessen gaan door in het Ontmoetingscentrum St. Martinus in de Hulstraat te 
 
 #### FERM ASPER
 <br>
-<b>Woensdag 11 oktober</b> om 19.00 u.: Brei- en haakcafé in het O.C. Martinus : Haaktechniek : Tunisch haken<br>
+<b>Woensdag 18 oktober</b> om 19.00 u.: Brei- en haakcafé in het O.C. Martinus : Haaktechniek: Tunisch haken<br>
+<b>Zaterdag 21 oktober</b>: Pikkedonkerwandeling i.s.m. Landelijke gilde Asper<br>
+<b>Woensdag 25 oktober</b> om 14.30 u. of 19.30: Bloemschikles Allerheiligen<br>
+<br>
 <br>
 Deze activiteiten gaan door in het O.C. St. Martinus, Hulstraat, Asper<br>
 Inlichtingen bij : Christiane Loontjens op {{<icon class="fa fa-envelope">}}&nbsp;<a href="loontjens.chris@telenet.be">loontjens.chris@telenet.be</a> of {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:0479469650">0479 46 96 50</a><br>
@@ -92,8 +69,7 @@ Inlichtingen bij : Christiane Loontjens op {{<icon class="fa fa-envelope">}}&nbs
 
 #### FERM DIKKELVENNE: COOLE SOKKEN HAKEN
 <br>
-<b>Woensdag 4 oktober</b> om 14.00 u. in zaal 'Bronnendal': Coole sokken haken<br>
-<b>Woensdag 11 oktober</b> om 14.00 u. in zaal 'Bronnendal': Coole sokken haken<br>
+<b>Woensdag 25 oktober</b> om 14.00 u. in zaal 'Bronnendal': Coole sokken haken<br>
 <br>
 <br>
 Verwen jezelf, je kinderen of kleinkinderen met deze leuke, grappige en comforabele pantoffels, waar je blij van wordt. Je kan kiezen uit 20 verschillende ontwerpen met dieren uit de hele wereld, of je kan het ook eenvoudiger houden. Alle patronen hebben dezelfde basis, die je kan haken in verschillende maten van kindermaat 4 jaar tot volwassen schoenmaten. Geen specifieke ervaring vereist!<br>
@@ -106,43 +82,15 @@ Inlichtingen en inschrijving bij Noëlla Carreel {{<icon class="fa fa-phone">}}&
 
 
 
-#### FERM SEMMERZAKE
-<br>
-<b>Rondleiding en degustatie WIJNDOMEIN CRUYSEM</b><br>
-<br>
-op zaterdag <b>7 oktober 2023</b> om 14.30 u.   te Kruisem, Boeregemtraat, 38.<br>
-<br>
-Onder enthousiaste begeleiding doen we een wandeling door de wijngaard, de wijnmakerij en de kelder.  We krijgen een deskundige uitleg over het volledige productieproces en als afsluiter volgt een degustatie.<br>
-Info en inschrijven bij Kathleen Van Lierde {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:0498263717">0498 26 37 17</a> of via {{<icon class="fa fa-envelope">}}&nbsp;<a href="FermSemmerzake@gmail.com.">FermSemmerzake@gmail.com.</a>  Ook niet-leden zijn welkom.<br>
-<br>
-<b>Kookdemo "Feestelijke recepten met fruit"</b><br>
-<br>
-op dinsdag <b>17 oktober</b> om 19.00 u.  in de Borgwalhoeve, Leenstraat, 31,Vurste.<br>
-<br>
-Fruit is gezond maar de Belg eet er, volgens onderzoek, nog altijd te weinig van.<br>
-Daar brengen we graag verandering in. Inheems seizoensfruit speelt de hoofdrol in de heerlijkste gerechten voor elk moment van de dag.<br>
-Info en inschrijven vóór dinsdag <b>10 oktober</b> a.s. via {{<icon class="fa fa-envelope">}}&nbsp;<a href="FermSemmerzake@gmail.com">FermSemmerzake@gmail.com</a> of bij Kathleen Van Lierde {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:0498263717">0498 26 37 17</a>. Ook niet-leden zijn welkom!<br>
-<br>
-<br>
-<br>
-
-
-
-
-
 #### GAVERE: LDC 'DEN OEVER'
 <br>
-<b>Woensdag 4 oktober</b> om 14.00 u.: UNO - spelnamiddag<br>
-<b>Donderdag 5 oktober</b> om 10.00 u.: Sacraal dansen<br>
-<b>Donderdag 5 oktober</b> om 13.00 u.: Spaanse les i.s.m. KISP<br>
-<b>Donderdag 5 oktober</b> om 14.00 u.: Samen breien & haken<br>
-<b>Maandag 9 oktober</b> om 14.00 u.: Gezonde kookworkshop<br>
-<b>Dinsdag 10 oktober</b> om 10.00 u.: Yoga<br>
-<b>Dinsdag 10 oktober</b> om 14.00 u.: Lijndansen, Portrettekenen, Rummikub<br>
-<b>Woensdag 11 oktober</b> om 14.00 u.: Bingo<br>
-<b>Donderdag 12 oktober</b> om 10.00 u.: Sacraal dansen<br>
-<b>Donderdag 12 oktober</b> om 13.00 u.: Spaanse les i.s.m. KISP<br>
-<b>Donderdag 12 oktober</b> om 14.00 u.: Bonte baknamiddag: Pannenkoeken<br>
+<b>Woensdag 18 oktober</b> om 08.30 u.: Ontbijt<br>
+<b>Donderdag 19 oktober</b> om 10.00 u.: Sacraal dansen<br>
+<b>Donderdag 19 oktober</b> om 13.00 u.: Spaanse les i.s.m. KISP<br>
+<b>Maandag 23 oktober</b> om 14.00 u.: Vragen staat vrij - muzikale namiddag<br>
+<b>Dinsdag 24 oktober</b> om 10.00 u.: Yoga<br>
+<b>Dinsdag 24 oktober</b> om 14.00 u.: Lijndansen, portrettekenen, Rummikub<br>
+<b>Woensdag 25 oktober</b> om 11.30 u.: Halloweenmenu<br>
 <br>
 <br>
 <br>
@@ -155,11 +103,11 @@ Info en inschrijven vóór dinsdag <b>10 oktober</b> a.s. via {{<icon class="fa 
 <br>
 <b>OKRA-TREFPUNT EKE nodigt uit...</b><br>
 <br>
-<b>Donderdag 5 oktober</b> om 14.00 u. in CC De Brouwerij: Lijndans en rummikub<br>
-<b>Vrijdag 6 oktober</b> om 11.00 u.: Vertrek aan de kerk naar Philippine en Sluis, groep 1<br>
-<b>Woensdag 11 oktober</b> om 14.00 u. in CC De Brouwerij: Kaarten<br>
-<b>Donderdag 12 oktober</b> om 09.30 u. in CC De Brouwerij: Lijndans<br>
-<b>Donderdag 12 oktober</b> om 13.45 u. vertrek aan de kerk: Wandelen<br>
+<b>Donderdag 19 oktober</b> om 14.00 u. in CC De Brouwerij: Lijndans en rummikub<br>
+<b>Vrijdag 20 oktober</b> om 11.00 u.: Vertrek aan de kerk naar Philippine en Sluis, groep 2<br>
+<b>Woensdag 25 oktober</b> om 14.00 u. in CC De Brouwerij: Kaarten<br>
+<b>Donderdag 26 oktober</b> om 09.30 u. in CC De Brouwerij: Lijndans<br>
+<b>Donderdag 26 oktober</b> om 13.45 u. vertrek aan de kerk: Wandelen<br>
 <br>
 <br>
 <br>
@@ -172,9 +120,9 @@ Info en inschrijven vóór dinsdag <b>10 oktober</b> a.s. via {{<icon class="fa 
 <br>
 Activiteitenkalender<br>
 <br>
-<b>Donderdag 5 oktober</b> om 14.00 u. aan cc Het Centrum: Fietsen<br>
-<b>Dinsdag 10 oktober</b> om 14.00 u. aan de Sporthal: Petanque<br>
-<b>Donderdag 12 oktober</b> om 14.00 u. in cc Het Centrum: Lijndansen<br>
+<b>Donderdag 19 oktober</b> om 14.00 u. in Oudenaarde: Bowling<br>
+<b>Dinsdag 24 oktober</b> om 14.00 u. aan de Sporthal: Petanque<br>
+<b>Donderdag 26 oktober</b> om 14.00 u. in cc De Brouwerij: Lijndansen<br>
 <br>
 !!! Voor meer info: tel. {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:093855371">09 385 53 71</a><br>
 <br>
@@ -185,19 +133,32 @@ Activiteitenkalender<br>
 
 
 
-#### SAMANA ASPER: DAG VAN DE CHRONISCH ZIEKE MENS OP 12 OKTOBER 2023 OM 12.00 UUR
+#### PASAR EKE-NAZARETH STOPT!
 <br>
-Jaarlijks feestmaal in het O.C. St.Martinus in de Hulstraat te Asper 			- Tomatenroomsoep<br>
-- Hertenragout met groenten en kroketjes<br>
-- Crème brulée met koffie en thee<br>
+Met grote spijt moeten wij u melden dat Pasar Eke-Nazareth, na 42 jaar<br>
+Vakantiegenoegens/Pasar, eind dit jaar stopt met het organiseren van activiteiten in de<br>
+gemeente.<br>
 <br>
-Prijs: EUR 42/persoon, aperitief en dranken inbegrepen.<br>
+Door gebrek aan instroom van nieuwe en jongere bestuursleden, en de veroudering van<br>
+de leden zelf, namen we deze pijnlijke beslissing.<br>
 <br>
-Inschrijven kan tegen uiterlijk <b>4 oktober</b> bij Ann Bergez : tel.{{<icon class="fa fa-phone">}}&nbsp;<a href="tel:0477661859">0477 66 18 59</a> of {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:093845583">09 384 55 83</a><br>
-of {{<icon class="fa fa-envelope">}}&nbsp;<a href="annbergez@gmail.com">annbergez@gmail.com</a><br>
+We kijken terug op vele jaren van interessante en leuke wandelingen, fietsweekends,<br>
+uitstappen, zoektochten, bezoeken aan bedrijven, ledenfeesten.<br>
+We wensen iedereen die heeft bijgedragen om de werking mogelijk te maken van harte<br>
+te bedanken.<br>
 <br>
-U kan cash betalen of via overschrijving op het rekeningnummer van<br>
-Samana Asper : <b>{{<icon class="fa fa-piggy-bank">}}&nbsp;BE53 8912 5401 8253</b><br>
+Als laatste activiteit komen we nog eens samen voor een vertoning van foto's/dia's van<br>
+de voorbije 40 jaar en laten dit samen gaan met koffie, taart à volonté en hotdog.<br>
+<br>
+Wilt u er bij zijn? Leden EUR 5 per persoon. Niet leden EUR 8 per persoon.<br>
+<br>
+Inschrijven tot <b>20 oktober</b> bij de Pasar-bestuursleden:<br>
+Jean-Marie Vertriest en Rita Van Hove<br>
+Romain Vermaerke en Martine Speybroeck {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:093857380">09 385 73 80</a>, {{<icon class="fa fa-envelope">}}&nbsp;<a href="romainvermaerke@hotmail.com">romainvermaerke@hotmail.com</a><br>
+Wim De Paepe en Rita De Clercq {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:0494415521">0494 41 55 21</a>, {{<icon class="fa fa-envelope">}}&nbsp;<a href="wim.de.paepe@telenet.be">wim.de.paepe@telenet.be</a><br>
+Sylvain Huys en Suus Vande Walle<br>
+<br>
+Betaling op girorekening nr. <b>{{<icon class="fa fa-piggy-bank">}}&nbsp;BE57 8905 0403 1835</b> van Pasar Nazareth-Eke.<br>
 <br>
 <br>
 <br>
@@ -219,43 +180,9 @@ Graag inschrijven bij een van de bestuursleden.<br>
 
 
 
-#### SAMANA NAZARETH
-<br>
-<b>Zondag 8 oktober</b> om 10.30 u. Kerk Nazareth: Herdenking van de afgestorven leden van Samana in de zondagsmis en dit op <i>'De Dag van de Chronisch Zieke Mens '</i><br>
-<b>Dinsdag 10 oktober</b> om 14.00 u. in CC Het Centrum: CREA, gratis, iedereen van harte welkom<br>
-<br>
-<br>
-<br>
-Info {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:093855069">09 385 50 69</a><br>
-<br>
-<br>
-<br>
-
-
-
-
-
 #### SCHOOLETENTJE VBS NAZARETH
 <br>
 <figure><img src="images/pb-eten.jpg" alt=" Schooletentje VBS Nazareth © VBS Nazareth" style="max-height: 500px; max-width: 500px;" /><figcaption> Schooletentje VBS Nazareth © VBS Nazareth</figcaption></figure><br>
-<br>
-<br>
-<br>
-
-
-
-
-
-#### ZONDAG 8 OKTOBER - DAG VAN DE CHRONISCH ZIEKEN
-<br>
-<figure><img src="images/pb-asaje.jpg" alt=" Samen jezelf zijn © Samana" style="max-height: 500px; max-width: 500px;" /><figcaption> Samen jezelf zijn © Samana</figcaption></figure><br>
-<br>
-Samen jezelf zijn, dat is geluk!<br>
-<br>
-Jezelf kunnen zijn betekent écht eerlijk kunnen zijn over wie je bent, zonder jezelf te verbergen voor anderen. Het geeft zelfvertrouwen, helpt bij het maken van oprechte contacten en zorgt ervoor dat je je eigen keuzes kan maken. Verbondenheid vinden bij anderen die jou begrijpen zodat je verhalen en emoties met elkaar kan delen. In Samana mag iedereen zijn wie hij is, mag iedereen 'thuiskomen', bij zichzelf en bij elkaar. Want samen jezelf zijn, dat is geluk!<br>
-Op de tweede zondag van oktober vraagt Samana traditiegetrouw extra aandacht voor mensen met een chronische ziekte en lichamelijke beperking. Op <b>8 oktober 2023</b> zetten we het thema 'Samen jezelf zijn, dat is geluk' dus om in de praktijk!<br>
-<br>
-(website Samana)<br>
 <br>
 <br>
 <br>

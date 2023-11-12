@@ -11,58 +11,11 @@ header_menu: true
 
 
 
-#### PAROCHIEBLAD
-<br>
-Bericht aan de lezers namens Halewijn<br>
-<br>
-Uw lokale pagina's van Kerk & Leven zien er sinds enkele weken mogelijks ietwat anders uit dan u gewoon bent. Uw plaatselijke Kerk & Leven-medewerkers kunnen hier echter niets aan doen. We werken met een nieuw opmaaksysteem dat nog in volle ontwikkeling is. We doen er alles aan om de opmaak zo snel als mogelijk te optimaliseren.<br>
-<br>
-Bedankt voor uw begrip.<br>
-<br>
-<br>
-<br>
-
-
-
-
-
-#### HERABONNERING KERK & LEVEN - SAMEN OP WEG
-<br>
-<figure><img src="images/pb-saweg.jpg" alt=" Samen op weg © Halewijn" style="max-height: 500px; max-width: 500px;" /><figcaption> Samen op weg © Halewijn</figcaption></figure><br>
-<br>
-Eind dit jaar vervalt het abonnement op Kerk en Leven.<br>
-Voor 2024 bedraagt de <b>prijs 67 EUR voor een gewoon abonnement en vanaf 69 EUR voor een steunabonnement.</b> U ontvangt voor 1,40 EUR per week 48 nummers; heel weinig in vergelijking met andere abonnementen.<br>
-<br>
-Wekelijks wordt u op de hoogte gehouden van de misintenties voor de komende week, over alles wat er plaatselijk gebeurde of zal gebeuren aan pastorale beleving en ook over de geplande activiteiten van organisaties en bewegingen.<br>
-<br>
-Maar Kerk en Leven is meer dan alleen plaatselijk nieuws. Buiten de parochiegrenzen is er in ons bisdom en wereldwijd ook heel wat aan pastoraal nieuws te beleven. U vindt er duidelijke informatie omtrent allerhande activiteiten en boeiende verslagen over interessante en zinvolle contacten met christelijk geïnspireerde mensen en organisaties. Een innerlijke verrijking voor elke christen.<br>
-Daarom willen wij u WARM aanbevelen om het abonnement te vernieuwen.<br>
-Samen staan de sterk en doen we mee aan Kerkopbouw.<br>
-<br>
-<b>Praktisch</b><br>
-<br>
-- Eind oktober zullen we van Halewijn de overschrijvingsformulieren ontvangen voor het hernieuwen van de abonnementen van 2024.<br>
-- Wij doen ons best om deze formulieren voor Nazareth en Eke zo snel mogelijk aan onze vrijwilligers te bezorgen zodat deze aan hun jaarlijkse ronde kunnen beginnen.<br>
-- Alle <b>abonnees van Groot-Gavere</b> ontvangen hun overschrijvingsformulier via de post.<br>
-- Ook <b>abonnees van Eke en Nazareth</b>, waar de vrijwilliger van hun straat weggevallen is, zullen het overschrijvingsformulier toegestuurd krijgen.<br>
-- <b>Mogen we met aandrang vragen om pas te betalen na ontvangst van het overschrijvingsformulier. Dat bevat namelijk het correcte rekeningnummer én een gestructureerde mededeling. Met deze gestructureerde mededeling kunnen wij de betaling zonder problemen aan uw abonnement koppelen, ook als iemand anders voor u betaalt. Graag betaling vóór 30 november 2023.</b><br>
-- Voor de inwoners van groot-Gavere willen wij vragen op het juiste rekeningnummer te betalen. Wij beseffen heel goed dat het voor jullie het derde jaar op rij een ander rekeningnummer is. Het juiste, gezamenlijke rekeningnummer voor groot-Gavere en Nazareth-Eke is: <b>{{<icon class="fa fa-piggy-bank">}}&nbsp;BE57 8905 0411 9135</b><br>
-- Problemen, vragen of onduidelijkheden? Neem gerust contact op met de abonnementsverantwoordelijken. Jullie vinden de contactgegevens hiervan terug in de colofon, links op blz. 2 van het parochieblad.<br>
-<br>
-Dank aan alle vrijwilligers die zich inzetten bij deze herabonneringscampagne.<br>
-<br>
-<br>
-<br>
-
-
-
-
-
 #### OVERLIJDEN
 <br>
 We namen in de kerk afscheid van:<br>
 <br>
-<i>Romain Rogge</i>, 86 j., echtg. Simonne De Kocker, Nazareth<br>
+<i>Paul Dhont</i>, 92 j., Nazareth<br>
 <br>
 <br>
 <br>
@@ -71,33 +24,24 @@ We namen in de kerk afscheid van:<br>
 
 
 
-#### ONZE LIEVE VROUW VAN DE ROZENKRANS
+#### HERABONNERING KERK & LEVEN - UPDATE
 <br>
-<figure><img src="images/pb-roos.jpg" alt=" <b>7 oktober</b> was het het feest van Onze Lieve Vrouw van de Rozenkrans © Guy Claus" style="max-height: 500px; max-width: 500px;" /><figcaption> <b>7 oktober</b> was het het feest van Onze Lieve Vrouw van de Rozenkrans © Guy Claus</figcaption></figure><br>
+<figure><img src="images/pb-saweg.jpg.jpg" alt=" Samen op weg © Halewijn" style="max-height: 500px; max-width: 500px;" /><figcaption> Samen op weg © Halewijn</figcaption></figure><br>
 <br>
+Na de vertragingen bij de externe firma die de herabonneringsbrieven moest drukken, is Bpost er daarna in geslaagd om ons pakket kwijt te spelen.<br>
 <br>
+Halewijn heeft daarom alle brieven van onze editie Gavere-Nazareth opnieuw afgedrukt en ons toegestuurd. En dankzij de hulp van een paar extra handen is alles in een recordtempo de deur uitgegaan.<br>
 <br>
-
-
-
-
-
-#### NAZARETH: BEDEVAART NAAR SCHERPENHEUVEL
+Alle vrijwilligers hebben ondertussen hun ronde(s) ontvangen. U mag hen dus eerstdaags aan uw deur verwachten. Of misschien vindt u de brief gewoon in uw brievenbus als uw vrijwilliger een grote ronde of weinig tijd heeft.<br>
 <br>
-<figure><img src="images/pb-scherp.jpg" alt=" Scherpenheuvel © Kerknet" style="max-height: 500px; max-width: 500px;" /><figcaption> Scherpenheuvel © Kerknet</figcaption></figure><br>
-<figure><img src="images/pb-terlinden.jpg" alt=" Onze nieuwe Aartsbisschop Luc Terlinden © Kerknet" style="max-height: 500px; max-width: 500px;" /><figcaption> Onze nieuwe Aartsbisschop Luc Terlinden © Kerknet</figcaption></figure><br>
+Alle brieven voor de abonnees van groot-Gavere zijn op de post gedaan. Vermoedelijk heeft u deze brief al ontvangen.<br>
+Mogen wij vragen om de betaling niet uit te stellen en steeds het juiste rekeningnummer en de gestructureerde mededeling te gebruiken die onderaan de overschrijving staat.<br>
 <br>
-Naar jaarlijkse gewoonte gaan wij de eerste zondag van november op bedevaart naar de Onze-Lieve-Vrouw van Scherpenheuvel. Dit jaar is dit op zondag <b>5 november 2023</b>.<br>
+Voor 2024 bedraagt de prijs 67 EUR voor een gewoon abonnement en vanaf 69 EUR voor een steunabonnement. Het juiste, gezamenlijke rekeningnummer voor groot-Gavere en Nazareth-Eke is: <b>{{<icon class="fa fa-piggy-bank">}}&nbsp;BE57 8905 0411 9135</b>.<br>
 <br>
-We vertrekken bij Nazarethcars, Steenweg Deinze 146 om 6.45 uur, aan Eine (Station) rond 07.00 u., aan de kerk van Gavere rond 07.15 u., Kerk Eke om 07.25 u., Gemeentehuis Nazareth 07.35 u., en op het plein aan de St-Pauluskerk te Petegem-Deinze om 07.50 u. (de uren en opstapplaatsen kunnen eventueel nog wijzigen naargelang de inschrijvingen)<br>
+Bij problemen, vragen of onduidelijkheden mogen zowel de vrijwilligers als de abonnees contact opnemen met Greta op {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:093858531">09 385 85 31</a> of {{<icon class="fa fa-envelope">}}&nbsp;<a href="dewildepeil@skynet.be">dewildepeil@skynet.be</a><br>
 <br>
-Rond 09.30 u. zijn we in Scherpenheuvel voor een grote jaarmarkt rond de Basiliek en bijhorende straten. Om 10.00 uur is er plechtige Hoogmis ter gelegenheid van de kaarsjesprocessie. Ons warm middagmaal gebruiken we in Scherpenheuvel en om 15.00 u. wordt het lof gezongen in de Onze-Lieve-Vrouwebasiliek. Nadien is er kaarsjesprocessie waarin nog steeds het beeld van Onze-Lieve-Vrouw van Scherpenheuvel wordt meegedragen. Deze processie gaat door het park en de straten rond de kerk, opnieuw naar de Basiliek met als afsluiter de gezongen Vespers. De kaarsjesprocessie vormt het einde van het bedevaartseizoen in Scherpenheuvel: "SCHERPENHEUVEL WAAR DE HEMEL DE AARDE RAAKT!!"<br>
-<br>
-Bij al deze vieringen is onze nieuwe Aartsbisschop Luc Terlinden de voorganger.<br>
-<br>
-De prijs voor deze dag bedraagt 59 EUR per persoon. (inbegrepen autobus, fooi chauffeur, warm middagmaal met soep, hoofdgerecht en dessert met water op tafel (andere dranken niet inbegrepen), teksten bedevaart).<br>
-Je kan dit storten als bewijs van inschrijving op rekeningnr. <b>{{<icon class="fa fa-piggy-bank">}}&nbsp;BE34 7374 2122 7290</b> met vermelding bedevaart Scherpenheuvel.<br>
-Voor alle informatie en inschrijvingen kan je terecht bij: Marc Perseyn - 09/385 57 31 - 0475/61 20 62.<br>
+Alle abonnees van wie tegen <b>3 december</b> géén betaling werd ontvangen, krijgen ter herinnering in Kerk & Leven nummer 50 (<b>13 december</b>) een gepersonaliseerde betalingsuitnodiging te zien op bladzijde 16.<br>
 <br>
 <br>
 <br>
@@ -106,34 +50,49 @@ Voor alle informatie en inschrijvingen kan je terecht bij: Marc Perseyn - 09/385
 
 
 
-#### WAT VIEREN WE MET ALLERHEILIGEN EN ALLERZIELEN
+#### SCHERPENHEUVEL 5 NOVEMBER 2023
 <br>
-Op <b>1 en 2 november</b> viert de katholieke Kerk Allerheiligen en Allerzielen, een dubbel feest van hoop en verbondenheid over de dood heen.<br>
+<figure><img src="images/pb-si1.jpg.jpg" alt=" In gesprek met aartsbisschop Mgr. Luc Terlinden © Marc perseyn" style="max-height: 500px; max-width: 500px;" /><figcaption> In gesprek met aartsbisschop Mgr. Luc Terlinden © Marc perseyn</figcaption></figure><br>
 <br>
-<figure><img src="images/pb-ah.jpg" alt=" Allerheiligen © schilderij door Fra Angelico." style="max-height: 500px; max-width: 500px;" /><figcaption> Allerheiligen © schilderij door Fra Angelico.</figcaption></figure><br>
+Naar jaarlijkse gewoonte gaan er vanuit Nazareth, Gavere, Deinze en Oudenaarde verschillende (28) bedevaarders mee op bedevaart naar Scherpenheuvel. Het is ieder jaar de eerste zondag van november de afsluiting van het bedevaart seizoen, met een eucharistieviering voorgegaan door de nieuwe aartsbisschop Mgr. Luc Terlinden. In de namiddag het lof met aansluitend de kaarsenprocessie door de straten en Basiliek en eindigen met de Vespers. Na de mis was het Receptie en Marc heeft een goed gesprek gehad met onze nieuwe Aartsbisschop. Misschien komt hij ook eens op bezoek naar Nazareth...<br>
 <br>
-Op <b>1 november</b> vieren we Allerheiligen, het hoogfeest van alle heiligen, bekend of onbekend. Heiligen zijn mensen zoals wij die Gods aanwezigheid uitstraalden in hun leven. Zij zijn een voorbeeld voor de gelovigen om het evangelie te beleven in het gewone, dagelijkse leven. Tot hen kunnen wij bidden als onze voorsprekers bij God.<br>
+Alle afwezigen hebben altijd ongelijk en was een mooie dag. Dank aan iedereen die erbij was en meegeholpen heeft.<br>
 <br>
-<figure><img src="images/pb-az.jpg" alt=" Allerzielen © William-Adolphe Bouguereau" style="max-height: 500px; max-width: 500px;" /><figcaption> Allerzielen © William-Adolphe Bouguereau</figcaption></figure><br>
+Foto: Marc Perseyn<br>
 <br>
-Daags nadien, op Allerzielen herdenken en bidden we voor al onze dierbare overledenen. Bidden voor overledenen verbindt ons met hen. Het schenkt troost aan wie achterblijft en doet stilstaan bij de doortocht die ook wij ooit zullen maken van dood naar nieuw leven. Als christenen geloven we dat God alle mensen verwelkomt die leefden vanuit zijn liefde. Dat is de betekenis van verrijzenis, de liefde is sterker dan de dood. Al onze overledenen vormen samen met de heiligen één gemeenschap rondom God. Het is een mooi gebruik dat families op Allerheiligen en Allerzielen naar het kerkhof gaan om te bidden voor de doden en hen te bezoeken met een bloem of een kaars.<br>
 <br>
-herdenkingsvieringen van de overledenen in onze geloofsgemeenschap.<br>
 <br>
-Zaterdag <b>28 oktober</b>:<br>
-18.00 uur kerk Eke: eucharistie met overhandiging gedachteniskruisjes<br>
+
+
+
+
+
+#### EKE: TAKE-AWAY SOLIDARITEITSMAAL TVV LISANGA
 <br>
-Woensdag <b>1 november</b> - Allerheiligen:<br>
-09.00 uur kerk Gavere: hoogdagviering met overhandiging gedachteniskruisjes.<br>
+<figure><img src="images/pb-wzc.jpg.jpg" alt=" Solidariteitsmaal tvv Lisanga © WZC de Lichtervelde" style="max-height: 500px; max-width: 500px;" /><figcaption> Solidariteitsmaal tvv Lisanga © WZC de Lichtervelde</figcaption></figure><br>
 <br>
-10.30 uur kerk Nazareth: hoogdagviering met overhandiging gedachteniskruisjes<br>
+Op vrijdag <b>24 november</b> organiseert WZC de Lichtervelde opnieuw een take-awaymaaltijd ten voordele van vzw Lisanga. Er is de keuze tussen Gentse waterzooi (ook vegetarisch en incl. aardappelen) en varkenswangetjes met gratin.<br>
 <br>
-15.00 uur kerk Asper: gebedsdienst met overhandiging gedachteniskruisjes.<br>
+Beide maaltijden kunnen aangekocht worden voor EUR 12 per portie en dienen op voorhand te worden gereserveerd. De maaltijden kunnen worden afgehaald tussen 15.00 u. en 18.00 u. in WZC de Lichtervelde.<br>
 <br>
-Donderdag <b>2 november</b> - Allerzielen<br>
-09.00 uur kerk Eke: herdenkingsviering voor alle overledenen van Eke-Groot-Gavere en Nazareth.<br>
+Inschrijven kan voor <b>15 november</b> via {{<icon class="fa fa-envelope">}}&nbsp;<a href="verstraetej@delichtervelde.zkj.be.">verstraetej@delichtervelde.zkj.be.</a> Van harte aanbevolen!<br>
 <br>
-<b>Welkom aan ieder van u om al onze dierbaren biddend te gedenken.</b><br>
+<br>
+<br>
+
+
+
+
+
+#### KERK GAVERE: HERDENKINGSVIERING VOOR DE OVERLEDENEN BEWONERS VAN HET WZC MARIAHUIS
+<br>
+<figure><img src="images/pb-vae.jpg.jpg" alt=" Herdenking overledenen Mariahuis1 © C. Piens" style="max-height: 500px; max-width: 500px;" /><figcaption> Herdenking overledenen Mariahuis1 © C. Piens</figcaption></figure><br>
+<br>
+<figure><img src="images/pb-mox.jpg.jpg" alt=" Herdenking overledenen Mariahuis2 © C. Piens" style="max-height: 500px; max-width: 500px;" /><figcaption> Herdenking overledenen Mariahuis2 © C. Piens</figcaption></figure><br>
+<br>
+Maandagavond <b>6 november</b> werd in een sereen moment stilgestaan bij alle bewoners die er sinds november vorig jaar tot op heden overleden zijn. Eerbiedwaardig werden hun namen genoemd als een balsem op een diepe wonde. Het eenvoudige aandenken met de naam van de overleden bewoner en de vele bloemen waren een blijk van verbondenheid en dankbaarheid voor wat die bewoners hebben betekend, een teken dat wij hen niet vergeten. Ook werd er gebeden om kracht voor allen die moeten leven met het gemis van een dierbare. Maar als mensen die geloven in de verrijzenis weten wij dat het aardse leven slechts een doortocht is naar een nieuw en ander bestaan bij de God van alle leven waar wij opnieuw met elkaar verenigd zullen zijn.<br>
+<br>
+Blijven praten over de overledenen is een bewijs dat wij hen niet vergeten. Daartoe was er daarna ruimschoots tijd vrijgemaakt om verhalen en herinneringen opnieuw voor de geest te halen en te delen met familie en verzorgend personeel.<br>
 <br>
 <br>
 <br>
@@ -144,28 +103,56 @@ Donderdag <b>2 november</b> - Allerzielen<br>
 
 #### BIDDEN VOOR VREDE
 <br>
-<figure><img src="images/pb-vre.jpg" alt=" Gebed voor vrede © Bijbelcitaat" style="max-height: 500px; max-width: 500px;" /><figcaption> Gebed voor vrede © Bijbelcitaat</figcaption></figure><br>
+<figure><img src="images/pb-hi.jpg.jpg" alt=" Biddende handen © Thomas KU Leuven" style="max-height: 500px; max-width: 500px;" /><figcaption> Biddende handen © Thomas KU Leuven</figcaption></figure><br>
 <br>
-<i>God,</i><br>
+<i>God van gerechtigheid en mededogen,</i><br>
+<i>Wij bidden tot U voor allen die vandaag lijden in het Heilig Land.</i><br>
 <br>
-<i>We bidden voor vrede in de wereld,</i><br>
-<i>in deze dagen bijzonder voor Oekraïne, Israël en Palestina.</i><br>
-<i>We bidden voor het neerleggen van de wapens.</i><br>
+<i>Voor uw geliefde kinderen, Israëli's en Palestijnen,</i><br>
+<i>die getraumatiseerd zijn en vrezen voor hun leven.</i><br>
 <br>
-<i>Wij bidden voor allen die vrezen voor de dag van morgen,</i><br>
-<i>dat uw Geest van troost tot hen wil naderen.</i><br>
+<i>Voor families die rouwen.</i><br>
+<i>Voor wie beelden zagen die voor altijd op hun netvlies gebrand staan.</i><br>
+<i>Voor wie in angst en onzekerheid wachten op nieuws.</i><br>
+<i>Voor wie de hoop elke dag kleiner wordt.</i><br>
 <br>
-<i>We bidden voor hen die macht hebben over oorlog of vrede,</i><br>
-<i>om wijsheid, onderscheidingsvermogen en medeleven</i><br>
-<i>om beslissingen te leiden.</i><br>
+<i>Voor jonge mannen en vrouwen,</i><br>
+<i>die zich klaarmaken voor het front</i><br>
+<i>en de last dragen van wat anderen hebben gedaan</i><br>
+<i>of van wat van hen zal worden gevraagd.</i><br>
 <br>
-<i>Bovenal bidden wij voor uw kostbare kinderen,</i><br>
-<i>in gevaar en angst,</i><br>
-<i>dat U hen vasthoudt en beschermt.</i><br>
+<i>Voor de burgerbevolking in Israël,</i><br>
+<i>Gaza en de Westelijke Jordaanoever: </i><br>
+<i>dat ze beschermd worden,</i><br>
+<i>dat elk mensenleven telt</i><br>
+<i>en gekoesterd en herinnerd wordt.</i><br>
 <br>
-<i>We bidden in naam van Jezus,</i><br>
-<i>Koning van de Vrede.</i><br>
+<i>Voor gewonden</i><br>
+<i>en voor hen die hun leven lang littekens zullen dragen.</i><br>
+<i>Voor wie wanhopig op zoek zijn naar medische verzorging</i><br>
+<i>waar die niet te vinden is.</i><br>
 <br>
+<i>Voor dokters en hulpverleners,</i><br>
+<i>die hun eigen leven op het spel zetten</i><br>
+<i>om dat van anderen te redden.</i><br>
+<br>
+<i>Voor wie in hun hart woede voelen</i><br>
+<i>en geweld met geweld beantwoorden.</i><br>
+<i>Dat Gij hen verrast met uw barmhartigheid</i><br>
+<i>en hun hart ombuigt tot vriendelijkheid</i><br>
+<i>voor hun medemensen.</i><br>
+<br>
+<i>Voor vredestichters,</i><br>
+<i>wier verbeelding groot genoeg is</i><br>
+<i>om andere wegen voor te stellen.</i><br>
+<i>Dat ze kunnen spreken en handelen</i><br>
+<i>én gehoord worden.</i><br>
+<br>
+<i>Almachtige en liefdevolle God,</i><br>
+<i>Gij hebt beloofd dat er een dag komt</i><br>
+<i>waarop zwaarden omgesmeed worden tot ploegijzers.</i><br>
+<i>Kom ons nabij in onze nood</i><br>
+<i>en breng vrede over dit geteisterde land.</i><br>
 <i>Amen.</i><br>
 <br>
 <br>
@@ -175,34 +162,18 @@ Donderdag <b>2 november</b> - Allerzielen<br>
 
 
 
-#### 3 NOVEMBER - SINT-HUBERTUS EN BROODWIJDING
+#### GAVERE-ASPER: NAAMOPGAVE VORMELINGEN - WIE BEN IK?
 <br>
-<figure><img src="images/pb-hub.jpg" alt=" Sint-Hubertus © Tielt-Winge" style="max-height: 500px; max-width: 500px;" /><figcaption> Sint-Hubertus © Tielt-Winge</figcaption></figure><br>
+Asper: zaterdag <b>18 november</b> - 18 uur Gavere: zondag <b>19 november</b> - 9 uur<br>
 <br>
-De heilige Hubertus leefde in de 8ste eeuw. Hij werd geboren uit een vooraanstaande adellijke familie en huwde op jonge leeftijd. Zijn vrouw stierf kort na hun huwelijk bij de geboorte van hun eerste kind. Omdat hij met dit verlies niet overweg kon, trok Hubertus zich steeds vaker terug in het bos en zocht in de jacht verstrooiing. Volgens de overlevering zag hij op een Goede Vrijdag een hert met een oplichtend kruis tussen het gewei. Dit was voor Hubertus een teken dat hij zijn verdere leven aan God moest geven. Hij werd bisschop van Maastricht en bracht later de bisschopszetel over naar Luik. Omdat St.-Hubertus eens een man van hondsdolheid genas, wordt hij speciaal aangeroepen tegen deze ziekte, hondenbeten, en razernij.<br>
-Om zich van deze ziekte te vrijwaren wordt ook nu nog het zogenaamde hubertusbrood gewijd. Vroeger namen de kerkgangers zelf een broodje mee om het te laten wijden. Het moest, na de zegening, droog worden opgegeten alvorens men iets anders mocht eten. Thuis werd het in stukken gebroken en iedereen moest daar een stukje van eten zodat ze beschermd waren tegen hondsdolheid en razernij. Ook de dieren kregen een stukje. Hubertus stierf op <b>30 mei</b>. In 825 werden zijn relieken overgebracht naar de huidige stad Saint-Hubert.<br>
+<figure><img src="images/pb-non.jpg.jpg" alt=" Op weg naar het vormsel © Kerknet" style="max-height: 500px; max-width: 500px;" /><figcaption> Op weg naar het vormsel © Kerknet</figcaption></figure><br>
 <br>
-<b>Op vrijdag 3 november om 7.30 uur zal pastoor Guy Claus in de kerk van Gavere brood zegenen.</b><br>
+"Jij bent bijzonder... daarom gaven je ouders je bij je doopsel een naam. Mensen spreken je met je eigen naam aan. Die naam onderscheidt je ook van anderen en word je ook geroepen door God. Jij gaat je naam voor je geloofsgemeenschap opgeven in voorbereiding op je vormsel.<br>
 <br>
+Bij het doopsel deden anderen dit in jouw plaats. Nu wil je zelf bevestigen dat je Jezus beter wil leren kennen en dichter bij God wil zijn met de hulp van de heilige Geest. Tegelijk krijg je ook een opdracht mee. Als je je naam opgeeft voor je vormsel krijg je de opdracht mee te bouwen aan Gods koninkrijk. Niet alleen een cadeau maar ook een verantwoordelijkheid. Gelukkig hoef je dit niet alleen te doen, je bent goed omringd door je ouders, vrienden, catechisten en de andere gelovigen. Zij leggen samen met jou jouw naam in Gods handen. En God heeft bij je doopsel jouw naam in Zijn hand geschreven. Hij vergeet jou nooit zoals een liefhebbende vader. Zijn liefde is trouw en onvoorwaardelijk. Bij elke stap die je zet naar je vormsel klinkt Zijn naam als "Ik zal er zijn altijd en opnieuw voor iedereen".<br>
 <br>
-<br>
-
-
-
-
-
-#### SAMEN EUCHARISTIE VIEREN = KRACHT VAN VERBONDENHEID
-<br>
-<figure><img src="images/pb-kracht.jpg" alt=" De kracht van samenwerken © Wikipedia" style="max-height: 500px; max-width: 500px;" /><figcaption> De kracht van samenwerken © Wikipedia</figcaption></figure><br>
-<br>
-In het evangelie van Matteüs lezen we in hoofdstuk 18 vers 20 "Waar twee of drie verenigd zijn in Mijn naam, daar ben ik in hun midden".<br>
-<br>
-De tijd van overvolle kerken is voorbij, zeker op weekdagen. Wij zijn een "kleine kudde" geworden. Maar als christenen geloven we dat daar waar mensen samenkomen in gebed en in de eucharistie zij de kracht van verbondenheid ervaren gebeiteld in de Geest van Jezus Christus.<br>
-<br>
-Niet alleen op zon- en feestdagen kunnen wij ons laten voeden door het Woord van<br>
-<br>
-<i>In de weekkapel van de kerk in Eke is er ochtendeucharistie op maandag, dinsdag, donderdag en vrijdag telkens om 8 uur. Iedereen is welkom!</i><br>
-<i>Laten we elkaar ontmoeten in geloofsverbondenheid met de Heer.</i><br>
+Wij wensen alle vormelingen een goede voorbereiding op weg naar het Vormsel.<br>
+Bron: Kerknet<br>
 <br>
 <br>
 <br>
@@ -211,12 +182,17 @@ Niet alleen op zon- en feestdagen kunnen wij ons laten voeden door het Woord van
 
 
 
-#### WINTERBEDEVAART LOURDES - 8 TOT 12 FEBRUARI 2024
+#### WEEK VAN DE SENIOREN VAN 20 TOT 26 NOVEMBER 2023
 <br>
-Het is een goede traditie dat Bedevaarten Bisdom Gent tijdens de wintermaanden naar Lourdes gaat. Op <b>11 februari 1858</b> had daar de eerste verschijning plaats aan Bernadette. Wij willen dan ter plaatse zijn om aan de grot van Massabielle deze eerste verschijning te gedenken.<br>
-De bedevaart is met het vliegtuig.<br>
+Deze week is een organisatie van de Vlaamse Ouderenraad en gaat dit jaar onder de noemer <b>"Bepaal je eigen verhaal"</b>.<br>
 <br>
-Info: tel. {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:0465080547">0465 08 05 47</a> - email: {{<icon class="fa fa-envelope">}}&nbsp;<a href="bedevaarten@bisdomgent.be">bedevaarten@bisdomgent.be</a> - website: www.bedevaartenbisdomgent.be<br>
+De Vlaamse Ouderenraad wil de ervaring en talenten van ouderen samenbrengen en inzetten om een samenleving te bevorderen die actief ouder worden voor iedereen mogelijk maakt.<br>
+Naarmate we ouder worden, veranderen de uitdagingen waarmee we geconfronteerd worden, de rollen die we opnemen en de noden die we ervaren. De Vlaamse Ouderenraad streeft naar een samenleving waarin iedereen op een kwaliteitsvolle manier ouder kan worden, in alle diversiteit en in elke levensfase.<br>
+Het principe van actief ouder worden staat daarbij centraal. Actief ouder worden houdt in dat iedereen, ook wie zich in een kwetsbare situatie bevindt, zo lang als mogelijk zijn eigen levenswijze in handen houdt en ouder kan worden op een manier die zijn sociaal, mentaal en fysisch welzijn bevordert en zijn volwaardige deelname aan de samenleving mogelijk maakt. Ook dan willen mensen hun capaciteiten ontplooien, deelnemen aan de samenleving en die samenleving mee vormgeven. Dat vraagt om eigen engagement, maar ook om een samenleving die daarvoor open staat.<br>
+Aan die samenleving wil de Vlaamse Ouderenraad mee bouwen.<br>
+Bron: Vlaamse ouderenraad<br>
+<br>
+<figure><img src="images/pb-aro.jpg.jpg" alt=" Seniorenweek © Vlaamse ouderenraad" style="max-height: 500px; max-width: 500px;" /><figcaption> Seniorenweek © Vlaamse ouderenraad</figcaption></figure><br>
 <br>
 <br>
 <br>
@@ -225,11 +201,15 @@ Info: tel. {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:0465080547">0465 08
 
 
 
-#### WINTERUUR IN DE NACHT VAN 28 OP 29 OKTOBER
+#### GAVERE: 11 NOVEMBER - HERDENKING WAPENSTILSTAND
 <br>
-<figure><img src="images/pb-wu.jpg" alt=" Winteruur © hln.be" style="max-height: 500px; max-width: 500px;" /><figcaption> Winteruur © hln.be</figcaption></figure><br>
+------------------------------------------------------------------------------------------------------------------------<br>
+Wapenstilstand cr. C. Piens<br>
+-----------------------------------------------------------------------------------------------------------------------<br>
 <br>
-We gaan terug over naar het winteruur. Dit betekent van 3 uur naar 2 uur. Dus een uurtje meer slaap.<br>
+Op <b>11 november 1918</b> om 11 uur werd in een spoorwegrijtuig in het Franse Compiègne de wapenstilstand ondertekend. "Nooit meer oorlog" was toen de leuze maar de wereld heeft daar niets uit geleerd want tot op vandaag zijn er in alle hoeken van de wereld nog zoveel oorlogen met ontelbare doden en zoveel leed.<br>
+Her-denken betekent respectvol eren maar ook denken hoe wereldwijd die langverwachte vrede kan groeien, hoe wij allen daaraan kunnen meewerken.<br>
+In een eerbiedwaardige en serene vredeswake herdachten we in de kerk van Gavere al die nutteloos gestorven en gekwetste mensen en hebben we samen gebeden om vrede wereldwijd. In het vertrouwen en het geloof dat een gebed nooit verloren gaat blijven we hopen dat Gods Koninkrijk hier ooit werkelijkheid wordt.<br>
 <br>
 <br>
 <br>

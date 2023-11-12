@@ -11,7 +11,8 @@ header_menu: true
 <br>
 <b>Dokter:</b><br>
 <br>
-Via het wachtnummer <b>1733</b>, ieder weekend van vrijdag 19.00 u. tot maandag 08.00 u. (Huisartsenwachtpost in AZ Sint-Vincentius Deinze)<br>
+Via het wachtnummer <b>1733</b>, ieder weekend van vrijdag 19.00 u. tot maandag 08.00 u. en op officiële feestdagen (Voor Eke-Nazareth: huisartsenwachtpost in AZ Sint-Vincentius Deinze)<br>
+(Voor Groot-Gavere: huisartsenwachtpost in AZ Oudenaarde, Minderbroederstraat 3)<br>
 <br>
 <b>Tandarts:</b><br>
 <br>

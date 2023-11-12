@@ -203,9 +203,7 @@ Bron: Vlaamse ouderenraad<br>
 
 #### GAVERE: 11 NOVEMBER - HERDENKING WAPENSTILSTAND
 <br>
-------------------------------------------------------------------------------------------------------------------------<br>
-Wapenstilstand cr. C. Piens<br>
------------------------------------------------------------------------------------------------------------------------<br>
+<figure><img src="images/pb-edo.jpg.jpg" alt=" Wapenstilstand © C. Piens" style="max-height: 500px; max-width: 500px;" /><figcaption> Wapenstilstand © C. Piens</figcaption></figure><br>
 <br>
 Op <b>11 november 1918</b> om 11 uur werd in een spoorwegrijtuig in het Franse Compiègne de wapenstilstand ondertekend. "Nooit meer oorlog" was toen de leuze maar de wereld heeft daar niets uit geleerd want tot op vandaag zijn er in alle hoeken van de wereld nog zoveel oorlogen met ontelbare doden en zoveel leed.<br>
 Her-denken betekent respectvol eren maar ook denken hoe wereldwijd die langverwachte vrede kan groeien, hoe wij allen daaraan kunnen meewerken.<br>

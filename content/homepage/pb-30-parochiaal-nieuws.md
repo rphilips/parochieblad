@@ -11,37 +11,25 @@ header_menu: true
 
 
 
-#### OVERLIJDEN
+#### KERSTMIS... MIDDEN ONDER ONS WIL GOD WONEN
 <br>
-We namen in de kerk afscheid van:<br>
+Hemels licht, warmte, vreugde, dankbaarheid rondom het pas geboren Kind dat als een weerloos klein kindje onder ons wil wonen overheersten in de hoogdagvieringen. "Vrede op aarde zongen de engelen". En die vrede, die vreugde liet zich voelen in het hart van alle aanwezigen. We hebben de kaarsen aangestoken als teken van ons geloof dat dit kleine Kind onder ons is gekomen uit liefde voor elke mens.<br>
+De mooie liturgie, de zinvolle woorden en duiding door de voorganger, de puike prestaties van het zangkoor, de creatieve handen van de medewerkers om de kerk mooi te tooien en de samenhorigheid maakten het geheel tot een intens gebeuren dat blijft nazinderen. Laten we als boodschap van Kerstmis meenemen dat God Zijn oneindige liefde aan ons heeft getoond door ons Zijn Zoon te zenden. Zijn liefde voor elk van ons is eindeloos en duurt tot in eeuwigheid. Aan elk van ons om die vreugde waarvan we getuige waren in ons hart groeikracht te geven en weeldering uit te strooien dichtbij en veraf.<br>
 <br>
-<i>Paul Dhont</i>, 92 j., Nazareth<br>
+Bij vreugde hoort ook gezelligheid. Na de viering was er in de kerk van Gavere gelegenheid om bij een frisse citroenjenever of een glaasje fruitsap welgemeende kerstwensen en wensen voor het nieuwe jaar uit te wisselen. Het was "hartverwarmend".<br>
+Hierbij elke foto's als herinnering.<br>
 <br>
+<figure><img src="images/pb-de1.jpg.jpg" alt=" Kerstmis te Nazareth (1) © Rita Van Oost" style="max-height: 500px; max-width: 500px;" /><figcaption> Kerstmis te Nazareth (1) © Rita Van Oost</figcaption></figure><br>
+<figure><img src="images/pb-de2.jpg.jpg" alt=" Kerstmis te Nazareth (2) © Rita Van Oost" style="max-height: 500px; max-width: 500px;" /><figcaption> Kerstmis te Nazareth (2) © Rita Van Oost</figcaption></figure><br>
+<figure><img src="images/pb-de3.jpg.jpg" alt=" Kerstmis te Nazareth (3) © Rita Van Oost" style="max-height: 500px; max-width: 500px;" /><figcaption> Kerstmis te Nazareth (3) © Rita Van Oost</figcaption></figure><br>
+<figure><img src="images/pb-hi3.jpg.jpg" alt=" Kerstmis te Nazareth (4) © Guy Claus" style="max-height: 500px; max-width: 500px;" /><figcaption> Kerstmis te Nazareth (4) © Guy Claus</figcaption></figure><br>
 <br>
+<figure><img src="images/pb-hi1.jpg.jpg" alt=" Kerstmis te Eke (1) © Guy Claus" style="max-height: 500px; max-width: 500px;" /><figcaption> Kerstmis te Eke (1) © Guy Claus</figcaption></figure><br>
+<figure><img src="images/pb-hi2.jpg.jpg" alt=" Kerstmis te Eke (2) © Guy Claus" style="max-height: 500px; max-width: 500px;" /><figcaption> Kerstmis te Eke (2) © Guy Claus</figcaption></figure><br>
 <br>
-
-
-
-
-
-#### HERABONNERING KERK & LEVEN - UPDATE
-<br>
-<figure><img src="images/pb-saweg.jpg.jpg" alt=" Samen op weg © Halewijn" style="max-height: 500px; max-width: 500px;" /><figcaption> Samen op weg © Halewijn</figcaption></figure><br>
-<br>
-Na de vertragingen bij de externe firma die de herabonneringsbrieven moest drukken, is Bpost er daarna in geslaagd om ons pakket kwijt te spelen.<br>
-<br>
-Halewijn heeft daarom alle brieven van onze editie Gavere-Nazareth opnieuw afgedrukt en ons toegestuurd. En dankzij de hulp van een paar extra handen is alles in een recordtempo de deur uitgegaan.<br>
-<br>
-Alle vrijwilligers hebben ondertussen hun ronde(s) ontvangen. U mag hen dus eerstdaags aan uw deur verwachten. Of misschien vindt u de brief gewoon in uw brievenbus als uw vrijwilliger een grote ronde of weinig tijd heeft.<br>
-<br>
-Alle brieven voor de abonnees van groot-Gavere zijn op de post gedaan. Vermoedelijk heeft u deze brief al ontvangen.<br>
-Mogen wij vragen om de betaling niet uit te stellen en steeds het juiste rekeningnummer en de gestructureerde mededeling te gebruiken die onderaan de overschrijving staat.<br>
-<br>
-Voor 2024 bedraagt de prijs 67 EUR voor een gewoon abonnement en vanaf 69 EUR voor een steunabonnement. Het juiste, gezamenlijke rekeningnummer voor groot-Gavere en Nazareth-Eke is: <b>{{<icon class="fa fa-piggy-bank">}}&nbsp;BE57 8905 0411 9135</b>.<br>
-<br>
-Bij problemen, vragen of onduidelijkheden mogen zowel de vrijwilligers als de abonnees contact opnemen met Greta op {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:093858531">09 385 85 31</a> of {{<icon class="fa fa-envelope">}}&nbsp;<a href="dewildepeil@skynet.be">dewildepeil@skynet.be</a><br>
-<br>
-Alle abonnees van wie tegen <b>3 december</b> géén betaling werd ontvangen, krijgen ter herinnering in Kerk & Leven nummer 50 (<b>13 december</b>) een gepersonaliseerde betalingsuitnodiging te zien op bladzijde 16.<br>
+<figure><img src="images/pb-tu1.jpg.jpg" alt=" Kerstmis te Gavere (1) © C.Piens" style="max-height: 500px; max-width: 500px;" /><figcaption> Kerstmis te Gavere (1) © C.Piens</figcaption></figure><br>
+<figure><img src="images/pb-tu2.jpg.jpg" alt=" Kerstmis te Gavere (2) © C.Piens" style="max-height: 500px; max-width: 500px;" /><figcaption> Kerstmis te Gavere (2) © C.Piens</figcaption></figure><br>
+<figure><img src="images/pb-tu3.jpg.jpg" alt=" Kerstmis te Gavere (3) © C.Piens" style="max-height: 500px; max-width: 500px;" /><figcaption> Kerstmis te Gavere (3) © C.Piens</figcaption></figure><br>
 <br>
 <br>
 <br>
@@ -50,49 +38,39 @@ Alle abonnees van wie tegen <b>3 december</b> géén betaling werd ontvangen, kr
 
 
 
-#### SCHERPENHEUVEL 5 NOVEMBER 2023
+#### "DAT HET LICHT IN ONS MAG BLIJVEN BRANDEN" OOK IN HET NIEUWE JAAR 2024
 <br>
-<figure><img src="images/pb-si1.jpg.jpg" alt=" In gesprek met aartsbisschop Mgr. Luc Terlinden © Marc perseyn" style="max-height: 500px; max-width: 500px;" /><figcaption> In gesprek met aartsbisschop Mgr. Luc Terlinden © Marc perseyn</figcaption></figure><br>
+<figure><img src="images/pb-has.jpg.jpg" alt=" De Heer is je tochtgenoot © Wikipedia" style="max-height: 500px; max-width: 500px;" /><figcaption> De Heer is je tochtgenoot © Wikipedia</figcaption></figure><br>
 <br>
-Naar jaarlijkse gewoonte gaan er vanuit Nazareth, Gavere, Deinze en Oudenaarde verschillende (28) bedevaarders mee op bedevaart naar Scherpenheuvel. Het is ieder jaar de eerste zondag van november de afsluiting van het bedevaart seizoen, met een eucharistieviering voorgegaan door de nieuwe aartsbisschop Mgr. Luc Terlinden. In de namiddag het lof met aansluitend de kaarsenprocessie door de straten en Basiliek en eindigen met de Vespers. Na de mis was het Receptie en Marc heeft een goed gesprek gehad met onze nieuwe Aartsbisschop. Misschien komt hij ook eens op bezoek naar Nazareth...<br>
+Wat ooit de apostelen deden, "nieuwe wegen banen" is nu aan ons. In de advent, bij het aansteken van de kaarsjes, zongen we telkens "Dat het Licht in ons mag blijven branden". Maar daarmee eindigt het niet voor ons, ook in het nieuwe jaar worden wij daartoe gezonden.<br>
 <br>
-Alle afwezigen hebben altijd ongelijk en was een mooie dag. Dank aan iedereen die erbij was en meegeholpen heeft.<br>
+Het is een traditie geworden om mekaar een gelukkig nieuwjaar te wensen. Met alle mensen zijn we op weg naar... wij vanuit een veilige haven, anderen vanuit vervolging, ellende, of... zonder uitzicht. Laten we bidden en hopen om Gods Licht, dat alle mensen in het nieuwe jaar mekaar toewensen: de vreugde van het leven, van de liefde, de vreugde waarmee God ons allen toelacht. We zijn sámen onderweg. Tezamen met elkaar en met Jezus in ons midden als tochtgenoot. Dat de vreugde en het Licht van Kerstmis ook in 2024 aanstekelijk blijft schijnen en dat we God even mogen ontmoeten waar we Hem niet dachten te vinden of misschien omgekeerd; dat God ons even mag ontmoeten waar Hij niet dacht ons te vinden.<br>
 <br>
-Foto: Marc Perseyn<br>
+Een gelukkig en gezegend 2024!<br>
 <br>
+<b>GEBED BIJ HET NIEUWE JAAR</b><br>
 <br>
-<br>
-
-
-
-
-
-#### EKE: TAKE-AWAY SOLIDARITEITSMAAL TVV LISANGA
-<br>
-<figure><img src="images/pb-wzc.jpg.jpg" alt=" Solidariteitsmaal tvv Lisanga © WZC de Lichtervelde" style="max-height: 500px; max-width: 500px;" /><figcaption> Solidariteitsmaal tvv Lisanga © WZC de Lichtervelde</figcaption></figure><br>
-<br>
-Op vrijdag <b>24 november</b> organiseert WZC de Lichtervelde opnieuw een take-awaymaaltijd ten voordele van vzw Lisanga. Er is de keuze tussen Gentse waterzooi (ook vegetarisch en incl. aardappelen) en varkenswangetjes met gratin.<br>
-<br>
-Beide maaltijden kunnen aangekocht worden voor EUR 12 per portie en dienen op voorhand te worden gereserveerd. De maaltijden kunnen worden afgehaald tussen 15.00 u. en 18.00 u. in WZC de Lichtervelde.<br>
-<br>
-Inschrijven kan voor <b>15 november</b> via {{<icon class="fa fa-envelope">}}&nbsp;<a href="verstraetej@delichtervelde.zkj.be.">verstraetej@delichtervelde.zkj.be.</a> Van harte aanbevolen!<br>
-<br>
-<br>
-<br>
-
-
-
-
-
-#### KERK GAVERE: HERDENKINGSVIERING VOOR DE OVERLEDENEN BEWONERS VAN HET WZC MARIAHUIS
-<br>
-<figure><img src="images/pb-vae.jpg.jpg" alt=" Herdenking overledenen Mariahuis1 © C. Piens" style="max-height: 500px; max-width: 500px;" /><figcaption> Herdenking overledenen Mariahuis1 © C. Piens</figcaption></figure><br>
-<br>
-<figure><img src="images/pb-mox.jpg.jpg" alt=" Herdenking overledenen Mariahuis2 © C. Piens" style="max-height: 500px; max-width: 500px;" /><figcaption> Herdenking overledenen Mariahuis2 © C. Piens</figcaption></figure><br>
-<br>
-Maandagavond <b>6 november</b> werd in een sereen moment stilgestaan bij alle bewoners die er sinds november vorig jaar tot op heden overleden zijn. Eerbiedwaardig werden hun namen genoemd als een balsem op een diepe wonde. Het eenvoudige aandenken met de naam van de overleden bewoner en de vele bloemen waren een blijk van verbondenheid en dankbaarheid voor wat die bewoners hebben betekend, een teken dat wij hen niet vergeten. Ook werd er gebeden om kracht voor allen die moeten leven met het gemis van een dierbare. Maar als mensen die geloven in de verrijzenis weten wij dat het aardse leven slechts een doortocht is naar een nieuw en ander bestaan bij de God van alle leven waar wij opnieuw met elkaar verenigd zullen zijn.<br>
-<br>
-Blijven praten over de overledenen is een bewijs dat wij hen niet vergeten. Daartoe was er daarna ruimschoots tijd vrijgemaakt om verhalen en herinneringen opnieuw voor de geest te halen en te delen met familie en verzorgend personeel.<br>
+<i>Dank U, Heer,</i><br>
+<i>U geeft mij een gloednieuw jaar.</i><br>
+<i>Geef me wijsheid,</i><br>
+<i>zodat ik een vriend kan zijn.</i><br>
+<i>Geef me een oog,</i><br>
+<i>zodat ik nood om me heen kan zien.</i><br>
+<i>Geef me geduld,</i><br>
+<i>zodat ik kan volhouden.</i><br>
+<i>Geef me dagen,</i><br>
+<i>die gevuld worden met Uw liefde.</i><br>
+<i>Geef me handen,</i><br>
+<i>die zegenen.</i><br>
+<i>Geef me armen,</i><br>
+<i>die omhelzen.</i><br>
+<i>Geef me een hart,</i><br>
+<i>dat liefheeft.</i><br>
+<i>Zoals U</i><br>
+<i>mij lief hebt,</i><br>
+<i>mij omhelst,</i><br>
+<i>mij zegent,</i><br>
+<i>iedere dag opnieuw. Amen</i><br>
 <br>
 <br>
 <br>
@@ -101,59 +79,13 @@ Blijven praten over de overledenen is een bewijs dat wij hen niet vergeten. Daar
 
 
 
-#### BIDDEN VOOR VREDE
+#### OPENBARING VAN DE HEER - DRIEKONINGEN
 <br>
-<figure><img src="images/pb-hi.jpg.jpg" alt=" Biddende handen © Thomas KU Leuven" style="max-height: 500px; max-width: 500px;" /><figcaption> Biddende handen © Thomas KU Leuven</figcaption></figure><br>
+<figure><img src="images/pb-neo.jpg.jpg" alt=" Driekoningen © Kerknet" style="max-height: 500px; max-width: 500px;" /><figcaption> Driekoningen © Kerknet</figcaption></figure><br>
 <br>
-<i>God van gerechtigheid en mededogen,</i><br>
-<i>Wij bidden tot U voor allen die vandaag lijden in het Heilig Land.</i><br>
+Op <b>25 december</b> viert de Kerk het geboortefeest van Jezus: Kerstmis. Twee weken later, op <b>6 januari</b>, volgt een ander groot feest: de Openbaring van de Heer of Driekoningen. De evangelist Matteüs zet ons op het spoor van de betekenis van dit feest. Het verhaalt over de wijzen uit het Oosten die, geleid door een ster, op zoek zijn naar de pasgeboren koning der Joden met de bedoeling Hem te huldigen en te aanbidden. Zij boden Jezus en Maria kostbare geschenken aan: goud, wierook en mirre.<br>
 <br>
-<i>Voor uw geliefde kinderen, Israëli's en Palestijnen,</i><br>
-<i>die getraumatiseerd zijn en vrezen voor hun leven.</i><br>
-<br>
-<i>Voor families die rouwen.</i><br>
-<i>Voor wie beelden zagen die voor altijd op hun netvlies gebrand staan.</i><br>
-<i>Voor wie in angst en onzekerheid wachten op nieuws.</i><br>
-<i>Voor wie de hoop elke dag kleiner wordt.</i><br>
-<br>
-<i>Voor jonge mannen en vrouwen,</i><br>
-<i>die zich klaarmaken voor het front</i><br>
-<i>en de last dragen van wat anderen hebben gedaan</i><br>
-<i>of van wat van hen zal worden gevraagd.</i><br>
-<br>
-<i>Voor de burgerbevolking in Israël,</i><br>
-<i>Gaza en de Westelijke Jordaanoever: </i><br>
-<i>dat ze beschermd worden,</i><br>
-<i>dat elk mensenleven telt</i><br>
-<i>en gekoesterd en herinnerd wordt.</i><br>
-<br>
-<i>Voor gewonden</i><br>
-<i>en voor hen die hun leven lang littekens zullen dragen.</i><br>
-<i>Voor wie wanhopig op zoek zijn naar medische verzorging</i><br>
-<i>waar die niet te vinden is.</i><br>
-<br>
-<i>Voor dokters en hulpverleners,</i><br>
-<i>die hun eigen leven op het spel zetten</i><br>
-<i>om dat van anderen te redden.</i><br>
-<br>
-<i>Voor wie in hun hart woede voelen</i><br>
-<i>en geweld met geweld beantwoorden.</i><br>
-<i>Dat Gij hen verrast met uw barmhartigheid</i><br>
-<i>en hun hart ombuigt tot vriendelijkheid</i><br>
-<i>voor hun medemensen.</i><br>
-<br>
-<i>Voor vredestichters,</i><br>
-<i>wier verbeelding groot genoeg is</i><br>
-<i>om andere wegen voor te stellen.</i><br>
-<i>Dat ze kunnen spreken en handelen</i><br>
-<i>én gehoord worden.</i><br>
-<br>
-<i>Almachtige en liefdevolle God,</i><br>
-<i>Gij hebt beloofd dat er een dag komt</i><br>
-<i>waarop zwaarden omgesmeed worden tot ploegijzers.</i><br>
-<i>Kom ons nabij in onze nood</i><br>
-<i>en breng vrede over dit geteisterde land.</i><br>
-<i>Amen.</i><br>
+Het feest van de Openbaring is een feest van licht verwijzend naar de ster van Bethlehem als teken van het nieuwe Licht dat in de wereld is gekomen. Wij kennen al het licht van de adventskaarsjes, het licht van de kerstboom, het licht van de vredeskaarsen maar nu wordt het volle Licht over ons uitgestort, zodat wij kinderen van het Licht zijn in deze verduisterde wereld. Moge wij daarvoor ontvankelijk zijn en moge dat Goddelijk Licht ons ook veranderen van binnenuit zodat wij getuigen en dragers worden van het ware Licht in deze wereld.<br>
 <br>
 <br>
 <br>
@@ -162,18 +94,13 @@ Blijven praten over de overledenen is een bewijs dat wij hen niet vergeten. Daar
 
 
 
-#### GAVERE-ASPER: NAAMOPGAVE VORMELINGEN - WIE BEN IK?
+#### 8 JANUARI - DOOP VAN DE HEER
 <br>
-Asper: zaterdag <b>18 november</b> - 18 uur Gavere: zondag <b>19 november</b> - 9 uur<br>
+<figure><img src="images/pb-duo.jpg.jpg" alt=" Doop van de Heer © Bijbelcitaat" style="max-height: 500px; max-width: 500px;" /><figcaption> Doop van de Heer © Bijbelcitaat</figcaption></figure><br>
 <br>
-<figure><img src="images/pb-non.jpg.jpg" alt=" Op weg naar het vormsel © Kerknet" style="max-height: 500px; max-width: 500px;" /><figcaption> Op weg naar het vormsel © Kerknet</figcaption></figure><br>
+Het is -zoals het feest van de Aanbidding van de Wijzen - een openbaringsfeest: de ware identiteit van Jezus als de Messias wordt kenbaar gemaakt aan de wereld. 'Nadat Jezus gedoopt was, steeg Hij terstond uit het water. En zie, de hemel opende zich en Hij zag de Geest van God op Hem neerdalen in de gedaante van een duif. Een stem uit de hemel sprak: 'Dit is mijn veelgeliefde Zoon in wie Ik welbehagen heb,' zo lezen we het in het Matteüsevangelie.<br>
 <br>
-"Jij bent bijzonder... daarom gaven je ouders je bij je doopsel een naam. Mensen spreken je met je eigen naam aan. Die naam onderscheidt je ook van anderen en word je ook geroepen door God. Jij gaat je naam voor je geloofsgemeenschap opgeven in voorbereiding op je vormsel.<br>
-<br>
-Bij het doopsel deden anderen dit in jouw plaats. Nu wil je zelf bevestigen dat je Jezus beter wil leren kennen en dichter bij God wil zijn met de hulp van de heilige Geest. Tegelijk krijg je ook een opdracht mee. Als je je naam opgeeft voor je vormsel krijg je de opdracht mee te bouwen aan Gods koninkrijk. Niet alleen een cadeau maar ook een verantwoordelijkheid. Gelukkig hoef je dit niet alleen te doen, je bent goed omringd door je ouders, vrienden, catechisten en de andere gelovigen. Zij leggen samen met jou jouw naam in Gods handen. En God heeft bij je doopsel jouw naam in Zijn hand geschreven. Hij vergeet jou nooit zoals een liefhebbende vader. Zijn liefde is trouw en onvoorwaardelijk. Bij elke stap die je zet naar je vormsel klinkt Zijn naam als "Ik zal er zijn altijd en opnieuw voor iedereen".<br>
-<br>
-Wij wensen alle vormelingen een goede voorbereiding op weg naar het Vormsel.<br>
-Bron: Kerknet<br>
+Dit feest sluit de Kersttijd af en vormt de overgang naar de tijd door het jaar.<br>
 <br>
 <br>
 <br>
@@ -182,17 +109,25 @@ Bron: Kerknet<br>
 
 
 
-#### WEEK VAN DE SENIOREN VAN 20 TOT 26 NOVEMBER 2023
+#### HERABONNERINGSPERIODE PAROCHIEBLAD IS AFGESLOTEN BIJ HALEWIJN
 <br>
-Deze week is een organisatie van de Vlaamse Ouderenraad en gaat dit jaar onder de noemer <b>"Bepaal je eigen verhaal"</b>.<br>
+<b>Samen op weg</b>, zo staat te lezen op de campagneaffiche van Kerk & Leven. Die weg was de afgelopen maanden eerder steil dan vlak, en bezaaid met veel veranderingen bij uitgeverij Halewijn.<br>
+Vooral het nieuwe, geautomatiseerde opmaaksysteem zorgde voor frustraties en ontmoediging.<br>
+De lay-out van het parochieblad was niet altijd zoals de lokale redacteurs het voor ogen hadden en daardoor zag uw parochieblad er soms anders uit dan u gewend was.<br>
+Maar al deze veranderingen - hoe ingrijpend en moeilijk ook - zijn erop gericht om samen aan de toekomst van het parochieblad te bouwen.<br>
 <br>
-De Vlaamse Ouderenraad wil de ervaring en talenten van ouderen samenbrengen en inzetten om een samenleving te bevorderen die actief ouder worden voor iedereen mogelijk maakt.<br>
-Naarmate we ouder worden, veranderen de uitdagingen waarmee we geconfronteerd worden, de rollen die we opnemen en de noden die we ervaren. De Vlaamse Ouderenraad streeft naar een samenleving waarin iedereen op een kwaliteitsvolle manier ouder kan worden, in alle diversiteit en in elke levensfase.<br>
-Het principe van actief ouder worden staat daarbij centraal. Actief ouder worden houdt in dat iedereen, ook wie zich in een kwetsbare situatie bevindt, zo lang als mogelijk zijn eigen levenswijze in handen houdt en ouder kan worden op een manier die zijn sociaal, mentaal en fysisch welzijn bevordert en zijn volwaardige deelname aan de samenleving mogelijk maakt. Ook dan willen mensen hun capaciteiten ontplooien, deelnemen aan de samenleving en die samenleving mee vormgeven. Dat vraagt om eigen engagement, maar ook om een samenleving die daarvoor open staat.<br>
-Aan die samenleving wil de Vlaamse Ouderenraad mee bouwen.<br>
-Bron: Vlaamse ouderenraad<br>
+Halewijn heeft net voor Kerstdag alle abonnementslijnen afgesloten en doorgestuurd naar Bpost. D.w.z. dat iedereen die betaald heeft vóór <b>22 december</b>, zijn parochieblad zonder onderbreking in 2024 verder zal ontvangen.<br>
 <br>
-<figure><img src="images/pb-aro.jpg.jpg" alt=" Seniorenweek © Vlaamse ouderenraad" style="max-height: 500px; max-width: 500px;" /><figcaption> Seniorenweek © Vlaamse ouderenraad</figcaption></figure><br>
+Let wel:<br>
+Abonnees waarvan wij de betaling na vrijdag <b>22 december</b> ontvangen hebben, missen sowieso nr. 1 (woensdag <b>3 januari</b>) van Kerk & Leven.<br>
+Abonnees waarvan wij de betaling ontvangen hebben na vrijdag <b>29 december</b>, missen sowieso nrs. 1 én 2 (woensdag <b>10 januari</b>) van Kerk & Leven.<br>
+Abonnees waarvan wij de betaling ontvangen na maandag <b>8 januari</b>, missen sowieso nrs. 1, 2 én 3 (woensdag <b>17 januari</b>) van Kerk & Leven. Vanaf dan schuift het telkens met één week op.<br>
+Abonnees kunnen hun abonnement voor het parochieblad nog steeds betalen. Voor 2024 bedraagt de prijs 67 EUR voor een gewoon abonnement en vanaf 69 EUR voor een steunabonnement.<br>
+Het juiste, gezamenlijke rekeningnummer voor groot-Gavere en Nazareth-Eke is: {{<icon class="fa fa-piggy-bank">}}&nbsp;BE57 8905 0411 9135. Houd er steeds rekening mee dat het bij sommige banken tot 3 werkdagen duurt vooraleer wij uw betaling op rekening zien verschijnen.<br>
+<br>
+Vanaf <b>11 januari 2024</b> verzendt Halewijn een laatste betalingsuitnodiging - de zogenoemde 'opvisbrief' - naar de abonnees die in de voorbije abonneringsperiode hun abonnement nog niet vernieuwden.<br>
+<br>
+<b>Abonnees die hun abonnement niet meer wensen te verlengen, mogen ons dit ook laten weten. Op die manier kunnen wij uw abonnement stopzetten en ontvangt u in januari geen herinnering meer. Dit kan via {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:093858531">09 385 85 31</a> of {{<icon class="fa fa-envelope">}}&nbsp;<a href="dewildepeil@skynet.be">dewildepeil@skynet.be</a></b><br>
 <br>
 <br>
 <br>
@@ -201,13 +136,26 @@ Bron: Vlaamse ouderenraad<br>
 
 
 
-#### GAVERE: 11 NOVEMBER - HERDENKING WAPENSTILSTAND
+#### HOOGTEPUNTEN VOOR NAZARETH
 <br>
-<figure><img src="images/pb-edo.jpg.jpg" alt=" Wapenstilstand © C. Piens" style="max-height: 500px; max-width: 500px;" /><figcaption> Wapenstilstand © C. Piens</figcaption></figure><br>
+<figure><img src="images/pb-aro.jpg.jpg" alt=" Zo goed voelt Immaterieel Erfgoed © werkplaats Immateriaal Erfgoed" style="max-height: 500px; max-width: 500px;" /><figcaption> Zo goed voelt Immaterieel Erfgoed © werkplaats Immateriaal Erfgoed</figcaption></figure><br>
 <br>
-Op <b>11 november 1918</b> om 11 uur werd in een spoorwegrijtuig in het Franse Compiègne de wapenstilstand ondertekend. "Nooit meer oorlog" was toen de leuze maar de wereld heeft daar niets uit geleerd want tot op vandaag zijn er in alle hoeken van de wereld nog zoveel oorlogen met ontelbare doden en zoveel leed.<br>
-Her-denken betekent respectvol eren maar ook denken hoe wereldwijd die langverwachte vrede kan groeien, hoe wij allen daaraan kunnen meewerken.<br>
-In een eerbiedwaardige en serene vredeswake herdachten we in de kerk van Gavere al die nutteloos gestorven en gekwetste mensen en hebben we samen gebeden om vrede wereldwijd. In het vertrouwen en het geloof dat een gebed nooit verloren gaat blijven we hopen dat Gods Koninkrijk hier ooit werkelijkheid wordt.<br>
+Nazareth kent een lange traditie van bedevaarten, zowel op de eigen gemeente als de bedevaarten die georganiseerd worden naar andere bedevaartsoorden.<br>
+<br>
+Vooral bij onze eigen Mariale Ommegang beweegt er één en ander.<br>
+<br>
+Eerder dit jaar werden we erkend als Immaterieel Erfgoed, wat een steun is voor het harde werk van de Werkgroep Mariale Ommegang voor onze eeuwenoude Ommegang.<br>
+<br>
+Daarnaast streden we, met de steun van de gemeente Nazareth en Erfgoed, mee naar de Provinciale Onroerend erfgoedprijs. Helaas vielen we net naast de hoofdprijs.<br>
+Maar een uitnodiging voor de prijsuitreiking en een opname in de nieuwste publicatie van de dienst Erfgoed van de Provincie Oost Vlaanderen komt er wel.<br>
+<br>
+Daarnaast hebben we ook onze aanvraag ingediend bij de Vlaamse Gemeenschap - Departement Cultuur, Jeugd en Media om opgenomen te worden op de 'Inventaris Vlaanderen'.<br>
+Ook hier kregen we de gewaardeerde steun en medewerking van de gemeente Nazareth en de Erfgoedcel Leie-schelde.<br>
+Het is minister Benjamin Dalle die alle kandidaturen bekijkt en beslist tot opname in de inventaris. De beslissing hieromtrent kan ieder moment genomen worden.<br>
+<br>
+Daarnaast kent Nazareth een jarenlange traditie van Bedevaarten naar o.a. Banneux, Halle, Oostakker Lourdes en Scherpenheuvel.<br>
+Het is in Scherpenheuvel dat onze groep dit jaar een ontmoeting en een gesprek had met de nieuwe aartsbisschop Luc Terlinden.<br>
+Een hele eer voor onze parochie!<br>
 <br>
 <br>
 <br>

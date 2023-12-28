@@ -11,55 +11,46 @@ header_menu: true
 <br>
 <br>
 
-##### Woensdag 15 november 2023  
-<dl><dt>&nbsp;</dt><dd>H. Albertus de Grote, bisschop en kerkleraar<br></dd><dt><b>08.30 u. Nazareth:</b></dt><dd>*GEEN eucharistie viering*</dd>
+##### Donderdag 4 januari 2024  
+<dl><dt>&nbsp;</dt><dd>H. Veerle van Gent, maagd<br></dd><dt><b>08.00 u. Eke:</b></dt><dd>Voor overledenen</dd>
 </dl>
 
-##### Donderdag 16 november 2023  
-<dl><dt>&nbsp;</dt><dd>H. Gertrudis van Helfta, maagd<br>H. Margaretha van Schotland, koningin<br></dd><dt><b>08.00 u. Eke:</b></dt><dd>Voor overledenen</dd>
+##### Vrijdag 5 januari 2024  
+<dl><dt><b>08.00 u. Eke:</b></dt><dd>Bijzondere intentie</dd>
 </dl>
 
-##### Vrijdag 17 november 2023  
-<dl><dt>&nbsp;</dt><dd>H. Elisabeth van Hongarije, moniale<br></dd><dt><b>08.00 u. Eke:</b></dt><dd>Geen intentie</dd>
+##### Zaterdag 6 januari 2024  
+<dl><dt><b>18.00 u. Eke:</b></dt><dd>*GEEN eucharistieviering*<br>(receptie van de gemeente op het kerkplein)<br><i>Lector: Els Bradt</i></dd>
 </dl>
 
-##### Zaterdag 18 november 2023  
-<dl><dt>&nbsp;</dt><dd>Kerkwijding van de Basilieken van de apostelen Petrus en Paulus<br>Maria op zaterdag<br></dd><dt><b>18.00 u. Asper:</b></dt><dd>Gebedsdienst met naamopgave door de vormelingen</dd>
-<dt><b>18.00 u. Eke:</b></dt><dd>T.e.v. H. Cecilia<br>Voor overleden ouders en broer Patrick<br>Overledenen<br>Uit dank voor gekregen hulp<br>Voor overleden ouders en meter<br>Gilbert Standaert, echtg. Yvonne Seeuws<br>Mis om een gunst te bekomen van  O.L.Vrouw van Nazareth en de H. Rita<br><i>Lector: Eigen lectoren</i></dd>
+##### Zondag 7 januari 2024  
+<dl><dt>&nbsp;</dt><dd>Openbaring des Heren - Driekoningen<br>Omhaling voor de Afrikaanse missies<br></dd><dt><b>09.00 u. Gavere:</b></dt><dd>Jaargetijde voor Gabriëlla De Schamphelaere en Aimé Dervaux<br>Jaargetijde voor Georges De Tollenaere echtgenoot van Henrietta Schietse en zoon Geert<br>Voor Lydia De Tollenaere<br>Voor Monseigneur Leonce Albert Van Peteghem<br><i>Lector: Dries Biesemans</i></dd>
+<dt><b>10.30 u. Nazareth:</b></dt><dd>Mgr. Leonce-Albert Van Peteghem<br><i>Lector: Prosper De Lepeleire</i></dd>
 </dl>
 
-##### Zondag 19 november 2023  
-<dl><dt>&nbsp;</dt><dd>33e Zondag door het jaar<br></dd><dt><b>09.00 u. Gavere:</b></dt><dd>Eucharistie met naamopgave door de vormelingen<br><i>Lector: Rita Coryn</i></dd>
+##### Maandag 8 januari 2024  
+<dl><dt>&nbsp;</dt><dd>Doop van de Heer<br></dd><dt><b>08.00 u. Eke:</b></dt><dd>V.M.</dd>
+</dl>
+
+##### Dinsdag 9 januari 2024  
+<dl><dt><b>08.00 u. Eke:</b></dt><dd>Overleden ouder en zus</dd>
+</dl>
+
+##### Donderdag 11 januari 2024  
+<dl><dt><b>08.00 u. Eke:</b></dt><dd>Voor onze overledenen</dd>
+</dl>
+
+##### Vrijdag 12 januari 2024  
+<dl><dt><b>08.00 u. Eke:</b></dt><dd>Bijzondere intentie</dd>
+</dl>
+
+##### Zaterdag 13 januari 2024  
+<dl><dt>&nbsp;</dt><dd>H. Hilarius, bisschop en kerkleraar<br>Maria op zaterdag<br></dd><dt><b>18.00 u. Eke:</b></dt><dd>Rita Van De Vijver<br>Edmond Gevaert en overleden familie<br><i>Lector: Kathy Wellems</i></dd>
+</dl>
+
+##### Zondag 14 januari 2024  
+<dl><dt>&nbsp;</dt><dd>2e Zondag door het jaar<br></dd><dt><b>09.00 u. Gavere:</b></dt><dd>Uit dank ter ere van de Heilige Rita en Onze-Lieve-Vrouw Altijddurende Bijstand<br>Mis uit dank (BUDCW)<br><i>Lector: Luc De Coninck</i></dd>
 <dt><b>10.30 u. Nazareth:</b></dt><dd>Eucharistie<br><i>Lector: Jo Buysse</i></dd>
-</dl>
-
-##### Maandag 20 november 2023  
-<dl><dt><b>08.00 u. Eke:</b></dt><dd>*GEEN eucharistie viering*</dd>
-</dl>
-
-##### Dinsdag 21 november 2023  
-<dl><dt>&nbsp;</dt><dd>Opdracht van de heilige maagd Maria in de tempel<br></dd><dt><b>08.00 u. Eke:</b></dt><dd>*GEEN eucharistie viering*</dd>
-</dl>
-
-##### Woensdag 22 november 2023  
-<dl><dt>&nbsp;</dt><dd>H. Caecilia, maagd en martelares<br></dd><dt><b>08.30 u. Nazareth:</b></dt><dd>*GEEN eucharistie viering*</dd>
-</dl>
-
-##### Donderdag 23 november 2023  
-<dl><dt>&nbsp;</dt><dd>H. Clemens I, paus en martelaar<br>H. Columbanus, abt<br></dd><dt><b>08.00 u. Eke:</b></dt><dd>*GEEN eucharistie viering*</dd>
-</dl>
-
-##### Vrijdag 24 november 2023  
-<dl><dt><b>08.00 u. Eke:</b></dt><dd>*GEEN eucharistie viering*</dd>
-</dl>
-
-##### Zaterdag 25 november 2023  
-<dl><dt>&nbsp;</dt><dd>HH. Andreas Dung-Lac, priester, en gezellen, martelaren<br></dd><dt><b>18.00 u. Eke:</b></dt><dd>Mis opgeluisterd door Harmonie St.-Cecila<br>O.L.Vrouw uit dank<br>Familie Vermeire - Van Lancker<br><i>Lector: Trees Adins</i></dd>
-</dl>
-
-##### Zondag 26 november 2023  
-<dl><dt>&nbsp;</dt><dd>Christus Koning van het heelal<br></dd><dt><b>09.00 u. Gavere:</b></dt><dd>Jaargetijde voor Georges Notebaert en echtgenote Clara De Roose<br>Voor Aimé Dervaux en echtgenote Gabriëlla De Schamphelaere<br>Eeuwigdurend voor de familie De Vreese<br><i>Lector: Luc De Coninck</i></dd>
-<dt><b>10.30 u. Nazareth:</b></dt><dd>Jgt. André Lootens en echtg. Monique Bijl<br><i>Lector: Annemie De Gussem</i></dd>
 </dl>
 <br>
 <br>

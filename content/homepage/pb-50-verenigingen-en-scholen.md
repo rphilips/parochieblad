@@ -13,9 +13,9 @@ header_menu: true
 
 #### 100 JAAR FERM ASPER
 <br>
-<figure><img src="images/pb-tam1.jpg.jpg" alt=" Onze voorzitster en secretaresse met de nationale voorzitster Nik Van Gool © Ferm Asper" style="max-height: 500px; max-width: 500px;" /><figcaption> Onze voorzitster en secretaresse met de nationale voorzitster Nik Van Gool © Ferm Asper</figcaption></figure><br>
-<figure><img src="images/pb-tam2.jpg.jpg" alt=" Onze bestuursploeg © Ferm Asper" style="max-height: 500px; max-width: 500px;" /><figcaption> Onze bestuursploeg © Ferm Asper</figcaption></figure><br>
-<figure><img src="images/pb-tam3.jpg.jpg" alt=" Dankviering kerk Asper © Ferm Asper" style="max-height: 500px; max-width: 500px;" /><figcaption> Dankviering kerk Asper © Ferm Asper</figcaption></figure><br>
+<figure><img src="images/pb-tam1.jpg" alt=" Onze voorzitster en secretaresse met de nationale voorzitster Nik Van Gool © Ferm Asper" style="max-height: 500px; max-width: 500px;" /><figcaption> Onze voorzitster en secretaresse met de nationale voorzitster Nik Van Gool © Ferm Asper</figcaption></figure><br>
+<figure><img src="images/pb-tam2.jpg" alt=" Onze bestuursploeg © Ferm Asper" style="max-height: 500px; max-width: 500px;" /><figcaption> Onze bestuursploeg © Ferm Asper</figcaption></figure><br>
+<figure><img src="images/pb-tam3.jpg" alt=" Dankviering kerk Asper © Ferm Asper" style="max-height: 500px; max-width: 500px;" /><figcaption> Dankviering kerk Asper © Ferm Asper</figcaption></figure><br>
 <br>
 Op 16 en <b>17 september</b> vierde Ferm Asper haar 100ste verjaardag.<br>
 Dit jubileum startte op zaterdag <b>16 september</b> met een dankviering in de kerk van Asper voorgegaan door Liesbeth Verholen. Daarna konden alle aanwezigen genieten van een glaasje bubbels of fruitsap om de 100-jarige te vieren.<br>

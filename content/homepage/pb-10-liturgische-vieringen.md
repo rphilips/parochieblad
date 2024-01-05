@@ -1,12 +1,12 @@
 ---
-title: "Eredienst"
-header_menu_title: "Eredienst"
-navigation_menu_title: "Eredienst"
+title: "Vieringen"
+header_menu_title: "Vieringen"
+navigation_menu_title: "Vieringen"
 weight: 1000
 header_menu: true
 ---
 
-![Eredienst](images/liturgische-vieringen.jpg)
+![Vieringen](images/liturgische-vieringen.jpg)
 
 <br>
 <br>

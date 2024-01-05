@@ -43,7 +43,7 @@ Leegzakstraat 33 C<br />
 <h6>NUTTIGE ADRESSEN</h6>
 <br />
 <dl>
-<dt>Priesters</dt>
+<dt>Pastoor</dt>
 <dd><b>Guy Claus</b><br />
 Steenweg 175A bus 6<br />
 9810 Eke<br />

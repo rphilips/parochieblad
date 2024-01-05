@@ -1,12 +1,12 @@
 ---
-title: "Verenigingen en scholen"
-header_menu_title: "Verenigingen"
-navigation_menu_title: "Verenigingen"
+title: "Activiteiten"
+header_menu_title: "Activiteiten"
+navigation_menu_title: "Activiteiten"
 weight: 1003
 header_menu: true
 ---
 
-![Verenigingen en scholen](images/verenigingen-en-scholen.jpg)
+![Activiteiten](images/activiteiten.jpg)
 
 
 

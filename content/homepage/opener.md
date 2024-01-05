@@ -21,7 +21,5 @@ Want Hij is nabij als wij Hem toelaten in ons leven.
 
 Blader zeker eens door de verschillende thema’s van de website en maak kennis met
 alle verrijkende en uitnodigende initiatieven.
-Het parochieblad Gavere - Nazareth brengt informatie over de erediensten en het geloofsleven in de gemeentes Gavere en Nazareth.
 
-Er wordt ook ruim aandacht geschonken aan het reilen en zeilen in de christelijke organisaties.
 

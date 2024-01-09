@@ -1,7 +1,7 @@
 ---
 title: "Activiteiten"
 header_menu_title: "Activiteiten"
-navigation_menu_title: "Activiteiten"
+navigation_menu_title: ""
 weight: 1003
 header_menu: true
 ---

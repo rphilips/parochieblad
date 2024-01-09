@@ -19,7 +19,7 @@ gastarbeider in Gods wijngaard. Elke keer als iemand uit liefde handelt, daar is
 rijk. Waar gerechtigheid is, daar is Gods rijk. Waar schoonheid is, daar is Gods rijk.
 Want Hij is nabij als wij Hem toelaten in ons leven.
 
-Blader zeker eens door de verschillende thema’s van de website en maak kennis met
-alle verrijkende en uitnodigende initiatieven.
+Blader zeker eens door de verschillende thema’s van de website en maak kennis met alle
+verrijkende en uitnodigende christelijk geïnspireerde initiatieven.
 
 

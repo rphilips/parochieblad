@@ -1,7 +1,7 @@
 ---
 title: "Parochiaal nieuws"
 header_menu_title: "Parochiaal nieuws"
-navigation_menu_title: "Parochiaal nieuws"
+navigation_menu_title: "(Inter)Parochiaal nieuws"
 weight: 1001
 header_menu: true
 ---

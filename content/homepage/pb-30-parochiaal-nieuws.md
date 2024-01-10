@@ -11,96 +11,20 @@ header_menu: true
 
 
 
-#### KERSTMIS... MIDDEN ONDER ONS WIL GOD WONEN
+#### BEDANKING VRIJWILLIG(ST)ERS PAROCHIEBLAD NAZARETH EN EKE
 <br>
-Hemels licht, warmte, vreugde, dankbaarheid rondom het pas geboren Kind dat als een weerloos klein kindje onder ons wil wonen overheersten in de hoogdagvieringen. "Vrede op aarde zongen de engelen". En die vrede, die vreugde liet zich voelen in het hart van alle aanwezigen. We hebben de kaarsen aangestoken als teken van ons geloof dat dit kleine Kind onder ons is gekomen uit liefde voor elke mens.<br>
-De mooie liturgie, de zinvolle woorden en duiding door de voorganger, de puike prestaties van het zangkoor, de creatieve handen van de medewerkers om de kerk mooi te tooien en de samenhorigheid maakten het geheel tot een intens gebeuren dat blijft nazinderen. Laten we als boodschap van Kerstmis meenemen dat God Zijn oneindige liefde aan ons heeft getoond door ons Zijn Zoon te zenden. Zijn liefde voor elk van ons is eindeloos en duurt tot in eeuwigheid. Aan elk van ons om die vreugde waarvan we getuige waren in ons hart groeikracht te geven en weeldering uit te strooien dichtbij en veraf.<br>
+<figure><img src="images/pb-tum.jpg" alt=" Thank you © Adrian via Pixabay" style="max-height: 500px; max-width: 500px;" /><figcaption> Thank you © Adrian via Pixabay</figcaption></figure><br>
 <br>
-Bij vreugde hoort ook gezelligheid. Na de viering was er in de kerk van Gavere gelegenheid om bij een frisse citroenjenever of een glaasje fruitsap welgemeende kerstwensen en wensen voor het nieuwe jaar uit te wisselen. Het was "hartverwarmend".<br>
-Hierbij elke foto's als herinnering.<br>
+Beste vrijwillig(st)er van het parochieblad,<br>
 <br>
-<figure><img src="images/pb-de1.jpg" alt=" Kerstmis te Nazareth (1) © Rita Van Oost" style="max-height: 500px; max-width: 500px;" /><figcaption> Kerstmis te Nazareth (1) © Rita Van Oost</figcaption></figure><br>
-<figure><img src="images/pb-de2.jpg" alt=" Kerstmis te Nazareth (2) © Rita Van Oost" style="max-height: 500px; max-width: 500px;" /><figcaption> Kerstmis te Nazareth (2) © Rita Van Oost</figcaption></figure><br>
-<figure><img src="images/pb-de3.jpg" alt=" Kerstmis te Nazareth (3) © Rita Van Oost" style="max-height: 500px; max-width: 500px;" /><figcaption> Kerstmis te Nazareth (3) © Rita Van Oost</figcaption></figure><br>
-<figure><img src="images/pb-hi3.jpg" alt=" Kerstmis te Nazareth (4) © Guy Claus" style="max-height: 500px; max-width: 500px;" /><figcaption> Kerstmis te Nazareth (4) © Guy Claus</figcaption></figure><br>
+Voorgaande jaren kregen wij van Halewijn steeds de mogelijkheid om Kerstkaartjes te bestellen voor jullie. Met deze kaartjes konden de lokale verantwoordelijken hun dank en waardering tonen omdat jullie ieder jaar opnieuw langs de straat lopen om de abonnementen op het parochieblad te hernieuwen.<br>
 <br>
-<figure><img src="images/pb-hi1.jpg" alt=" Kerstmis te Eke (1) © Guy Claus" style="max-height: 500px; max-width: 500px;" /><figcaption> Kerstmis te Eke (1) © Guy Claus</figcaption></figure><br>
-<figure><img src="images/pb-hi2.jpg" alt=" Kerstmis te Eke (2) © Guy Claus" style="max-height: 500px; max-width: 500px;" /><figcaption> Kerstmis te Eke (2) © Guy Claus</figcaption></figure><br>
+Dit jaar waren er echter geen kaartjes...<br>
 <br>
-<figure><img src="images/pb-tu1.jpg" alt=" Kerstmis te Gavere (1) © C.Piens" style="max-height: 500px; max-width: 500px;" /><figcaption> Kerstmis te Gavere (1) © C.Piens</figcaption></figure><br>
-<figure><img src="images/pb-tu2.jpg" alt=" Kerstmis te Gavere (2) © C.Piens" style="max-height: 500px; max-width: 500px;" /><figcaption> Kerstmis te Gavere (2) © C.Piens</figcaption></figure><br>
-<figure><img src="images/pb-tu3.jpg" alt=" Kerstmis te Gavere (3) © C.Piens" style="max-height: 500px; max-width: 500px;" /><figcaption> Kerstmis te Gavere (3) © C.Piens</figcaption></figure><br>
+Langs deze weg willen we toch onze dank uitspreken en onze waardering tonen voor jullie inzet. En we hopen uiteraard om volgend jaar opnieuw op jullie te mogen rekenen.<br>
+Daarom, een welgemeende dankjewel voor ieder van jullie voor jullie werk!<br>
 <br>
-<br>
-<br>
-
-
-
-
-
-#### "DAT HET LICHT IN ONS MAG BLIJVEN BRANDEN" OOK IN HET NIEUWE JAAR 2024
-<br>
-<figure><img src="images/pb-has.jpg" alt=" De Heer is je tochtgenoot © Wikipedia" style="max-height: 500px; max-width: 500px;" /><figcaption> De Heer is je tochtgenoot © Wikipedia</figcaption></figure><br>
-<br>
-Wat ooit de apostelen deden, "nieuwe wegen banen" is nu aan ons. In de advent, bij het aansteken van de kaarsjes, zongen we telkens "Dat het Licht in ons mag blijven branden". Maar daarmee eindigt het niet voor ons, ook in het nieuwe jaar worden wij daartoe gezonden.<br>
-<br>
-Het is een traditie geworden om mekaar een gelukkig nieuwjaar te wensen. Met alle mensen zijn we op weg naar... wij vanuit een veilige haven, anderen vanuit vervolging, ellende, of... zonder uitzicht. Laten we bidden en hopen om Gods Licht, dat alle mensen in het nieuwe jaar mekaar toewensen: de vreugde van het leven, van de liefde, de vreugde waarmee God ons allen toelacht. We zijn sámen onderweg. Tezamen met elkaar en met Jezus in ons midden als tochtgenoot. Dat de vreugde en het Licht van Kerstmis ook in 2024 aanstekelijk blijft schijnen en dat we God even mogen ontmoeten waar we Hem niet dachten te vinden of misschien omgekeerd; dat God ons even mag ontmoeten waar Hij niet dacht ons te vinden.<br>
-<br>
-Een gelukkig en gezegend 2024!<br>
-<br>
-<b>GEBED BIJ HET NIEUWE JAAR</b><br>
-<br>
-<i>Dank U, Heer,</i><br>
-<i>U geeft mij een gloednieuw jaar.</i><br>
-<i>Geef me wijsheid,</i><br>
-<i>zodat ik een vriend kan zijn.</i><br>
-<i>Geef me een oog,</i><br>
-<i>zodat ik nood om me heen kan zien.</i><br>
-<i>Geef me geduld,</i><br>
-<i>zodat ik kan volhouden.</i><br>
-<i>Geef me dagen,</i><br>
-<i>die gevuld worden met Uw liefde.</i><br>
-<i>Geef me handen,</i><br>
-<i>die zegenen.</i><br>
-<i>Geef me armen,</i><br>
-<i>die omhelzen.</i><br>
-<i>Geef me een hart,</i><br>
-<i>dat liefheeft.</i><br>
-<i>Zoals U</i><br>
-<i>mij lief hebt,</i><br>
-<i>mij omhelst,</i><br>
-<i>mij zegent,</i><br>
-<i>iedere dag opnieuw. Amen</i><br>
-<br>
-<br>
-<br>
-
-
-
-
-
-#### OPENBARING VAN DE HEER - DRIEKONINGEN
-<br>
-<figure><img src="images/pb-neo.jpg" alt=" Driekoningen © Kerknet" style="max-height: 500px; max-width: 500px;" /><figcaption> Driekoningen © Kerknet</figcaption></figure><br>
-<br>
-Op <b>25 december</b> viert de Kerk het geboortefeest van Jezus: Kerstmis. Twee weken later, op <b>6 januari</b>, volgt een ander groot feest: de Openbaring van de Heer of Driekoningen. De evangelist Matteüs zet ons op het spoor van de betekenis van dit feest. Het verhaalt over de wijzen uit het Oosten die, geleid door een ster, op zoek zijn naar de pasgeboren koning der Joden met de bedoeling Hem te huldigen en te aanbidden. Zij boden Jezus en Maria kostbare geschenken aan: goud, wierook en mirre.<br>
-<br>
-Het feest van de Openbaring is een feest van licht verwijzend naar de ster van Bethlehem als teken van het nieuwe Licht dat in de wereld is gekomen. Wij kennen al het licht van de adventskaarsjes, het licht van de kerstboom, het licht van de vredeskaarsen maar nu wordt het volle Licht over ons uitgestort, zodat wij kinderen van het Licht zijn in deze verduisterde wereld. Moge wij daarvoor ontvankelijk zijn en moge dat Goddelijk Licht ons ook veranderen van binnenuit zodat wij getuigen en dragers worden van het ware Licht in deze wereld.<br>
-<br>
-<br>
-<br>
-
-
-
-
-
-#### 8 JANUARI - DOOP VAN DE HEER
-<br>
-<figure><img src="images/pb-duo.jpg" alt=" Doop van de Heer © Bijbelcitaat" style="max-height: 500px; max-width: 500px;" /><figcaption> Doop van de Heer © Bijbelcitaat</figcaption></figure><br>
-<br>
-Het is -zoals het feest van de Aanbidding van de Wijzen - een openbaringsfeest: de ware identiteit van Jezus als de Messias wordt kenbaar gemaakt aan de wereld. 'Nadat Jezus gedoopt was, steeg Hij terstond uit het water. En zie, de hemel opende zich en Hij zag de Geest van God op Hem neerdalen in de gedaante van een duif. Een stem uit de hemel sprak: 'Dit is mijn veelgeliefde Zoon in wie Ik welbehagen heb,' zo lezen we het in het Matteüsevangelie.<br>
-<br>
-Dit feest sluit de Kersttijd af en vormt de overgang naar de tijd door het jaar.<br>
+Vanwege de lokale verantwoordelijken, Kathy en Greta.<br>
 <br>
 <br>
 <br>
@@ -136,26 +60,112 @@ Vanaf <b>11 januari 2024</b> verzendt Halewijn een laatste betalingsuitnodiging 
 
 
 
-#### HOOGTEPUNTEN VOOR NAZARETH
+#### ASWOENSDAG - PAROCHIE NAZARETH - EKE
 <br>
-<figure><img src="images/pb-aro.jpg" alt=" Zo goed voelt Immaterieel Erfgoed © werkplaats Immateriaal Erfgoed" style="max-height: 500px; max-width: 500px;" /><figcaption> Zo goed voelt Immaterieel Erfgoed © werkplaats Immateriaal Erfgoed</figcaption></figure><br>
+Op woensdag <b>14 februari 2024</b> zal de Aswoensdagviering doorgaan in de Kerk van<br>
+Nazareth om 10.30 u.<br>
 <br>
-Nazareth kent een lange traditie van bedevaarten, zowel op de eigen gemeente als de bedevaarten die georganiseerd worden naar andere bedevaartsoorden.<br>
+Alle vormelingen van de parochie Nazareth en parochie Eke, en hun<br>
+ouders/grootouders zijn alvast uitgenodigd voor deze viering. Iedereen is uiteraard<br>
+welkom.<br>
 <br>
-Vooral bij onze eigen Mariale Ommegang beweegt er één en ander.<br>
+Na de viering is er ten voordele van de VZW De Kruk en de Broederlijk delen<br>
+werking, een sober maal voorzien in het CC Het Centrum - Grote zaal.<br>
+Vooraf in te schrijven bij de catechisten, mits de inbreng van 5 EUR. Inschrijving<br>
+mogelijk tem zondag <b>11 februari 2024</b>. Inschrijvingsformulier kan je ook vinden in de<br>
+Kerk.<br>
 <br>
-Eerder dit jaar werden we erkend als Immaterieel Erfgoed, wat een steun is voor het harde werk van de Werkgroep Mariale Ommegang voor onze eeuwenoude Ommegang.<br>
+Bezorg het inschrijvingsformulier terug samen met de bijdrage aan één van de<br>
+catechisten. Contact voor de parochie Nazareth : {{<icon class="fa fa-envelope">}}&nbsp;<a href="catechese.nazareth@gmail.com.">catechese.nazareth@gmail.com.</a><br>
 <br>
-Daarnaast streden we, met de steun van de gemeente Nazareth en Erfgoed, mee naar de Provinciale Onroerend erfgoedprijs. Helaas vielen we net naast de hoofdprijs.<br>
-Maar een uitnodiging voor de prijsuitreiking en een opname in de nieuwste publicatie van de dienst Erfgoed van de Provincie Oost Vlaanderen komt er wel.<br>
 <br>
-Daarnaast hebben we ook onze aanvraag ingediend bij de Vlaamse Gemeenschap - Departement Cultuur, Jeugd en Media om opgenomen te worden op de 'Inventaris Vlaanderen'.<br>
-Ook hier kregen we de gewaardeerde steun en medewerking van de gemeente Nazareth en de Erfgoedcel Leie-schelde.<br>
-Het is minister Benjamin Dalle die alle kandidaturen bekijkt en beslist tot opname in de inventaris. De beslissing hieromtrent kan ieder moment genomen worden.<br>
 <br>
-Daarnaast kent Nazareth een jarenlange traditie van Bedevaarten naar o.a. Banneux, Halle, Oostakker Lourdes en Scherpenheuvel.<br>
-Het is in Scherpenheuvel dat onze groep dit jaar een ontmoeting en een gesprek had met de nieuwe aartsbisschop Luc Terlinden.<br>
-Een hele eer voor onze parochie!<br>
+
+
+
+
+
+#### EEN NIEUW JAAR... EEN GESCHENK UIT GODS HAND
+<br>
+Met Kerstmis en bij het begin van een nieuw jaar wensen we elkaar steeds alle goeds.<br>
+Meer dan anders zal dat ook dit jaar gemeend en hoopvol klinken. Maar het is niet alleen hoop die we uitspreken. We dragen allen een grote verantwoordelijkheid om die wensen te laten uitkomen voor ieder die ons dierbaar is.<br>
+<br>
+Maar we moeten ook het ruimer plaatje durven zien. De jaaroverzichten vertellen ons dat onze wereld zo hard is geworden. We zien en horen dagelijks op radio en televisie de ruwheid ervan, we lezen elke dag de haatkreten en gruweldaden op de sociale media; we proeven de rivaliteit. Onze samenleving wordt bedreigd. Onze wereld heeft vrede méér dan nodig. Het kerstverhaal dat we onlangs hoorden komt tot leven in kleine daden, te beginnen in eigen omgeving. Die vrede begint met een groet aan elkaar, een blik, een woord, een handdruk aan de man of vrouw in de buurt.<br>
+<br>
+Er zullen mensen moeten opstaan die de kar van vrede willen trekken en gelukkig zijn die er ook maar versterking is nodig. Laten wij als christenen, als Gods Kerk op aarde op die kar springen en samen als gelovige gemeenschap een oase van medemenselijkheid, liefde en vrede uitbouwen.<br>
+<br>
+Moge 2024 voor jullie allen een mooi jaar zijn waarin je mag ontdekken dat God veel om ons geeft en dat Hij bij ons elk moment van de dag te gast wil zijn.<br>
+<br>
+Pastoor Guy en het parochieteam<br>
+<br>
+<br>
+<br>
+
+
+
+
+
+#### DANK VANWEGE VZW DE TINTEN
+<br>
+Gedurende de adventszondagen ging de omhaling integraal naar de actie van welzijnszorg. Vanuit de geloofsgemeenschap Groot-Gavere kon de som van 548,50 EUR overgemaakt worden. Een heel mooi bedrag waarvoor van harte dank.<br>
+<br>
+<figure><img src="images/pb-an.jpg" alt=" Steunactie De Tinten © C. Piens" style="max-height: 500px; max-width: 500px;" /><figcaption> Steunactie De Tinten © C. Piens</figcaption></figure><br>
+<br>
+Ook materieel zorgden we voor een stevig pakket aan verzorgingsprodukten. VZW De Tinten dankt alle milde weldoeners uit naam van hen die het broodnodige ontberen en de eindjes moeilijk aan mekaar kunnen knopen. Met uw steun heeft u wat Kerstwarmte gebracht in het hart van al die vergeten mensen.<br>
+<br>
+<br>
+<br>
+
+
+
+
+
+#### STATISTIEKEN, WAT ZEGGEN ZE ONS?
+<br>
+Wat u erover denkt laat ik in het midden maar wil toch meegeven dat in de 3 kerken en de 3 woon- en zorgcentra van onze geloofsgemeenschap samen 782 mensen de hoogdagviering van Kerstmis bijwoonden.<br>
+<br>
+Het Kindje Jezus kreeg terecht een centrale plaats in het gebeuren. De zinvolle teksten en gebeden, de stemmige kerstliederen, de mooi versierde kerken,... brachten de warmte van Kerstmis in ons midden.<br>
+<br>
+Maar daarmee houdt het voor elke christen niet op; het kerstverhaal is geen mooi sprookje dat vertedert, maar nodigt uit om God in jezelf welkom te heten en Zijn vrede uit te dragen elke dag opnieuw.<br>
+<br>
+Het was heel fijn om samen te zijn.<br>
+Pastoor Guy Claus<br>
+<br>
+<br>
+<br>
+
+
+
+
+
+#### SAMEN EUCHARISTIE VIEREN
+<br>
+<figure><img src="images/pb-at.jpg" alt=" Samen eucharistie vieren © Kerknet" style="max-height: 500px; max-width: 500px;" /><figcaption> Samen eucharistie vieren © Kerknet</figcaption></figure><br>
+<br>
+In het evangelie van Matteüs lezen we in hoofdstuk 18 vers 20 "Waar twee of drie verenigd zijn in Mijn naam, daar ben ik in hun midden".<br>
+<br>
+De tijd van overvolle kerken is voorbij, zeker op weekdagen. Wij zijn een "kleine kudde" geworden. Maar als christenen geloven we dat daar waar mensen samenkomen in gebed en in de eucharistie zij de kracht van verbondenheid ervaren gebeiteld in de Geest van Jezus Christus.<br>
+<br>
+Niet alleen op zon- en feestdagen maar ook tijdens de week kunnen wij ons laten voeden door het Woord van de Heer.<br>
+<br>
+<b>In de weekkapel van de kerk in Eke is er ochtendeucharistie op maandag, dinsdag, donderdag en vrijdag telkens om 8 uur. Iedereen is welkom!</b><br>
+<br>
+<br>
+<br>
+
+
+
+
+
+#### GEBEDSWEEK VOOR DE EENHEID VAN DE CHRISTENEN VAN 18 TOT 25 JANUARI 2024
+<br>
+<figure><img src="images/pb-us.jpg" alt=" Gebedsweek eenheid christenen © Kerknet" style="max-height: 500px; max-width: 500px;" /><figcaption> Gebedsweek eenheid christenen © Kerknet</figcaption></figure><br>
+<br>
+De <b>Gebedsweek voor de Eenheid van de Christenen,</b> aangedragen door de christenen uit Burkina Faso, staat in het teken van de passage van Lucas 10,27: '<b>Heb de Heer, uw God lief met heel uw hart, heel uw ziel, met heel uw kracht, met heel uw verstand en uw naaste als uzelf</b>', de bekende passage uit het verhaal van de barmhartige Samaritaan.<br>
+<br>
+Deze week van gebed moedigt Kerken aan om goed te doen en recht te zoeken met bijzondere aandacht om in de andere daadwerkelijk een naaste te herkennen en om stappen te zetten om vooroordelen te overbruggen.<br>
+<br>
+De eenheid van de christenen zou een teken moeten zijn van de herstelde eenheid van de hele schepping. Maar verdeeldheid onder christenen verzwakt dit teken en versterkt de gebrokenheid. Samen bidden voor eenheid van christenen stelt ons in staat na te denken over wat ons bindt.<br>
 <br>
 <br>
 <br>

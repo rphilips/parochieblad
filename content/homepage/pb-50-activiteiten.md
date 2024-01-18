@@ -34,6 +34,9 @@ Info en inschrijvingen bij Rita Petereyns op {{<icon class="fa fa-phone">}}&nbsp
 <br>
 <b>Vrijdag 19 januari</b> om 19.30 u. in O.C. Martinus: Nieuwjaarsfeest 'Glitter en Glamour'<br>
 <br>
+<br>
+<br>
+<br>
 Beter Bewegen : Elke dinsdag vanaf <b>9 januari</b> t.e.m. <b>30 april</b> (uitgezonderd schoolvakanties) van 20.00 u. tot 21.00 u. - Sporthal Scaldis, Sportdreef 1B Gavere<br>
 Info en inschrijvingen bij Christiane loontjens op {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:0479469650">0479 46 96 50</a> of via {{<icon class="fa fa-envelope">}}&nbsp;<a href="Loontjens.chris@telenet.be">Loontjens.chris@telenet.be</a><br>
 <br>
@@ -44,17 +47,34 @@ Info en inschrijvingen bij Christiane loontjens op {{<icon class="fa fa-phone">}
 
 
 
+#### FERM NAZARETH
+<br>
+<figure><img src="images/pb-hi.jpg" alt=" kaasbuffer © Ferm Nazareth" style="max-height: 500px; max-width: 500px;" /><figcaption> kaasbuffer © Ferm Nazareth</figcaption></figure><br>
+<br>
+nodigt u uit op het KAASBUFFET op <b>27 januari 2024</b> vanaf 19.00 u. Afhalen is ook<br>
+mogelijk tussen 11.00 u. en 13.00 u.<br>
+<br>
+Kaarten te bestellen en meer info via {{<icon class="fa fa-envelope">}}&nbsp;<a href="fermnazareth@hotmail.com">fermnazareth@hotmail.com</a><br>
+<br>
+<br>
+<br>
+
+
+
+
+
 #### LDC 'DEN OEVER' - GAVERE
 <br>
-<b>Woensdag 10 januari</b> om 14.00 u.: UNO - namiddag<br>
-<b>Donderdag 11 januari</b> om 10.00 u.: Bewegen op muziek - gratis proefles<br>
-<b>Donderdag 11 januari</b> om 13.00 u.: Spaanse les op reis 3A i.s.m. KISP<br>
-<b>Donderdag 11 januari</b> om 14.00 u.: Mantelzorgcafé - Nieuwjaarsdrink<br>
-<b>Maandag 15 januari</b> om 14.00 u.: Kaarten i.s.m. OKRA<br>
-<b>Dinsdag 16 januari</b> om 10.00 u.: Yoga<br>
-<b>Dinsdag 16 januari</b> om 14.00 u.: Lijndansen, portrettekenen, Spelletjesnamiddag<br>
 <b>Woensdag 17 januari</b> om 08.30 u.: Nieuwjaarsontbijt<br>
 <b>Woensdag 17 januari</b> om 14.00 u.: Diamond painting<br>
+<b>Donderdag 18 januari</b> om 10.00 u.: Bewegen op muziek<br>
+<b>Donderdag 18 januari</b> om 13.00 u.: Spaanse les 3A i.s.m. KISP<br>
+<b>Dinsdag 23 januari</b> om 10.00 u.: Yoga<br>
+<b>Dinsdag 23 januari</b> om 14.00 u.: Lijndansen, Portrettekenen, Spelletjesnamiddag<br>
+<b>Woensdag 24 januari</b> om 14.00 u.: Bingo<br>
+<b>Donderdag 25 januari</b> om 10.00 u.: Bewegen op muziek<br>
+<b>Donderdag 25 januari</b> om 11.00 u.: Spaanse les 3A i.s.m. KISP<br>
+<b>Donderdag 25 januari</b> om 14.00 u.: Bonte baknamiddag: Pannenkoeken<br>
 <br>
 <br>
 <br>
@@ -67,11 +87,12 @@ Info en inschrijvingen bij Christiane loontjens op {{<icon class="fa fa-phone">}
 <br>
 <b>OKRA-TREFPUNT EKE nodigt uit...</b><br>
 <br>
-<b>Donderdag 11 januari</b> om 14.00 u. in CC De Brouwerij: Lijndans en rummikub<br>
-<b>Vrijdag 12 januari</b> om 14.00 u. in CC Nova: Nieuwjaarskoffietafel<br>
 <b>Woensdag 17 januari</b> om 14.00 u. in CC De Brouwerij: Kaarten<br>
 <b>Donderdag 18 januari</b> om 09.30 u. in CC De Brouwerij: Lijndans<br>
 <b>Donderdag 18 januari</b> om 13.45 u. vertrek aan de kerk: Wandelen<br>
+<b>Maandag 22 januari</b> om 13.30 u. in CC De Brouwerij: Crea-atelier<br>
+<b>Dinsdag 23 januari</b> om 14.00 u. in Sporthal Nazareth: Petanque<br>
+<b>Donderdag 25 januari</b> om 14.00 u. in CC De Brouwerij: Lijndans en rummikub<br>
 <br>
 <br>
 <br>
@@ -84,8 +105,8 @@ Info en inschrijvingen bij Christiane loontjens op {{<icon class="fa fa-phone">}
 <br>
 Activiteitenkalender van januari 2024<br>
 <br>
-<b>Dinsdag 16 januari</b> om 14.00 u. aan de Sporthal: Petanque<br>
 <b>Donderdag 18 januari</b> om 14.00 u. in cc Het Centrum: Lijndansen<br>
+<b>Dinsdag 23 januari</b> om 14.00 u. in cc Het Centrum: Kaarten, rummikub, crea<br>
 <br>
 <br>
 29/2 14.00 in cc Het Centrum: Lijndansen<br>
@@ -114,14 +135,29 @@ Graag inschrijven bij Ann Bergez: Haagstraat 70, {{<icon class="fa fa-phone">}}&
 
 
 
-#### SAMANA NAZARETH: KERSTFEESTJE
+#### VRIJE BASISSCHOOL NAZARETH: NIEUWE DIRECTEUR
 <br>
-Op <b>23 december</b> vond het kerstfeest plaats van Samana Nazareth. Er was tijd voor bezinning en ontspanning. Bert zorgde voor de muzikale omlijsting. De sfeer zat er goed in. Er werd gezellig gepraat bij een tas koffie en gebak. Er werd volop gezongen en gedanst.<br>
+<b>NIEUWE DIRECTEUR IN DE SCHOOL OP 't DORP TE NAZARETH</b><br>
 <br>
-<figure><img src="images/pb-si1.jpg" alt=" Kerstfeestje Samana Nazareth (1) © Annick Geiregat" style="max-height: 500px; max-width: 500px;" /><figcaption> Kerstfeestje Samana Nazareth (1) © Annick Geiregat</figcaption></figure><br>
-<figure><img src="images/pb-si2.jpg" alt=" Kerstfeestje Samana Nazareth (2) © Annick Geiregat" style="max-height: 500px; max-width: 500px;" /><figcaption> Kerstfeestje Samana Nazareth (2) © Annick Geiregat</figcaption></figure><br>
-<figure><img src="images/pb-si3.jpg" alt=" Kerstfeestje Samana Nazareth (3) © Annick Geiregat" style="max-height: 500px; max-width: 500px;" /><figcaption> Kerstfeestje Samana Nazareth (3) © Annick Geiregat</figcaption></figure><br>
-<figure><img src="images/pb-si4.jpg" alt=" Kerstfeestje Samana Nazareth (4) © Annick Geiregat" style="max-height: 500px; max-width: 500px;" /><figcaption> Kerstfeestje Samana Nazareth (4) © Annick Geiregat</figcaption></figure><br>
+<figure><img src="images/pb-ibi.jpg" alt=" Pieter Blomme, nieuwe directeur © Vrije basisschool Nazareth" style="max-height: 500px; max-width: 500px;" /><figcaption> Pieter Blomme, nieuwe directeur © Vrije basisschool Nazareth</figcaption></figure><br>
+<br>
+Huidig directeur Patrick Neyt gaat na 40 jaar volle inzet in het onderwijs, waarvan 27 jaar als directeur in deze school op <b>31 maart 2024</b> met pensioen. Het schoolbestuur, schoolteam en ouders zijn hem uitermate dankbaar om de school van 't dorp te brengen tot wat ze nu geworden is. Het reilen en zeilen van de school was voor Patrick een ware missie. We wensen hem dan ook een gelukkige periode toe waarvan hij samen met zijn echtgenote, kinderen en kleinkinderen kan genieten.<br>
+<br>
+Pieter Blomme, 46 jaar, wordt na de krokusvakantie 2024 de nieuwe directeur van de Vrije Basisschool Nazareth op het dorp.<br>
+<br>
+Pieter, afkomstig uit De Pinte, woont reeds 15 jaar in Nazareth, is gehuwd met Nathalie De Vrieze en heeft 2 zonen, die trouwens schoolliepen bij ons, vanaf de kleuterklas tot het 6de leerjaar. Zijn echtgenote was lid van de ouderraad, hijzelf was vrijwilliger en ondersteuner bij talrijke activiteiten, zoals de jaarlijkse ouderraadsquiz. Hij heeft dus al een jarenlang engagement in deze school.<br>
+<br>
+In augustus 2019 werd Pieter lid van het schoolbestuur, een functie die hij nu neerlegt. Sedert een jaar is hij ook lid van de bouwcel van het net begonnen masterplan nieuwbouw.<br>
+Pieter staat 24 jaar in het onderwijs, waarvan 15 jaar als leerkracht Frans en geschiedenis en 9 jaar als graadcoördinator van de tweede graad in het Don Boscocollege in Zwijnaarde.<br>
+Hij was er 6 jaar lid van het financieel comité, 7 jaar van de directieraad en de voorbije 9 jaar lid van het directieteam. Hij heeft dus heel wat ervaring en hij beschikt over pedagogische, leidinggevende en organisatorische vaardigheden om deze uitdagende functie op te nemen.<br>
+<br>
+We laten de nieuwe directeur even zelf aan het woord: "Al 24 jaar probeer ik jongeren vertrouwen te geven en een hartelijke leerkracht en graadcoördinator te zijn. Als directeur zal ik op dezelfde manier met leerlingen en leerkrachten omgaan: respect tonen voor ieders mening of persoonlijkheid, in dialoog gaan en mijn eigen functioneren proberen te verbeteren door te leren uit elke situatie of gesprek.<br>
+<br>
+Pijlers als hartelijkheid, redelijkheid en vertrouwen zijn 3 sleutelwoorden die te vinden zijn in het pedagogisch project van de Vrije Basisschool Nazareth en die ik volop ter harte neem."<br>
+<br>
+Het schoolbestuur hoopt dat onze school met de keuze voor de heer Pieter Blomme ook de komende jaren in goede handen is bij Pieter en een gedreven schoolteam.<br>
+<br>
+Het schoolbestuur<br>
 <br>
 <br>
 <br>

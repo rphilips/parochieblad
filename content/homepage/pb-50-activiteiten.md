@@ -109,8 +109,6 @@ Activiteitenkalender van januari 2024<br>
 <b>Dinsdag 23 januari</b> om 14.00 u. in cc Het Centrum: Kaarten, rummikub, crea<br>
 <br>
 <br>
-29/2 14.00 in cc Het Centrum: Lijndansen<br>
-<br>
 !!! Voor meer info: tel. {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:093855371">09 385 53 71</a><br>
 <br>
 <br>

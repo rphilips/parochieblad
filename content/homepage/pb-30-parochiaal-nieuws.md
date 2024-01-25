@@ -13,20 +13,9 @@ header_menu: true
 
 #### OVERLIJDEN
 <br>
-We namen in de kerk van Gavere afscheid van:<br>
+We namen in de kerk afscheid van:<br>
 <br>
-<i>Ruffin Verschelden</i>, 83 j., echtg. Marie Dhondt uit Vurste<br>
-<br>
-<br>
-<br>
-
-
-
-
-
-#### 25 JANUARI: BEKERING VAN DE APOSTEL PAULUS
-<br>
-<figure><img src="images/pb-ops.jpg" alt=" Bekering van de apostel Paulus © Guy Claus" style="max-height: 500px; max-width: 500px;" /><figcaption> Bekering van de apostel Paulus © Guy Claus</figcaption></figure><br>
+<i>Jean Van Heuverswijn</i>, 90 jaar, weduwnaar Godelieve Nemegeer, WZC De Lichtervelde<br>
 <br>
 <br>
 <br>
@@ -35,17 +24,12 @@ We namen in de kerk van Gavere afscheid van:<br>
 
 
 
-#### SAMEN EUCHARISTIE VIEREN
+#### DOOPSEL
 <br>
-<figure><img src="images/pb-vel.jpg" alt=" Eucharistie vieren © Kerknet" style="max-height: 500px; max-width: 500px;" /><figcaption> Eucharistie vieren © Kerknet</figcaption></figure><br>
+Heeft het doopselsacrament ontvangen:<br>
 <br>
-In het evangelie van Matteüs lezen we in hoofdstuk 18 vers 20 "Waar twee of drie verenigd zijn in Mijn naam, daar ben ik in hun midden".<br>
-<br>
-De tijd van overvolle kerken is voorbij, zeker op weekdagen. Wij zijn een "kleine kudde" geworden. Maar als christenen geloven we dat daar waar mensen samenkomen in gebed en in de eucharistie zij de kracht van verbondenheid ervaren gebeiteld in de Geest van Jezus Christus.<br>
-<br>
-Niet alleen op zon- en feestdagen maar ook tijdens de week kunnen wij ons laten voeden door het Woord van de Heer.<br>
-<br>
-<b>In de weekkapel van de kerk in Eke is er ochtendeucharistie op maandag, dinsdag, donderdag en vrijdag telkens om 8 uur. Iedereen is welkom!</b><br>
+<i>Amelie Matthijs</i>, Semmerzake<br>
+.<br>
 <br>
 <br>
 <br>
@@ -54,41 +38,22 @@ Niet alleen op zon- en feestdagen maar ook tijdens de week kunnen wij ons laten 
 
 
 
-#### GEBEDSWEEK VOOR DE EENHEID VAN DE CHRISTENEN VAN 18 TOT 25 JANUARI 2024
+#### WAT IS ER AAN DE HAND MET DE LOKALE PAGINA'S
 <br>
-<figure><img src="images/pb-ait.jpg" alt=" Gebedsweek eenheid christenen © Kerknet" style="max-height: 500px; max-width: 500px;" /><figcaption> Gebedsweek eenheid christenen © Kerknet</figcaption></figure><br>
+Volgende tekst stond te lezen op pagina 5 van Kerk & Leven nr. 2 van 10 januari 2024. Voor onze lezers die dit stukje niet opgemerkt hebben, herhalen we dit graag op de lokale pagina's.<br>
 <br>
-De <b>Gebedsweek voor de Eenheid van de Christenen</b>, aangedragen door de christenen uit Burkina Faso, staat in het teken van de passage van Lucas 10,27: '<i>Heb de Heer, uw God lief met heel uw hart, heel uw ziel, met heel uw kracht, met heel uw verstand en uw naaste als uzelf</i>', de bekende passage uit het verhaal van de barmhartige Samaritaan.<br>
+Beste lezers,<br>
 <br>
-Deze week van gebed moedigt Kerken aan om goed te doen en recht te zoeken met bijzondere aandacht om in de andere daadwerkelijk een naaste te herkennen en om stappen te zetten om vooroordelen te overbruggen.<br>
+Het is jullie wellicht al opgevallen: de laatste tijd zien de lokale pagina's van Kerk & Leven er anders uit dan jullie gewoon zijn. Voor de opmaak van de lokale pagina's werken we met een nieuw opmaaksysteem en dat vertoont verschillende kinderziektes. We zijn ons bewust van<br>
+deze problemen en werken hard aan oplossingen. Dat vraagt helaas tijd, maar stap per stap willen we verbetering realiseren. Onze lokale vrijwilligers blijven wekelijks het beste van zichzelf geven, ook in deze moeilijke omstandigheden waar ze zelf niet voor verantwoordelijk zijn. We zijn hen daarvoor dankbaar, ook namens alle lezers.<br>
 <br>
-De eenheid van de christenen zou een teken moeten zijn van de herstelde eenheid van de hele schepping. Maar verdeeldheid onder christenen verzwakt dit teken en versterkt de gebrokenheid. Samen bidden voor eenheid van christenen stelt ons in staat na te denken over wat ons bindt.<br>
+In 2024 willen we jullie, beste lezers, samen met onze vele vrijwilligers, wekelijks een portie goed nieuws bezorgen! En dat zo snel als mogelijk met mooi opgemaakte lokale pagina's!<br>
 <br>
-<b>GEBED</b><br>
+Koen Vlaeminck, Hoofdredacteur Kerk&Leven<br>
 <br>
-<i>Drieëne God, Schepper en Vader,</i><br>
-<i>wij loven en danken U.</i><br>
-<i>Uit liefde hebt U de wereld en ook ons geschapen.</i><br>
-<i>Eenheid en liefde mogen wij erkennen in U,</i><br>
-<i>Vader, Zoon en Heilige Geest.</i><br>
-<i>Geef dat die eenheid en die liefde in ons mogen doorstromen.</i><br>
-<i>Inspireer ons tot dialoog en ontmoeting.</i><br>
-<i>Vergeef ons onze onenigheid en kortzichtigheid.</i><br>
-<i>Vergeef ons onze eigenwijsheid en fanatieke gedachten.</i><br>
-<i>Toon ons altijd weer Uw liefde.</i><br>
-<i>Laat die ons vruchtbaar maken.</i><br>
-<i>Moge ons zoeken naar verbinding en eenheid vruchten dragen.</i><br>
-<i>Maak ons steeds weer aandachtig voor Uw woord.</i><br>
-<i>Maak ons steeds bewust van onze verbondenheid</i><br>
-<i>in en door het doopsel.</i><br>
-<i>Geef ons het goede gevoel van verbondenheid met Jezus Christus,</i><br>
-<i>als ranken aan de wijnstok.</i><br>
-<i>Laat christenen en kerken naar elkaar toegroeien.</i><br>
-<i>Breng verzoening tussen mensen en volkeren.</i><br>
-<i>Moge de verbondenheid van alle christenen</i><br>
-<i>bijdragen tot respect en vrede,</i><br>
-<i>in onze omgeving en in heel de wereld,</i><br>
-<i>tot Uw lof en eer. Amen.</i><br>
+Laurence Festraets, CEO NV Halewijn<br>
+<br>
+P.S. Ook dagelijks bezorgen we digitaal goed nieuws aan vele lezers! Inschrijven kan eenvoudig via www.kerknet.be/nieuwsbrief<br>
 <br>
 <br>
 <br>
@@ -97,118 +62,10 @@ De eenheid van de christenen zou een teken moeten zijn van de herstelde eenheid 
 
 
 
-#### GROOT-GAVERE: KRUISOPLEGGING KANDIDAAT-VORMELINGEN
+#### LICHTMIS
 <br>
-<figure><img src="images/pb-vir.jpg" alt=" Vormselkruisje © Slabbinck" style="max-height: 500px; max-width: 500px;" /><figcaption> Vormselkruisje © Slabbinck</figcaption></figure><br>
-<br>
-Zondag <b>21 januari</b> ontvangen onze kandidaat-vormelingen hun vormselkruisje. Na de naamopgave is deze kruisoplegging een tweede belangrijke stap op weg naar hun vormsel.<br>
-<br>
-Voor een christen is het kruis een heel bijzonder teken, met een dubbele betekenis.<br>
-Een <b>horizontale balk</b>: we zijn verbonden met mens en wereld, met vreugde en verdriet, recht en onrecht dat gebeurt, met Jezus die op een kruis gestorven is.<br>
-En een <b>verticale balk</b>: we denken er ook aan dat God ons nooit vergeten zal, dat God met ons is in droefheid en lijden.<br>
-<br>
-Die twee balkjes: het menselijke en de goddelijke 'kruisen' elkaar op een kruispunt.<br>
-Wie op een kruispunt komt moet kiezen: welke weg sla ik in? Ook de jongeren die over enkele weken gevormd worden zullen in hun leven soms moeilijke keuzes moeten maken.<br>
-Moge de Goddelijke Geest hen op elk kruispunt de goede richting wijzen.<br>
-<br>
-<br>
-<br>
-
-
-
-
-
-#### DOE MEE AAN DE 20E DIGITALE 40-DAGENRETRAITE VAN DE JEZUÏETEN
-<br>
-<figure><img src="images/pb-via.jpg" alt=" 40-dagen retraite © 40dagenretraite.org" style="max-height: 500px; max-width: 500px;" /><figcaption> 40-dagen retraite © 40dagenretraite.org</figcaption></figure><br>
-<br>
-"De steen is weggerold" is de titel van de 40-dagenretraite 2024 van de jezuïeten. De retraite gaat op Aswoensdag (<b>14 februari</b>) van start en eindigt op Paaszondag.<br>
-<br>
-Het is de twintigste digitale retraite van de jezuïeten. De retraite is geschreven door Rita Loyens. Over de retraite zegt ze: "Ons leven ondervindt wel eens last van de overdaad aan activiteiten. Er is geen tijd en ruimte meer voor stilte. Het lijkt wel alsof er niets meer is wat vreugde schenkt. Er ligt een steen voor onze deur die belet dat we naar buiten treden, of ook maar een glimp van het licht kunnen zien. Diep in ons leeft een verlangen naar eenvoud en rust maar het is niet gemakkelijk om te onderscheiden wat overtollige ballast is en hoe we die dan kunnen afleggen. Mogen we Aswoensdag aangrijpen om een eerste stap te zetten in het overboord gooien van ballast en om kleine rustpuntjes toe te laten."<br>
-<br>
-Innerlijke voorbereiding op de grote christelijke feesten<br>
-Deze 40-dagentijd zullen ruim 20.000 mensen uit voornamelijk Nederland en Vlaanderen deelnemen. De digitale retraites van de jezuïeten tijdens advent en de 40-dagentijd zijn inmiddels een begrip. De retraite helpt velen zich innerlijk voor te bereiden op twee belangrijke christelijke feesten: Kerst en Pasen. Zoals een deelnemer het omschreef:  "De digitale retraite heeft structuur aan mijn bidden gegeven en ordende mijn innerlijk leven."<br>
-<br>
-De digitale retraitanten krijgen dagelijks een gebedsmail met Bijbelteksten, meditatieve vragen, citaten en technische gebedstips. Het geheel vormt een innerlijke reis om het feest van Pasen intenser te beleven.<br>
-Je kunt je voor deze gratis digitale retraite inschrijven via www.40dagenretraite.org. Deelnemers ontvangen gedurende de periode van 40-dagentijd dagelijks een gebedsmail. Wie zich eerder al inschreef hoeft zich niet opnieuw aan te melden.<br>
-<br>
-Enkele citaten van deelnemers aan de vorige digitale retraite:<br>
-- "Eenvoudig, helder, herhalend maar nooit saai. Integendeel, het ging naar de diepte. De gebedsmails raakten mij dag na dag. Een borrelende bron van intense inspiratie."<br>
-- "De mails gaven een goede structuur in de meditatie, het verloop is zeer helder, niet zweverig. Het was een revelatie voor mij dat meditatie realiseerbaar is. Dank u wel voor dit mooie kerstgeschenk!"<br>
-- "Ik deed de retraite samen met mijn man. En het heeft mooie gesprekken opgeleverd."<br>
-- "Kom niet tot werkelijk mediteren maar zo'n dagelijkse speldenprik doet me goed: een klein moment van aandacht en bezinning."<br>
-<br>
-Inspiratie<br>
-De retraite is geïnspireerd door de ignatiaanse spiritualiteit. In het online gastenboek kunnen deelnemers hun gebedservaringen delen.<br>
-<br>
-<br>
-<br>
-
-
-
-
-
-#### NAZARETH: MARIALE OMMEGANG OPGENOMEN IN 'INVENTARIS VLAANDEREN VOOR IMMATERIEEL CULTUREEL ERFGOED'
-<br>
-<figure><img src="images/pb-mei.jpg" alt=" Mariale Ommegang in de Kasteelstraat © Inventaris Immaterieel Erfgoed" style="max-height: 500px; max-width: 500px;" /><figcaption> Mariale Ommegang in de Kasteelstraat © Inventaris Immaterieel Erfgoed</figcaption></figure><br>
-<br>
-<figure><img src="images/pb-tui.jpg" alt=" Label Inventaris Immaterieel Erfgoed © Inventaris Immaterieel Erfgoed" style="max-height: 500px; max-width: 500px;" /><figcaption> Label Inventaris Immaterieel Erfgoed © Inventaris Immaterieel Erfgoed</figcaption></figure><br>
-<br>
-Wij wisten het als Werkgroep Mariale Ommegang al van kort voor Kerstdag, maar er was ons gevraagd om het nog even stil te houden tot Minister van Jeugd, Media en Cultuur, Jan<br>
-Jambon, zijn persbericht uitgestuurd had.<br>
-<br>
-Op woensdag <b>10 januari 2024</b> was het dan zo ver: de officiële mededeling dat onze Mariale Ommegang opgenomen wordt op de Inventaris Vlaanderen voor Immaterieel Cultureel Erfgoed!<br>
-Als gevolg hiervan mogen wij op onze affiches, flyers, website, ... ook het officiële logo van<br>
-'Inventaris Immaterieel Erfgoed' plaatsen.<br>
-<br>
-Alle leden van de Werkgroep Mariale Ommegang zijn terecht blij, dankbaar en trots op deze erkenning. Een erkenning die er gekomen is door de medewerking en samenwerking met de Erfgoeddienst van de gemeente Nazareth en de Cultuurregio Leie-Schelde uit Deinze.<br>
-<br>
-Ook op de website {{<icon class="fa fa-external-link">}}&nbsp;<a href="https://immaterieelerfgoed.be/nl/erfgoederen/mariale-ommegang-nazareth" taeget=_blank>https://immaterieelerfgoed.be/nl/erfgoederen/mariale-ommegang-nazareth</a> werden onze gegevens op <b>8 januari 2024</b> al bijgevuld met tal van sprekende foto's, bijlagen en een filmpje.<br>
-<br>
-De Vlaamse minister van Cultuur plaatste eind december 2023 drie nieuwe erfgoedelementen op de Inventaris Vlaanderen voor het Immaterieel Erfgoed. Handweven, de Mariale Ommegang in Nazareth en het jachthoornblazen op de Fürst-Pless- en Parforcehoorn behoren nu officieel tot het immaterieel erfgoed in Vlaanderen.<br>
-<br>
-Slechts enkele uren na het uitsturen van het persbericht, werd op Radio 2 Oost Vlaanderen al melding gemaakt van de opname van de Mariale Ommegang in de Inventaris Vlaanderen, met een kort interview met onze voorzitter, Marc Perseyn. En 's avonds kwam het nieuws op de regionale zender AVS. Ook op VRT NWS, AVS/artikels, Pickx.be en Het Laatste Nieuws werd over onze Ommegang bericht.<br>
-<br>
-<b>Minister van Cultuur Jan Jambon zegt:</b>  <i>"Met trots voeg ik de drie nieuwe immateriële erfgoedelementen toe aan de Inventaris Vlaanderen. Ze tonen hoe rijk en divers onze erfgoedtradities in Vlaanderen zijn. Ik wil ook de betrokken erfgoedgemeenschappen en alle vrijwilligers bedanken die zich dag na dag onvermoeibaar inzetten om het erfgoed levend te houden en door te geven aan de volgende generaties."</i><br>
-<br>
-<b>Wat is de Inventaris Vlaanderen voor Immaterieel Cultureel Erfgoed?</b><br>
-<br>
-De Inventaris Vlaanderen geeft een overzicht van ons niet-tastbaar erfgoed: onze kennis, gewoontes, gebruiken en praktijken die zó belangrijk zijn dat we ze moeten koesteren om aan volgende generaties te kunnen doorgeven. De minister kan 2 keer per jaar nieuwe elementen toevoegen aan die Inventaris. Hij wordt hierin geadviseerd door de Expertencommissie Immaterieel Cultureel Erfgoed.<br>
-<br>
-Immaterieel erfgoed een toekomst geven, betekent bewust actie ondernemen om je erfgoed door te geven en anderen zin te geven om mee te doen.<br>
-De officiële Inventaris Vlaanderen van het Immaterieel Cultureel Erfgoed is opgezet door de Vlaamse overheid om daarbij te helpen: het verzamelt immaterieel erfgoed en zet het in de kijker.<br>
-<br>
-Het telen van grondwitloof, het Ros Beiaard van Dendermonde, het Carnaval van Aalst, de frietkotcultuur, de bloemencorso's en het vieren van Sinterklaas en Sint-Maarten zijn slechts enkele voorbeelden van immaterieel erfgoed die momenteel al zijn opgenomen in de inventaris. En daar komt nu onze Mariale Ommegang bij.<br>
-<br>
-De inventaris geeft informatie over:<br>
-- de betrokken erfgoedgemeenschappen<br>
-- de maatregelen om met het erfgoed om te gaan en om het door te geven<br>
-- de experten die, in overleg met de gemeenschap, ondersteuning verlenen en begeleiden<br>
-<br>
-Achter immaterieel-erfgoedpraktijken staan vele betrokkenen: de zogenaamde 'erfgoedgemeenschappen'. Zij voeren de praktijk niet enkel uit, maar engageren zich ook voor een duurzame erfgoedzorg. Dit wil zeggen dat ze actie ondernemen opdat het erfgoed wordt doorgegeven aan volgende generaties en aan andere geïnteresseerden. De Inventaris Vlaanderen brengt ook al hun acties en plannen bijeen.<br>
-<br>
-De Inventaris Vlaanderen kadert binnen de Unesco-conventie voor het borgen van immaterieel cultureel erfgoed.<br>
-<br>
-<b>Meer info of inlichtingen: www.mariale-ommegang-nazareth.be of {{<icon class="fa fa-envelope">}}&nbsp;<a href="werkgroepmarialeommegang@gmail.com">werkgroepmarialeommegang@gmail.com</a></b><br>
-<br>
-<br>
-<br>
-
-
-
-
-
-#### VORMSELCATECHESE SINT AMANDUS EKE
-<br>
-HARTELIJK DANK AAN DE VORMELINGEN EN OUDERS VOOR HUN<br>
-<br>
-INZET BIJ HET KNUTSELEN TEN VOORDELE VAN WELZIJNSZORG.<br>
-<br>
-DANKZIJ JULLIE EN DE KERKGEMEENSCHAP<br>
-<br>
-HEBBEN WE 420 EUR KUNNEN SCHENKEN AAN<br>
-<br>
-WELZIJNSZORG.<br>
+<figure><img src="images/pb-de1.jpg" alt=" Lichtmis © Guy Claus" style="max-height: 500px; max-width: 500px;" /><figcaption> Lichtmis © Guy Claus</figcaption></figure><br>
+<figure><img src="images/pb-de2.jpg" alt=" Lichtmis © Guy Claus" style="max-height: 500px; max-width: 500px;" /><figcaption> Lichtmis © Guy Claus</figcaption></figure><br>
 <br>
 <br>
 <br>
@@ -219,8 +76,7 @@ WELZIJNSZORG.<br>
 
 #### ASWOENSDAG - PAROCHIE NAZARETH - EKE
 <br>
-Op woensdag <b>14 februari 2024</b> zal de Aswoensdagviering doorgaan in de Kerk van<br>
-Nazareth om 10.30 u.<br>
+Op woensdag <b>14 februari 2024</b> zal de Aswoensdagviering doorgaan in de Kerk van Nazareth om 10.30 u.<br>
 <br>
 Alle vormelingen van de parochie Nazareth en parochie Eke, en hun<br>
 ouders/grootouders zijn alvast uitgenodigd voor deze viering. Iedereen is uiteraard<br>
@@ -234,6 +90,123 @@ Kerk.<br>
 <br>
 Bezorg het inschrijvingsformulier terug samen met de bijdrage aan één van de<br>
 catechisten. Contact voor de parochie Nazareth : {{<icon class="fa fa-envelope">}}&nbsp;<a href="catechese.nazareth@gmail.com.">catechese.nazareth@gmail.com.</a><br>
+<br>
+<br>
+<br>
+
+
+
+
+
+#### GROOT-GAVERE: ASWOENSDAG - 14 FEBRUARI - 19 UUR
+<br>
+We verbranden de oude gewijde palm van Palmzondag van vorig jaar tot asse en laten ons tekenen met een assekruisje terwijl de voorganger zegt "Bekeert u en opent uw hart voor Jezus". Asse symboliseert dat we sterfelijk zijn en daarom is het goed eens stil te staan bij de manier waarop we leven maar tegelijkertijd wordt de asse ook teken van nieuw leven.<br>
+Allen daartoe uitgenodigd.<br>
+<br>
+Aswoensdag is ook de eerste dag van de veertigdagentijd of vastentijd, een periode van bezinning en gebed en een uitnodiging tot solidariteit met anderen. Net zoals ieder jaar is in de veertigdagentijd Broederlijk Delen ook bij ons te gast. Tijdens de dienst wordt ook het project van Broederlijk Delen voorgesteld. Laten wij ons in deze tijd tot God keren en leven naar zijn Woord.<br>
+<br>
+De veertigdagentijd...<br>
+even de tijd stopzetten en bezinnen ons heroriënteren.<br>
+Nieuwe energie en levenskracht opdoen.<br>
+Gewoon blij zijn dat we Gods kinderen zijn<br>
+en ons net als een kind kunnen laten leiden door Hem.<br>
+<br>
+<br>
+<br>
+
+
+
+
+
+#### GROOT-GAVERE: KRUISOPLEGGING KANDIDAAT-VORMELINGEN
+<br>
+<figure><img src="images/pb-ter.jpg" alt=" Vormselkruisje © C. Piens" style="max-height: 500px; max-width: 500px;" /><figcaption> Vormselkruisje © C. Piens</figcaption></figure><br>
+<br>
+<figure><img src="images/pb-ne.jpg" alt=" Kruisoplegging © C. Piens" style="max-height: 500px; max-width: 500px;" /><figcaption> Kruisoplegging © C. Piens</figcaption></figure><br>
+<br>
+Vorig weekend hebben onze kandidaat-vormelingen de tweede belangrijke stap gezet in de voorbereiding naar het Vormsel dat zal plaatsvinden het weekend van 11 en <b>12 mei</b>. In de eucharistieviering stonden we stil bij de betekenis van het kruis en vervolgens ontvingen zij van papa en/of mama hun vormselkruisje als teken van hun christen-zijn.<br>
+<br>
+Dit eenvoudig kruisje herinnert hen aan hun keuze voor Jezus. In Zijn spoor willen zij zich, samen met alle christenen, inzetten voor een wereld van vrede en geluk voor alle mensen.<br>
+<br>
+Beste vormelingen, hang het kruisje op een bijzondere plaats, niet te ver maar binnen handbereik zodat je het iedere dag kan zien. Jullie hebben immers handen, voeten, ogen en oren gekregen om in vriendschap zorg te dragen voor mekaar. Het kruisje doet denken aan een kruispunt waarop je zelf moet kiezen welke weg je inslaat. Dan sta je voor de keuze of je de route die God voor je gekozen heeft echt wil volgen. In Jezus' voetspoor gaan maakt niet alleen jezelf maar ook je medemensen vanbinnen diep gelukkig.<br>
+Proficiat en nog een goede voorbereiding gewenst.<br>
+<br>
+<br>
+<br>
+
+
+
+
+
+#### FEEST VAN MARIA LICHTMIS - OPDRACHT VAN DE HEER
+<br>
+------------------------------------------------------------------------------------------------<br>
+Maria Lichtmis Guida da Siena cr. Kerknet<br>
+------------------------------------------------------------------------------------------------<br>
+<br>
+Ieder jaar op <b>2 februari</b>, veertig dagen na Kerstmis vieren de christenen Maria Lichtmis. Bij de 'Presentatie van Christus in de Tempel' wordt herdacht dat Maria, de moeder van Jezus, naar de tempel ging voor het verplichte offer na de geboorte van haar zoon. In het oude Israël was het gebruikelijk dat moeders zich in de tempel zuiverden, veertig dagen na de geboorte van hun kind. Ze offerden bij deze gelegenheid een lam en twee duiven.<br>
+<br>
+<b>Wat vertelt de bijbel over de opdracht van Jezus</b><br>
+<br>
+We vinden het verhaal van de opdracht van Jezus bij evangelist Lucas. Die vertelt dat Maria en Jozef naar Jeruzalem kwamen om het kind daar aan God op te dragen. In de stad woonde een zekere Simeon, die van de Heilige Geest de belofte gekregen had dat hij niet zou sterven vooraleer hij de Messias had gezien. Hij staat Maria en Jozef al op te wachten in de tempel en herkent die belofte in het kind. Daarop looft hij God met beroemd geworden woorden:<br>
+Nu laat u, Heer, uw dienaar in vrede heengaan, zoals u hebt beloofd. Want met eigen ogen heb ik de redding gezien die u bewerkt hebt ten overstaan van alle volken: een licht dat geopenbaard wordt aan de heidenen en dat tot eer strekt van Israël, uw volk. (Lc 2,29-32)<br>
+Hij zegent Maria ook en zegt: Deze jongen zal velen in Israël ten val brengen of laten opstaan. Hij zal een omstreden teken zijn. Ook door uw ziel zal een zwaard gaan - en zo zal onthuld worden wat er in veler harten omgaat.<br>
+<br>
+In de tempel was er ook een oude vrouw en profetes, met de naam Hanna. Ook zij herkent in Jezus het Licht van de wereld.<br>
+<br>
+<b>Gebruiken op Maria Lichtmis</b><br>
+<br>
+- Op Maria Lichtmis worden traditioneel kaarsen gewijd en waar het nog kan wordt een kaarsenprocessie gehouden; vandaar de naam lichtmis.<br>
+<b>Vrijdag 2 februari 2023 - 08.00 u. in de kerk van Eke wijding Lichtmiskaarsen.</b><br>
+Allen daartoe uitgenodigd.<br>
+<br>
+- Op die dag of rond deze datum worden in sommige parochies alle gezinnen en families uitgenodigd voor een viering met kinderzegen. Na de viering ontvangen zij het gewijde doopaandenken en een scapulier toegewijd aan Onze-Lieve-Vrouw als herinnering van de opname van het kind in de geloofsgemeenschap.<br>
+<br>
+- Volksgezegde: "Er is geen vrouwke zo arm of ze maakt haar panneke warm". Op die dag worden traditioneel ook pannenkoeken gegeten. Dit stamt uit de Keltische tijd waar in het begin van februari de zon werd gevierd. De vorm en de kleur van een pannenkoek wordt gezien als een verwijzing naar de zon en dus naar het licht (en dat licht is Christus).<br>
+<br>
+<b>BEZINNING BIJ MARIA LICHTMIS</b><br>
+<br>
+<i>Het kind,</i><br>
+<i>het leven dat je draagt</i><br>
+<i>mag je aan God toewijden,</i><br>
+<i>want het is door Hem gegeven.</i><br>
+<br>
+<i>Het leven dat je draagt</i><br>
+<i>ook in de schoot van de gemeenschap</i><br>
+<i>mag je aan God opdragen,</i><br>
+<i>want het is bestemd</i><br>
+<i>om beeld van Hem te zijn.</i><br>
+<br>
+<i>Alle leven mag je aan God toewijden: </i><br>
+<i>dan moet je nooit alleen de vreugde dragen,</i><br>
+<i>noch de zorgen en de pijn</i><br>
+<i>die het leven met zich meebrengt.</i><br>
+<br>
+<i>Er is dan altijd Iemand</i><br>
+<i>aan wie je af kan geven,</i><br>
+<i>Iemand die helpt dragen,</i><br>
+<i>Iemand die je Licht is</i><br>
+<i>en die richting geeft.</i><br>
+<br>
+<i>Wijd het leven toe aan Hem</i><br>
+<i>die heet: Ik zal er zijn.</i><br>
+<i>Want in het leven dat je draagt</i><br>
+<i>wil Hij gebeuren.</i><br>
+<br>
+Carlos Desoete<br>
+<br>
+<br>
+<br>
+
+
+
+
+
+#### ASPER EN GAVERE: NAAMOPGAVE EERSTE COMMUNICANTJES
+<br>
+<figure><img src="images/pb-sic.jpg" alt=" Naamopgave EC © Sint-Servaas" style="max-height: 500px; max-width: 500px;" /><figcaption> Naamopgave EC © Sint-Servaas</figcaption></figure><br>
+<br>
+Rond Maria Lichtmis vieren we in de kerk van Asper (zaterdag <b>3 februari</b> - 18 uur) en in de kerk van Gavere (zondag <b>4 februari</b> - 9 uur) de naamopgave van onze eerste communicantjes. Ook zij wensen, net zoals de vormelingen, hun naam te kennen te geven. We zien er naar uit!<br>
 <br>
 <br>
 <br>

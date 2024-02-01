@@ -15,7 +15,8 @@ header_menu: true
 <br>
 We namen in de kerk afscheid van:<br>
 <br>
-<i>Jean Van Heuverswijn</i>, 90 jaar, weduwnaar Godelieve Nemegeer, WZC De Lichtervelde<br>
+<i>Eric De Schynckel</i>, 74 j., echtg. Rita Claus, Eke<br>
+<i>Elza Reynvoet</i>, 86 j., WZC de Lichtervelde<br>
 <br>
 <br>
 <br>
@@ -24,48 +25,25 @@ We namen in de kerk afscheid van:<br>
 
 
 
-#### DOOPSEL
+#### GROOT-GAVERE: ASWOENSDAG - 14 FEBRUARI - 19 UUR
 <br>
-Heeft het doopselsacrament ontvangen:<br>
+<figure><img src="images/pb-an.jpg" alt=" Aswoensdag © Sint-Paulus Antwerpen" style="max-height: 500px; max-width: 500px;" /><figcaption> Aswoensdag © Sint-Paulus Antwerpen</figcaption></figure><br>
 <br>
-<i>Amelie Matthijs</i>, Semmerzake<br>
-.<br>
+We verbranden de oude gewijde palm van Palmzondag van vorig jaar tot asse en laten ons<br>
+tekenen met een assekruisje terwijl de voorganger zegt "Bekeert u en opent uw hart voor Jezus". Asse symboliseert dat we sterfelijk zijn en daarom is het goed eens stil te staan bij de<br>
+manier waarop we leven maar tegelijkertijd wordt de asse ook teken van nieuw leven.<br>
+Allen daartoe uitgenodigd.<br>
+Aswoensdag is ook de eerste dag van de veertigdagentijd of vastentijd, een periode van<br>
+bezinning en gebed en een uitnodiging tot solidariteit met anderen. Net zoals ieder jaar is in de<br>
+veertigdagentijd Broederlijk Delen ook bij ons te gast. Tijdens de dienst wordt ook het project<br>
+van Broederlijk Delen voorgesteld. Laten wij ons in deze tijd tot God keren en leven naar zijn<br>
+Woord.<br>
+De veertigdagentijd...<br>
 <br>
-<br>
-<br>
-
-
-
-
-
-#### WAT IS ER AAN DE HAND MET DE LOKALE PAGINA'S
-<br>
-Volgende tekst stond te lezen op pagina 5 van Kerk & Leven nr. 2 van 10 januari 2024. Voor onze lezers die dit stukje niet opgemerkt hebben, herhalen we dit graag op de lokale pagina's.<br>
-<br>
-Beste lezers,<br>
-<br>
-Het is jullie wellicht al opgevallen: de laatste tijd zien de lokale pagina's van Kerk & Leven er anders uit dan jullie gewoon zijn. Voor de opmaak van de lokale pagina's werken we met een nieuw opmaaksysteem en dat vertoont verschillende kinderziektes. We zijn ons bewust van<br>
-deze problemen en werken hard aan oplossingen. Dat vraagt helaas tijd, maar stap per stap willen we verbetering realiseren. Onze lokale vrijwilligers blijven wekelijks het beste van zichzelf geven, ook in deze moeilijke omstandigheden waar ze zelf niet voor verantwoordelijk zijn. We zijn hen daarvoor dankbaar, ook namens alle lezers.<br>
-<br>
-In 2024 willen we jullie, beste lezers, samen met onze vele vrijwilligers, wekelijks een portie goed nieuws bezorgen! En dat zo snel als mogelijk met mooi opgemaakte lokale pagina's!<br>
-<br>
-Koen Vlaeminck, Hoofdredacteur Kerk&Leven<br>
-<br>
-Laurence Festraets, CEO NV Halewijn<br>
-<br>
-P.S. Ook dagelijks bezorgen we digitaal goed nieuws aan vele lezers! Inschrijven kan eenvoudig via www.kerknet.be/nieuwsbrief<br>
-<br>
-<br>
-<br>
-
-
-
-
-
-#### LICHTMIS
-<br>
-<figure><img src="images/pb-de1.jpg" alt=" Lichtmis © Guy Claus" style="max-height: 500px; max-width: 500px;" /><figcaption> Lichtmis © Guy Claus</figcaption></figure><br>
-<figure><img src="images/pb-de2.jpg" alt=" Lichtmis © Guy Claus" style="max-height: 500px; max-width: 500px;" /><figcaption> Lichtmis © Guy Claus</figcaption></figure><br>
+even de tijd stopzetten en bezinnen ons heroriënteren.<br>
+Nieuwe energie en levenskracht opdoen.<br>
+Gewoon blij zijn dat we Gods kinderen zijn<br>
+en ons net als een kind kunnen laten leiden door Hem.<br>
 <br>
 <br>
 <br>
@@ -98,18 +76,28 @@ catechisten. Contact voor de parochie Nazareth : {{<icon class="fa fa-envelope">
 
 
 
-#### GROOT-GAVERE: ASWOENSDAG - 14 FEBRUARI - 19 UUR
+#### OM EVEN BIJ STIL TE STAAN
 <br>
-We verbranden de oude gewijde palm van Palmzondag van vorig jaar tot asse en laten ons tekenen met een assekruisje terwijl de voorganger zegt "Bekeert u en opent uw hart voor Jezus". Asse symboliseert dat we sterfelijk zijn en daarom is het goed eens stil te staan bij de manier waarop we leven maar tegelijkertijd wordt de asse ook teken van nieuw leven.<br>
-Allen daartoe uitgenodigd.<br>
-<br>
-Aswoensdag is ook de eerste dag van de veertigdagentijd of vastentijd, een periode van bezinning en gebed en een uitnodiging tot solidariteit met anderen. Net zoals ieder jaar is in de veertigdagentijd Broederlijk Delen ook bij ons te gast. Tijdens de dienst wordt ook het project van Broederlijk Delen voorgesteld. Laten wij ons in deze tijd tot God keren en leven naar zijn Woord.<br>
-<br>
-De veertigdagentijd...<br>
-even de tijd stopzetten en bezinnen ons heroriënteren.<br>
-Nieuwe energie en levenskracht opdoen.<br>
-Gewoon blij zijn dat we Gods kinderen zijn<br>
-en ons net als een kind kunnen laten leiden door Hem.<br>
+<i>Een foto van Jezus</i><br>
+<i>Ik heb nog nooit een foto van Jezus gezien;</i><br>
+<i>ik weet ook niet hoe Hij liep, wel met wie.</i><br>
+<i>Ik weet niet hoe zijn stem klonk,</i><br>
+<i>wel de woorden die Hij gebruikte.</i><br>
+<i>Ik weet niet welke kleur ogen Hij had,</i><br>
+<i>maar wel hoe Hij keek.</i><br>
+<i>Ik weet niet of Hij een sterk hart had,</i><br>
+<i>wel dat Hij een groot hart had.</i><br>
+<i>Ik weet niet alls van zijn karakter,</i><br>
+<i>maar wel dat kinderen Hem graag mochten</i><br>
+<i>en armen zich bij hem thuis voelden.</i><br>
+<i>Dat Hij mild was voor eerlijke mensen</i><br>
+<i>en streng voor mensen die alles deden voor de schone schijn.</i><br>
+<i>Dat Hij niet te snel oordeelde</i><br>
+<i>maar eerder verontschuldigde.</i><br>
+<i>Dat Hij niet haatdragend was,</i><br>
+<i>maar ongelooflijk vergevingsgezind.</i><br>
+<i>Ik weet eigenlijk veel meer van Jezus</i><br>
+<i>dan ik aanvankelijk had gedacht.</i><br>
 <br>
 <br>
 <br>
@@ -118,18 +106,21 @@ en ons net als een kind kunnen laten leiden door Hem.<br>
 
 
 
-#### GROOT-GAVERE: KRUISOPLEGGING KANDIDAAT-VORMELINGEN
+#### VORMSELCATECHESE SINT AMANDUS EKE
 <br>
-<figure><img src="images/pb-ter.jpg" alt=" Vormselkruisje © C. Piens" style="max-height: 500px; max-width: 500px;" /><figcaption> Vormselkruisje © C. Piens</figcaption></figure><br>
+<figure><img src="images/pb-at1.jpg" alt=" Kruisoplegging Eke(1) © Annick Geiregat" style="max-height: 500px; max-width: 500px;" /><figcaption> Kruisoplegging Eke(1) © Annick Geiregat</figcaption></figure><br>
+<figure><img src="images/pb-at2.jpg" alt=" Kruisoplegging Eke(2) © Annick Geiregat" style="max-height: 500px; max-width: 500px;" /><figcaption> Kruisoplegging Eke(2) © Annick Geiregat</figcaption></figure><br>
+<figure><img src="images/pb-at3.jpg" alt=" Kruisoplegging Eke(3) © Annick Geiregat" style="max-height: 500px; max-width: 500px;" /><figcaption> Kruisoplegging Eke(3) © Annick Geiregat</figcaption></figure><br>
+<figure><img src="images/pb-at4.jpg" alt=" Kruisoplegging Eke(4) © Annick Geiregat" style="max-height: 500px; max-width: 500px;" /><figcaption> Kruisoplegging Eke(4) © Annick Geiregat</figcaption></figure><br>
+<figure><img src="images/pb-at5.jpg" alt=" Kruisoplegging Eke(5) © Annick Geiregat" style="max-height: 500px; max-width: 500px;" /><figcaption> Kruisoplegging Eke(5) © Annick Geiregat</figcaption></figure><br>
+<figure><img src="images/pb-at6.jpg" alt=" Kruisoplegging Eke(6) © Annick Geiregat" style="max-height: 500px; max-width: 500px;" /><figcaption> Kruisoplegging Eke(6) © Annick Geiregat</figcaption></figure><br>
 <br>
-<figure><img src="images/pb-ne.jpg" alt=" Kruisoplegging © C. Piens" style="max-height: 500px; max-width: 500px;" /><figcaption> Kruisoplegging © C. Piens</figcaption></figure><br>
+In de Kruisoplegging op zaterdag <b>20 januari</b> hebben 12 jongeren uit handen van hun ouders het kruisje ontvangen dat ze op hun Vormsel zullen dragen.<br>
 <br>
-Vorig weekend hebben onze kandidaat-vormelingen de tweede belangrijke stap gezet in de voorbereiding naar het Vormsel dat zal plaatsvinden het weekend van 11 en <b>12 mei</b>. In de eucharistieviering stonden we stil bij de betekenis van het kruis en vervolgens ontvingen zij van papa en/of mama hun vormselkruisje als teken van hun christen-zijn.<br>
-<br>
-Dit eenvoudig kruisje herinnert hen aan hun keuze voor Jezus. In Zijn spoor willen zij zich, samen met alle christenen, inzetten voor een wereld van vrede en geluk voor alle mensen.<br>
-<br>
-Beste vormelingen, hang het kruisje op een bijzondere plaats, niet te ver maar binnen handbereik zodat je het iedere dag kan zien. Jullie hebben immers handen, voeten, ogen en oren gekregen om in vriendschap zorg te dragen voor mekaar. Het kruisje doet denken aan een kruispunt waarop je zelf moet kiezen welke weg je inslaat. Dan sta je voor de keuze of je de route die God voor je gekozen heeft echt wil volgen. In Jezus' voetspoor gaan maakt niet alleen jezelf maar ook je medemensen vanbinnen diep gelukkig.<br>
-Proficiat en nog een goede voorbereiding gewenst.<br>
+Veel mooie woorden zijn gesproken en gezongen in de viering.<br>
+Veel waardevolle gedachten zijn weergegeven.<br>
+Dat deze jongeren mogen gesterkt worden om deze woorden en gedachten in daden om te zetten.<br>
+Dan zal de weg die zij volgen éénmaal uitlopen in de onmetelijke liefde van God.<br>
 <br>
 <br>
 <br>
@@ -140,9 +131,7 @@ Proficiat en nog een goede voorbereiding gewenst.<br>
 
 #### FEEST VAN MARIA LICHTMIS - OPDRACHT VAN DE HEER
 <br>
-------------------------------------------------------------------------------------------------<br>
-Maria Lichtmis Guida da Siena cr. Kerknet<br>
-------------------------------------------------------------------------------------------------<br>
+<figure><img src="images/pb-tam.jpg" alt=" Maria Lichtmis Guida da Siena © Kerknet" style="max-height: 500px; max-width: 500px;" /><figcaption> Maria Lichtmis Guida da Siena © Kerknet</figcaption></figure><br>
 <br>
 Ieder jaar op <b>2 februari</b>, veertig dagen na Kerstmis vieren de christenen Maria Lichtmis. Bij de 'Presentatie van Christus in de Tempel' wordt herdacht dat Maria, de moeder van Jezus, naar de tempel ging voor het verplichte offer na de geboorte van haar zoon. In het oude Israël was het gebruikelijk dat moeders zich in de tempel zuiverden, veertig dagen na de geboorte van hun kind. Ze offerden bij deze gelegenheid een lam en twee duiven.<br>
 <br>

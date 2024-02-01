@@ -33,6 +33,8 @@ Info en inschrijvingen bij Rita Petereyns op {{<icon class="fa fa-phone">}}&nbsp
 #### FERM ASPER
 <br>
 <b>Zaterdag 3 februari</b> in het OC Martinus te Asper: Appelbabbel: Spelletjesnamiddag vergezeld van koffie en appelbegak. Ook niet-leden zijn van harte welkom.<br>
+<b>Woensdag 7 februari</b> om 14.30 u. in het OC Martinus te Asper: Bloemschikken voor Valentijn.<br>
+<b>Woensdag 7 februari</b> om 19.30 u. in het OC Martinus te Asper: Bloemschikken voor Valentijn (tweede sessie)<br>
 <br>
 Info en inschrijvingen bij Christiane Devenyns op {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:093843313">09 384 33 13</a> of op {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:0474667476">0474 66 74 76</a><br>
 of via {{<icon class="fa fa-envelope">}}&nbsp;<a href="christianedevenyns@hotmail.com">christianedevenyns@hotmail.com</a><br>
@@ -50,42 +52,8 @@ Info en inschrijvingen bij Christiane loontjens op {{<icon class="fa fa-phone">}
 
 
 
-#### FERM NAZARETH
-<br>
-<figure><img src="images/pb-hi.jpg" alt=" kaasbuffer © Ferm Nazareth" style="max-height: 500px; max-width: 500px;" /><figcaption> kaasbuffer © Ferm Nazareth</figcaption></figure><br>
-<br>
-nodigt u uit op het KAASBUFFET op <b>27 januari 2024</b> vanaf 19.00 u. Afhalen is ook<br>
-mogelijk tussen 11.00 u. en 13.00 u.<br>
-<br>
-Kaarten te bestellen en meer info via {{<icon class="fa fa-envelope">}}&nbsp;<a href="fermnazareth@hotmail.com">fermnazareth@hotmail.com</a><br>
-<br>
-<br>
-<br>
-
-
-
-
-
-#### FERM SEMMERZAKE
-<br>
-Feestelijke jaaropener: op maandag <b>29 januari 2024</b> om 19.00 u. in de Foyer van de Residentie 'Bellevue' te Gavere, Broekstraat 9.<br>
-<br>
-Na een spannende quiz en de voorstelling van het jaarprogramma ronden we de avond af met een gezellige babbel en een warm drankje.<br>
-Info en inschrijven via {{<icon class="fa fa-envelope">}}&nbsp;<a href="fermsemmerzake@gmail.com">fermsemmerzake@gmail.com</a> of bij Rita Nachtergaele {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:0499269983">0499 26 99 83</a><br>
-<br>
-<br>
-<br>
-
-
-
-
-
 #### LDC 'DEN OEVER' - GAVERE
 <br>
-<b>Woensdag 24 januari</b> om 14.00 u.: Bingo<br>
-<b>Donderdag 25 januari</b> om 10.00 u.: Bewegen op muziek<br>
-<b>Donderdag 25 januari</b> om 11.00 u.: Spaanse les 3A i.s.m. KISP<br>
-<b>Donderdag 25 januari</b> om 14.00 u.: Bonte baknamiddag: Pannenkoeken<br>
 <b>Woensdag 31 januari</b> om 14.00 u.: Kleinkunstnamiddag met muziek en gedichten tot 16.00 u.<br>
 <br>
 <b>Donderdag 1 februari</b> om 10.00 u.: Bewegen op muziek<br>
@@ -103,11 +71,14 @@ Info en inschrijven via {{<icon class="fa fa-envelope">}}&nbsp;<a href="fermsemm
 <br>
 <b>OKRA-TREFPUNT EKE nodigt uit...</b><br>
 <br>
-<b>Donderdag 25 januari</b> om 14.00 u. in CC De Brouwerij: Lijndans en rummikub<br>
 <b>Woensdag 31 januari</b> om 14.00 u. in CC De Brouwerij: Kaarten<br>
 <br>
 <b>Donderdag 1 februari</b> om 09.30 u. in CC De Brouwerij: Lijndans<br>
 <b>Donderdag 1 februari</b> om 13.45 u. vertrek aan de kerk: Wandelen<br>
+<b>Maandag 5 februari</b> om 13.30 u. in CC De Brouwerij: Crea-atelier<br>
+<b>Dinsdag 6 februari</b> om 14.00 u. in Sporthal Nazareth: Petanque<br>
+<b>Donderdag 8 februari</b> om 14.00 u. in CC De Brouwerij: Lijndans en rummikub<br>
+<b>Zondag 11 februari</b> om 15.00 u.: Promenadeconcert in de muziekzaal van De Bijloke<br>
 <br>
 <br>
 <br>
@@ -120,10 +91,11 @@ Info en inschrijven via {{<icon class="fa fa-envelope">}}&nbsp;<a href="fermsemm
 <br>
 Activiteitenkalender van januari 2024<br>
 <br>
-<b>Maandag 29 januari</b> om 09.30 u. in de Kleine zaal van cc Het Centrum: Bestuursvergadering<br>
-<b>Dinsdag 30 januari</b> aan de Sporthal: Petanque<br>
-<br>
 <b>Donderdag 1 februari</b> om 14.00 u. in cc Het Centrum: Lijndansen<br>
+<b>Maandag 5 februari</b> om 13.30 u. aan cc Het Centrum: Wandelen<br>
+<b>Dinsdag 6 februari</b> om 14.00 u. in cc Het Centrum: Kaarten, Rummikub<br>
+<b>Donderdag 8 februari</b> om 14.00 u. aan Nieuw Politie gebouw: Bezoek<br>
+<b>Zondag 11 februari</b> om 14.00 u. in Muziekcentrum 'De Bijloke', Gent: Promenadeconcert<br>
 <br>
 !!! Voor meer info: tel. {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:093855371">09 385 53 71</a><br>
 <br>

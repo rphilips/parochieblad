@@ -11,32 +11,6 @@ header_menu: true
 <br>
 <br>
 
-##### Donderdag 1 februari 2024  
-<dl><dt><b>08.00 u. Eke:</b></dt><dd>Bijzondere intentie</dd>
-</dl>
-
-##### Vrijdag 2 februari 2024  
-<dl><dt>&nbsp;</dt><dd>Opdracht van de Heer in de Tempel<br>(LICHTMIS)<br></dd><dt><b>08.00 u. Eke:</b></dt><dd>|Overledenen van gezin en familie|</dd>
-</dl>
-
-##### Zaterdag 3 februari 2024  
-<dl><dt>&nbsp;</dt><dd>H. Berlindis van Meerbeke, kluizenaar<br></dd><dt><b>18.00 u. Eke:</b></dt><dd>Overledenen<br><i>Lector: Sebastiaan Colenbie</i></dd>
-<dt><b>18.00 u. Asper:</b></dt><dd>Gebedsdienst met naamopgave eerste communicantjes</dd>
-</dl>
-
-##### Zondag 4 februari 2024  
-<dl><dt>&nbsp;</dt><dd>5e Zondag door het jaar<br></dd><dt><b>09.00 u. Gavere:</b></dt><dd>Eucharistie met naamopgave eerste communicantjes<br>Eeuwigdurend voor Maria De Muynck (1)<br><i>Lector: Chris Jungbluth</i></dd>
-<dt><b>10.30 u. Nazareth:</b></dt><dd>Jgt. Godelieve Geirnaert, weduwe André De Rycke<br><i>Lector: Marijke Dhondt</i></dd>
-</dl>
-
-##### Maandag 5 februari 2024  
-<dl><dt>&nbsp;</dt><dd>H. Agatha, maagd en martelares<br></dd><dt><b>08.00 u. Eke:</b></dt><dd>Eucharistie</dd>
-</dl>
-
-##### Dinsdag 6 februari 2024  
-<dl><dt>&nbsp;</dt><dd>H. Amandus van Maastricht, bisschop<br></dd><dt><b>08.00 u. Eke:</b></dt><dd>Eucharistie</dd>
-</dl>
-
 ##### Donderdag 8 februari 2024  
 <dl><dt>&nbsp;</dt><dd>H. Hiëronymus Emiliani, priester<br>H. Josephina Bakhita, maagd<br></dd><dt><b>08.00 u. Eke:</b></dt><dd>Eucharistie</dd>
 </dl>
@@ -51,7 +25,37 @@ header_menu: true
 
 ##### Zondag 11 februari 2024  
 <dl><dt>&nbsp;</dt><dd>6e Zondag door het jaar<br>Wereldziekendag<br></dd><dt><b>09.00 u. Gavere:</b></dt><dd>Jaargetijde voor Robert De Moor echtgenoot van Lea Tavernier<br>Namis voor Ruffin Verschelden echtgenoot van Marie Dhondt<br><i>Lector: Karel Hubau</i></dd>
-<dt><b>10.30 u. Nazareth:</b></dt><dd>Stichtinegen (2/15)<br><i>Lector: Geert De Jans</i></dd>
+<dt><b>10.30 u. Nazareth:</b></dt><dd>Stichtingen (2/15)<br><i>Lector: Geert De Jans</i></dd>
+</dl>
+
+##### Maandag 12 februari 2024  
+<dl><dt>&nbsp;</dt><dd>H. Gertrudis van Nijvel, maagd<br></dd><dt><b>08.00 u. Eke:</b></dt><dd>V.M.</dd>
+</dl>
+
+##### Dinsdag 13 februari 2024  
+<dl><dt><b>08.00 u. Eke:</b></dt><dd>Overleden ouders en zus</dd>
+</dl>
+
+##### Woensdag 14 februari 2024  
+<dl><dt>&nbsp;</dt><dd>Aswoensdag<br>HH. CYRILLUS, monnik, en METHODIUS, bisschop<br></dd><dt><b>10.30 u. Nazareth:</b></dt><dd>Viering met uitdelen van de askruisjes</dd>
+<dt><b>19.00 u. Gavere:</b></dt><dd>Aswijding en uitreiking assekruisjes + voorstelling project Broederlijk Delen</dd>
+</dl>
+
+##### Donderdag 15 februari 2024  
+<dl><dt><b>08.00 u. Eke:</b></dt><dd>Voor overledenen</dd>
+</dl>
+
+##### Vrijdag 16 februari 2024  
+<dl><dt><b>08.00 u. Eke:</b></dt><dd>Bijzondere intentie</dd>
+</dl>
+
+##### Zaterdag 17 februari 2024  
+<dl><dt>&nbsp;</dt><dd>Zeven HH. Stichters van de Servieten van Maria<br></dd><dt><b>18.00 u. Eke:</b></dt><dd>Antoinette Naessens en echtg. Gerard Van Parijs<br>|Pastoor Adrien D'Hooghe|<br><i>Lector: Philippe Lammens</i></dd>
+</dl>
+
+##### Zondag 18 februari 2024  
+<dl><dt>&nbsp;</dt><dd>1e Zondag Veertigdagentijd<br></dd><dt><b>09.00 u. Gavere:</b></dt><dd>Mis uit dank (BUDCW)<br><i>Lector: Martine Van Der Haegen</i></dd>
+<dt><b>10.30 u. Nazareth:</b></dt><dd>Jgt. Edith Van Wonterghem en Jordaan Moyaert<br><i>Lector: Patrick Decock</i></dd>
 </dl>
 <br>
 <br>

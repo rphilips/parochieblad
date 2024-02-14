@@ -11,31 +11,6 @@ header_menu: true
 <br>
 <br>
 
-##### Donderdag 8 februari 2024  
-<dl><dt>&nbsp;</dt><dd>H. Hiëronymus Emiliani, priester<br>H. Josephina Bakhita, maagd<br></dd><dt><b>08.00 u. Eke:</b></dt><dd>Eucharistie</dd>
-</dl>
-
-##### Vrijdag 9 februari 2024  
-<dl><dt><b>08.00 u. Eke:</b></dt><dd>Leon en Irma Martens en familie</dd>
-</dl>
-
-##### Zaterdag 10 februari 2024  
-<dl><dt>&nbsp;</dt><dd>H. Scholastica, maagd<br></dd><dt><b>18.00 u. Eke:</b></dt><dd>Jgt. Elvire Holvoet, echtg. Alfons Danneels<br><i>Lector: Trees Adins</i></dd>
-</dl>
-
-##### Zondag 11 februari 2024  
-<dl><dt>&nbsp;</dt><dd>6e Zondag door het jaar<br>Wereldziekendag<br></dd><dt><b>09.00 u. Gavere:</b></dt><dd>Jaargetijde voor Robert De Moor echtgenoot van Lea Tavernier<br>Namis voor Ruffin Verschelden echtgenoot van Marie Dhondt<br><i>Lector: Karel Hubau</i></dd>
-<dt><b>10.30 u. Nazareth:</b></dt><dd>Stichtingen (2/15)<br><i>Lector: Geert De Jans</i></dd>
-</dl>
-
-##### Maandag 12 februari 2024  
-<dl><dt>&nbsp;</dt><dd>H. Gertrudis van Nijvel, maagd<br></dd><dt><b>08.00 u. Eke:</b></dt><dd>V.M.</dd>
-</dl>
-
-##### Dinsdag 13 februari 2024  
-<dl><dt><b>08.00 u. Eke:</b></dt><dd>Overleden ouders en zus</dd>
-</dl>
-
 ##### Woensdag 14 februari 2024  
 <dl><dt>&nbsp;</dt><dd>Aswoensdag<br>HH. CYRILLUS, monnik, en METHODIUS, bisschop<br></dd><dt><b>10.30 u. Nazareth:</b></dt><dd>Viering met uitdelen van de askruisjes</dd>
 <dt><b>19.00 u. Gavere:</b></dt><dd>Aswijding en uitreiking assekruisjes + voorstelling project Broederlijk Delen</dd>
@@ -56,6 +31,31 @@ header_menu: true
 ##### Zondag 18 februari 2024  
 <dl><dt>&nbsp;</dt><dd>1e Zondag Veertigdagentijd<br></dd><dt><b>09.00 u. Gavere:</b></dt><dd>Mis uit dank (BUDCW)<br><i>Lector: Martine Van Der Haegen</i></dd>
 <dt><b>10.30 u. Nazareth:</b></dt><dd>Jgt. Edith Van Wonterghem en Jordaan Moyaert<br><i>Lector: Patrick Decock</i></dd>
+</dl>
+
+##### Maandag 19 februari 2024  
+<dl><dt><b>08.00 u. Eke:</b></dt><dd>V.M.</dd>
+</dl>
+
+##### Dinsdag 20 februari 2024  
+<dl><dt><b>08.00 u. Eke:</b></dt><dd>Overleden ouders en zus</dd>
+</dl>
+
+##### Donderdag 22 februari 2024  
+<dl><dt>&nbsp;</dt><dd>Cathedra van de heilige apostel Petrus<br></dd><dt><b>08.00 u. Eke:</b></dt><dd>Overledenen</dd>
+</dl>
+
+##### Vrijdag 23 februari 2024  
+<dl><dt>&nbsp;</dt><dd>H. Polycarpus, bisschop en martelaar<br></dd><dt><b>08.00 u. Eke:</b></dt><dd>*GEEN eucharistieviering*</dd>
+</dl>
+
+##### Zaterdag 24 februari 2024  
+<dl><dt><b>18.00 u. Eke:</b></dt><dd>Paul Van Dorpe<br><i>Lector: Ilse Vandeputte</i></dd>
+</dl>
+
+##### Zondag 25 februari 2024  
+<dl><dt>&nbsp;</dt><dd>2e Zondag Veertigdagentijd<br></dd><dt><b>09.00 u. Gavere:</b></dt><dd>Jaargetijde voor André De Tier echtgenoot van Maria Van Beversluys<br>Eeuwigdurend voor P. De Vreese (1)<br><i>Lector: Rita Coryn</i></dd>
+<dt><b>10.30 u. Nazareth:</b></dt><dd>Jgt. André Van Herzeele, echtg. Yvette Rogge<br>Jgt. Gabriël Van Herzeele, echtg. van Maria Dhaese en familie<br><i>Lector: Patrick Van Hecke</i></dd>
 </dl>
 <br>
 <br>

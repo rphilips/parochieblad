@@ -11,39 +11,53 @@ header_menu: true
 
 
 
-#### WERELDZIEKENDAG - 11 FEBRUARI
+#### ZIN IN EEN BEDEVAART OF PELGRIMSTOCHT?
 <br>
-<figure><img src="images/pb-sub.jpg" alt=" Wereldziekendag © Sanctuaire Notre Dame de Lourdes" style="max-height: 500px; max-width: 500px;" /><figcaption> Wereldziekendag © Sanctuaire Notre Dame de Lourdes</figcaption></figure><br>
+Ga van 14 tot 20 juli mee met de diocesane bedevaart naar Lourdes!<br>
 <br>
-Wereldziekendag wordt in de Rooms-Katholieke Kerk jaarlijks gevierd op <b>11 februari</b>, ter gedachtenis van Onze Lieve Vrouw van Lourdes.<br>
+Pelgrimstocht of bedevaart naar Lourdes? Het is wat je er zelf van maakt.<br>
 <br>
-Op <b>13 mei 1992</b> stelde Paus Johannes Paulus II de wereldziekendag in. De eerste keer dat de dag werd gevierd was op <b>11 februari 1993</b>. De Poolse paus wilde de aandacht en zorg voor de zieken verbinden aan Onze Lieve Vrouw van Lourdes, die wereldwijd wordt aangeroepen als Salus infirmorum ('Heil der Zieken'). Het is namelijk ook de datum waarop Bernadette de Heilige Maagd zag in Lourdes.<br>
+Een bedevaarder is vertrouwd met de geloofstraditie, gaat biddend op weg om nabij de grot<br>
+van Lourdes vreugde en dankbaarheid, kwetsbaarheid en gebrokenheid in Maria's handen te<br>
+leggen, erop vertrouwend dat zij onze intenties bij God brengt.<br>
 <br>
-<b>Gebed voor een zieke</b><br>
+Een pelgrim gaat eerder zoekend op weg, laat twijfelend het vertrouwde achter, staat open<br>
+voor ontmoetingen... hopend op herbronning en nieuwe inspiratie.<br>
 <br>
-<i>God, Vader van alle mensen,</i><br>
-<i>uw zorg gaat uit naar iedereen.</i><br>
+Bedevaarder of eerder pelgrim? Je bent welkom om mee te gaan naar Lourdes. Samen met<br>
+gezinnen en jongeren, samen met mensen met grotere zorgnoden die verblijven in het<br>
+Accueil Notre Dame, met mensen vanuit Welzijnsschakels, met parochiegroepen... samen<br>
+met bisschop Lode.<br>
 <br>
-<i>Laat ons naar Jezus voorbeeld</i><br>
-<i>elke dag opnieuw begaan zijn met elkaar,</i><br>
-<i>vooral met allen wiens bestaan</i><br>
-<i>door ziekte en lijden zo getekend is</i><br>
-<i>dat zij zonder de uitgestoken hand van medemensen</i><br>
-<i>niet meer verder kunnen in hun leven.</i><br>
+Vanuit verschillende opstapplaatsen in ons bisdom brengt een bus je naar Tourcoing. Verder<br>
+gaat de reis met de TGV richting Lourdes. We hebben een divers aanbod van hotels waar je<br>
+kan verblijven in volpension. Er zijn verschillende formules met een programma dat<br>
+aangepast is aan de doelgroep: De gezinsgroep Falo, de jongerengroep Jolo, de<br>
+ziekenbedevaart voor mensen met verhoogde zorgnoden of mensen met een beperkte<br>
+mobiliteit... kortom voor elk wat wils.<br>
 <br>
-<i>Leer ons aandacht hebben voor wat in hen omgaat</i><br>
-<i>aan verdriet en angst, aan eenzaamheid en onvermogen.</i><br>
+We maken onderweg tijd voor ontmoeting, voor zingeving en gebed, voor ontspanning en<br>
+rust.<br>
 <br>
-<i>Leer ons luisteren naar hun vragen en verwachtingen</i><br>
-<i>en help ons teder en helend omgaan</i><br>
-<i>met hun gekwetst en broos bestaan.</i><br>
+Alle info en mogelijkheid om in te schrijven vind je op: www.bedevaartenbisdomgent.be<br>
+Met vragen kan je terecht op het bedevaartsecretariaat:<br>
+Secretariaat bedevaarten bisdom Gent<br>
+Onze-Lieve-Vrouwdreef 8, 9041 Oostakker<br>
+Email: {{<icon class="fa fa-envelope">}}&nbsp;<a href="Bedevaarten@bisdomgent.be">Bedevaarten@bisdomgent.be</a><br>
+Mobiel: {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:0465080847">0465 08 08 47</a><br>
 <br>
-<i>Leg uw woorden in onze mond die mensen bemoedigen.</i><br>
-<i>Moge onze zorgzame liefde hun draagkracht vergroten</i><br>
-<i>en hun geloof in het leven versterken.</i><br>
-<i>Dan zullen wij door onze nabijheid en solidariteit</i><br>
-<i>een zegen zijn voor elkaar, alle dagen van het leven.</i><br>
-<i>Amen.</i><br>
+<br>
+<br>
+
+
+
+
+
+#### GA JIJ OOK MEE NAAR BANNEUX?
+<br>
+<figure><img src="images/pb-hi.jpg" alt=" Ga jij ook mee naar Banneux? © Banneux-werking Oost-Vlaanderen" style="max-height: 500px; max-width: 500px;" /><figcaption> Ga jij ook mee naar Banneux? © Banneux-werking Oost-Vlaanderen</figcaption></figure><br>
+<br>
+Van maandag <b>5 juli</b> t.e.m. dinsdag <b>9 juli 2024</b> gaan we vanuit Oost-Vlaanderen op bedevaart naar Banneux, het bekende bedevaartsoord nabij Luik. Het vervoer gebeurt met liftbussen en medische begeleiding is voorzien. Deelname kost EUR 300 (alles inbegrepen). Voor meer info en inschrijvingen kan je steeds contact opnemen met Banneux-werking Oost-Vlaanderen op 0487 64 17 44 - 0476 59 53 70 of via {{<icon class="fa fa-envelope">}}&nbsp;<a href="banneuxoostvlaanderen@gmail.com.">banneuxoostvlaanderen@gmail.com.</a> Kijk ook eens op onze website www.banneux-ovl.com. Van harte welkom!<br>
 <br>
 <br>
 <br>

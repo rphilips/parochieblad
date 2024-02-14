@@ -31,7 +31,7 @@ Davidsfonds Asper <b>{{<icon class="fa fa-piggy-bank">}}&nbsp;BE36 8912 5401 
 <br>
 <b>Yoga</b> : Elke dinsdag van <b>6 februari</b> t.e.m. <b>18 juni</b>. Aanvang om 19.30 u.<br>
 <br>
-<b>Gezellig haken en breien</b> : Woensdag <b>24 januari</b>, <b>21 februari</b>, <b>20 maart</b>, <b>17 april</b> , <b>22 mei</b> en <b>26 juni</b> om 19.30 u.<br>
+<b>Gezellig haken en breien</b> : Woensdag <b>21 februari</b>, <b>20 maart</b>, <b>17 april</b> , <b>22 mei</b> en <b>26 juni</b> om 19.30 u.<br>
 <br>
 <b>BINGO</b> : Maandelijkse bingo-namiddag : Donderdag <b>25 januari</b> om 14.00 u.<br>
 Elke deelnemer heeft altijd prijs.<br>
@@ -47,9 +47,6 @@ Info en inschrijvingen bij Rita Petereyns op {{<icon class="fa fa-phone">}}&nbsp
 
 
 #### FERM ASPER
-<br>
-<b>Woensdag 7 februari</b> om 14.30 u. in het OC Martinus te Asper: Bloemschikken voor Valentijn.<br>
-<b>Woensdag 7 februari</b> om 19.30 u. in het OC Martinus te Asper: Bloemschikken voor Valentijn (tweede sessie)<br>
 <br>
 <br>
 <br>
@@ -80,11 +77,13 @@ Lentekriebels voor leden Ferm +60 en partner op 18, 19,20 en <b>21 maart 2024</b
 
 #### LDC 'DEN OEVER' - GAVERE
 <br>
-<b>Donderdag 8 februari</b> om 10.00 u.: Bewegen op muziek<br>
-<b>Donderdag 8 februari</b> om 13.30 u.: Spaanse les i.s.m. KISP<br>
-<b>Maandag 12 februari</b> om 14.00 u.: Kaarten i.s.m. OKRA<br>
-<b>Dinsdag 13 februari</b> om 13.30 u.: Lijndansen<br>
-<b>Dinsdag 13 februari</b> om 14.00 u.: UNO namiddag<br>
+<b>Woensdag 14 februari</b> om 14.00 u.: UNO namiddag<br>
+<b>Dinsdag 20 februari</b> om 10.00 u.: Yoga<br>
+<b>Dinsdag 20 februari</b> om 14.00 u.: Lijndansen, Portrettekenen, Spelletjesnamiddag<br>
+<b>Woensdag 21 februari</b> om 08.30 u.: Ontbijt<br>
+<b>Woensdag 21 februari</b> om 14.00 u.: Diamond painting<br>
+<b>Donderdag 22 februari</b> om 10.00 u.: Bewegen op muziek - Spaanse les ism KISP<br>
+<b>Donderdag 22 februari</b> om 14.00 u.: Bonte baknamiddag: Valentijnswafels<br>
 <br>
 <br>
 <br>
@@ -97,12 +96,12 @@ Lentekriebels voor leden Ferm +60 en partner op 18, 19,20 en <b>21 maart 2024</b
 <br>
 <b>OKRA-TREFPUNT EKE nodigt uit...</b><br>
 <br>
-<b>Donderdag 8 februari</b> om 14.00 u. in CC De Brouwerij: Lijndans en rummikub<br>
-<b>Zondag 11 februari</b> om 15.00 u.: Promenadeconcert in de muziekzaal van De Bijloke<br>
-<b>Dinsdag 13 februari</b> om 14.00 u. in CC De Brouwerij: Voordracht over geuren en aroma's<br>
 <b>Woensdag 14 februari</b> om 14.00 u. in CC De Brouwerij: Kaarten<br>
 <b>Vrijdag 16 februari</b> om 09.30 u. in CC De Brouwerij: Lijndans<br>
 <b>Vrijdag 16 februari</b> om 13.45 u. vertrek aan de kerk: Wandelen<br>
+<b>Maandag 19 februari</b> om 13.30 u. in CC De Brouwerij: Crea-atelier<br>
+<b>Dinsdag 20 februari</b> om 14.00 u. in Sporthal Nazareth: Petanque<br>
+<b>Donderdag 22 februari</b> om 14.00 u. in CC De Brouwerij: Lijndans en rummikub<br>
 <br>
 <br>
 <br>
@@ -115,10 +114,8 @@ Lentekriebels voor leden Ferm +60 en partner op 18, 19,20 en <b>21 maart 2024</b
 <br>
 Activiteitenkalender van januari 2024<br>
 <br>
-<b>Donderdag 8 februari</b> om 14.00 u. aan Nieuw Politie gebouw: Bezoek<br>
-<b>Zondag 11 februari</b> om 14.00 u. in Muziekcentrum 'De Bijloke', Gent: Promenadeconcert<br>
-<b>Dinsdag 13 februari</b> om 14.00 u. aan de Sporthal: Petanque<br>
 <b>Donderdag 15 februari</b> om 14.00 u. in cc Het Centrum: Lijndansen<br>
+<b>Dinsdag 20 februari</b> om 14.00 u. in cc Het Centrum: Kaarten, rummikub, crea<br>
 <br>
 !!! Voor meer info: tel. {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:093855371">09 385 53 71</a><br>
 <br>
@@ -129,26 +126,26 @@ Activiteitenkalender van januari 2024<br>
 
 
 
+#### QUIZ LISANGA
+<br>
+<figure><img src="images/pb-tum.jpg" alt=" Quiz Lisanga © WZC Lichtervelde" style="max-height: 500px; max-width: 500px;" /><figcaption> Quiz Lisanga © WZC Lichtervelde</figcaption></figure><br>
+<br>
+<br>
+<br>
+
+
+
+
+
 #### SAMANA ASPER
 <br>
-Van harte welkom op onze spelnamiddagen. Noteer volgende datums : <b>18 januari</b>, <b>22 februari</b>, <b>14 maart</b>, <b>18 april</b> en <b>13 juni</b> om 14.00 u.<br>
+Van harte welkom op onze spelnamiddagen. Noteer volgende datums : <b>22 februari</b>, <b>14 maart</b>, <b>18 april</b> en <b>13 juni</b> om 14.00 u.<br>
 <br>
 Deze gezellige bijeenkomsten vinden plaats in het OC-Martinus in de Hulstraat te Asper.<br>
 <br>
 Graag inschrijven bij Ann Bergez: Haagstraat 70, {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:0477661859">0477 66 18 59</a> of {{<icon class="fa fa-envelope">}}&nbsp;<a href="annbergez@gmail.com">annbergez@gmail.com</a><br>
 <br>
-<br>
-<br>
-
-
-
-
-
-#### SAMANA NAZARETH
-<br>
-<b>Maandag 12 februari</b> om 14.00 u. in CC Het Centrum: Crea. Gratis, inschrijven is niet nodig, iedereeen welkom.<br>
-<br>
-<br>
+Als lid van Samana Asper krijgen wij de kans om naar de avant-premiere van het toneelstuk 'kuuroord Fontina' te gaan kijken en dit aan halve prijs ( 6 EUR)! Toneelkring Mavek verwacht ons op woendag <b>6 maart</b> in het CC Nova te Eke. De voorstelling start om 14.30 u. Betalen kan aan de kassa. Wij spreken af aan het gemeenteplein in Asper omstreeks 13.30 u. om te carpoolen. Wie zelf geen vervoer heeft, gelieve dat te vermelden bij jouw inschrijving. Graag inschrijven bij Vanderstichelen Lydie tegen <b>28 februari</b> op {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:093841423">09 384 14 23</a> of {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:0498459548">0498 45 95 48</a><br>
 <br>
 <br>
 <br>

@@ -11,6 +11,36 @@ header_menu: true
 
 
 
+#### DAUWWANDELING OP 17 MAART MET LG EKE
+<br>
+<figure><img src="images/pb-ira.jpg" alt=" Dauwwandeling met LG Eke © Viviane De Preester" style="max-height: 500px; max-width: 500px;" /><figcaption> Dauwwandeling met LG Eke © Viviane De Preester</figcaption></figure><br>
+<br>
+Dauwtrappen, soms ook dauwtrippen genoemd, is vroeg opstaan om vervolgens een<br>
+wandeling in de natuur te maken. De dauw op het gras zou een zuiverende werking hebben en<br>
+zou terug te voeren zijn op een heidens gebruik om de heropleving van de natuur te vieren.<br>
+Van deze prachtige traditie maakt LG Eke gebruik om voor de 6 e maal een heuse dauwtrip te<br>
+organiseren op zondag <b>17 maart</b>.<br>
+<br>
+We verzamelen om 06.30 u. aan de Kerk in Grammene (Koffiebeekstraat 11) en vertrekken om<br>
+06.45 u. voor een wandeling van 8 km doorheen een idyllisch ontwakend landschap.<br>
+Auto's parkeer je best aan de kerk. Het aantal parkeerplaatsen is beperkt, gelieve zoveel<br>
+mogelijk samen te rijden.<br>
+<br>
+Stevige stapschoenen en een fluojasje zijn zeker aanraders, we stappen op deels onverharde<br>
+wegen.<br>
+<br>
+Tussenin worden we verwend met een dauwdrankje en sneukel om te eindigen met een stevig<br>
+landelijk ontbijt rond 09.15 u. Het einde is voorzien omstreeks 10.30 u.<br>
+Geniet je graag van de opkomende zon in combinatie met een gezonde wandeling, schrijf dan<br>
+in voor <b>1 april</b> bij de secretaris : {{<icon class="fa fa-envelope">}}&nbsp;<a href="vivi.depreester@yucom.be">vivi.depreester@yucom.be</a> of {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:0472458815">0472 45 88 15</a> en betaal 10 EUR per persoon als lid, en 13 EUR als niet lid via rekeningnr LG Eke <b>{{<icon class="fa fa-piggy-bank">}}&nbsp;BE20 7374 0803 1856</b>.<br>
+<br>
+<br>
+<br>
+
+
+
+
+
 #### DAVIDSFONDS ASPER: A(S)PERITIEFJE
 <br>
 Davidsfonds Asper organiseert op zondag <b>25 februari 2024</b> haar tweede A(s)peritiefje. Frank Degruyter vertelt - in zijn gekende fijnzinnige stijl - uit de Decamerone van Giovanni Boccaccio. Hij prikkelt (zijn en) onze verbeelding met deze verhalen waarin liefde en passie centraal staan. Vertellingen zijn het waarin sensualiteit en humor elkaar vinden. Kom, luister, geniet en droom over wat er misschien ooit nog van komt.<br>
@@ -54,6 +84,7 @@ Info en inschrijvingen bij Christiane Devenyns op {{<icon class="fa fa-phone">}}
 of via {{<icon class="fa fa-envelope">}}&nbsp;<a href="christianedevenyns@hotmail.com">christianedevenyns@hotmail.com</a><br>
 <br>
 Beter Bewegen : Elke dinsdag vanaf <b>9 januari</b> t.e.m. <b>30 april</b> (uitgezonderd schoolvakanties) van 20.00 u. tot 21.00 u. - Sporthal Scaldis, Sportdreef 1B Gavere<br>
+<br>
 Info en inschrijvingen bij Christiane loontjens op {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:0479469650">0479 46 96 50</a> of via {{<icon class="fa fa-envelope">}}&nbsp;<a href="Loontjens.chris@telenet.be">Loontjens.chris@telenet.be</a><br>
 <br>
 <br>
@@ -65,6 +96,7 @@ Info en inschrijvingen bij Christiane loontjens op {{<icon class="fa fa-phone">}
 
 #### FERM SEMMERZAKE
 <br>
+<b>Dinsdag 27 februari</b> om 19.00 u. in de Borgwalhoeve, Leenstraat 31, Vurste: Kookdemo : 'Paasmenu'. Een lekker aperitief met heerlijke hapjes, een smakelijk voorgerecht, een hartige hoofdschotel en een zoet dessert. Natuurlijk zijn proevertjes inbegrepen en krijg je de recepten mee naar huis. Ook niet-leden zijn welkom.<br>
 <br>
 Lentekriebels voor leden Ferm +60 en partner op 18, 19,20 en <b>21 maart 2024</b> in Salons Mantovani. Een dag vol ontmoeting, vorming en ontspanning. Info en inschrijven vóór donderdag <b>15 februari</b> via {{<icon class="fa fa-envelope">}}&nbsp;<a href="FermSemmerzake@gmail.com">FermSemmerzake@gmail.com</a> of bij Rita Nachtergaele {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:0499269983">0499 26 99 83</a><br>
 <br>
@@ -77,13 +109,16 @@ Lentekriebels voor leden Ferm +60 en partner op 18, 19,20 en <b>21 maart 2024</b
 
 #### LDC 'DEN OEVER' - GAVERE
 <br>
-<b>Woensdag 14 februari</b> om 14.00 u.: UNO namiddag<br>
-<b>Dinsdag 20 februari</b> om 10.00 u.: Yoga<br>
-<b>Dinsdag 20 februari</b> om 14.00 u.: Lijndansen, Portrettekenen, Spelletjesnamiddag<br>
 <b>Woensdag 21 februari</b> om 08.30 u.: Ontbijt<br>
 <b>Woensdag 21 februari</b> om 14.00 u.: Diamond painting<br>
 <b>Donderdag 22 februari</b> om 10.00 u.: Bewegen op muziek - Spaanse les ism KISP<br>
 <b>Donderdag 22 februari</b> om 14.00 u.: Bonte baknamiddag: Valentijnswafels<br>
+<b>Maandag 26 februari</b> om 14.00 u.: Kaarten i.s.m. OKRA<br>
+<b>Dinsdag 27 februari</b> om 10.00 u.: Yoga<br>
+<b>Dinsdag 27 februari</b> om 14.00 u.: Lijndansen, Portrettekenen, Spelletjesnamiddag<br>
+<b>Woensdag 28 februari</b> om 14.00 u.: Bingo<br>
+<b>Donderdag 29 februari</b> om 10.00 u.: Bewegen op muziek<br>
+<b>Donderdag 29 februari</b> om 13.00 u.: Spaanse les i.s.m. KISP<br>
 <br>
 <br>
 <br>
@@ -96,12 +131,11 @@ Lentekriebels voor leden Ferm +60 en partner op 18, 19,20 en <b>21 maart 2024</b
 <br>
 <b>OKRA-TREFPUNT EKE nodigt uit...</b><br>
 <br>
-<b>Woensdag 14 februari</b> om 14.00 u. in CC De Brouwerij: Kaarten<br>
-<b>Vrijdag 16 februari</b> om 09.30 u. in CC De Brouwerij: Lijndans<br>
-<b>Vrijdag 16 februari</b> om 13.45 u. vertrek aan de kerk: Wandelen<br>
-<b>Maandag 19 februari</b> om 13.30 u. in CC De Brouwerij: Crea-atelier<br>
-<b>Dinsdag 20 februari</b> om 14.00 u. in Sporthal Nazareth: Petanque<br>
 <b>Donderdag 22 februari</b> om 14.00 u. in CC De Brouwerij: Lijndans en rummikub<br>
+<b>Woensdag 28 februari</b> om 14.00 u. in CC De Brouwerij: Kaarten<br>
+<b>Donderdag 29 februari</b> om 14.00 u. in CC De Brouwerij: Lijndans en rummikub<br>
+<br>
+<br>
 <br>
 <br>
 <br>
@@ -114,21 +148,13 @@ Lentekriebels voor leden Ferm +60 en partner op 18, 19,20 en <b>21 maart 2024</b
 <br>
 Activiteitenkalender van januari 2024<br>
 <br>
-<b>Donderdag 15 februari</b> om 14.00 u. in cc Het Centrum: Lijndansen<br>
-<b>Dinsdag 20 februari</b> om 14.00 u. in cc Het Centrum: Kaarten, rummikub, crea<br>
+<b>Zondag 25 februari</b> om 09.30 u. in de kleine zaal cc Het Centrum: Bestuursvergadering<br>
+<b>Maandag 26 februari</b> om 09.30 u. in de kleine zaal cc Het Centrum: Bestuursvergadering<br>
+<b>Dinsdag 27 februari</b> om 14.00 u. aan de Sporthal: Petanque<br>
+<b>Donderdag 29 februari</b> om 14.00 u. in cc Het Centrum: Lijndansen<br>
+<br>
 <br>
 !!! Voor meer info: tel. {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:093855371">09 385 53 71</a><br>
-<br>
-<br>
-<br>
-
-
-
-
-
-#### QUIZ LISANGA
-<br>
-<figure><img src="images/pb-tum.jpg" alt=" Quiz Lisanga © WZC Lichtervelde" style="max-height: 500px; max-width: 500px;" /><figcaption> Quiz Lisanga © WZC Lichtervelde</figcaption></figure><br>
 <br>
 <br>
 <br>

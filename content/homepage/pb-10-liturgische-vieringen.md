@@ -11,36 +11,6 @@ header_menu: true
 <br>
 <br>
 
-##### Woensdag 14 februari 2024  
-<dl><dt>&nbsp;</dt><dd>Aswoensdag<br>HH. CYRILLUS, monnik, en METHODIUS, bisschop<br></dd><dt><b>10.30 u. Nazareth:</b></dt><dd>Viering met uitdelen van de askruisjes</dd>
-<dt><b>19.00 u. Gavere:</b></dt><dd>Aswijding en uitreiking assekruisjes + voorstelling project Broederlijk Delen</dd>
-</dl>
-
-##### Donderdag 15 februari 2024  
-<dl><dt><b>08.00 u. Eke:</b></dt><dd>Voor overledenen</dd>
-</dl>
-
-##### Vrijdag 16 februari 2024  
-<dl><dt><b>08.00 u. Eke:</b></dt><dd>Bijzondere intentie</dd>
-</dl>
-
-##### Zaterdag 17 februari 2024  
-<dl><dt>&nbsp;</dt><dd>Zeven HH. Stichters van de Servieten van Maria<br></dd><dt><b>18.00 u. Eke:</b></dt><dd>Antoinette Naessens en echtg. Gerard Van Parijs<br>|Pastoor Adrien D'Hooghe|<br><i>Lector: Philippe Lammens</i></dd>
-</dl>
-
-##### Zondag 18 februari 2024  
-<dl><dt>&nbsp;</dt><dd>1e Zondag Veertigdagentijd<br></dd><dt><b>09.00 u. Gavere:</b></dt><dd>Mis uit dank (BUDCW)<br><i>Lector: Martine Van Der Haegen</i></dd>
-<dt><b>10.30 u. Nazareth:</b></dt><dd>Jgt. Edith Van Wonterghem en Jordaan Moyaert<br><i>Lector: Patrick Decock</i></dd>
-</dl>
-
-##### Maandag 19 februari 2024  
-<dl><dt><b>08.00 u. Eke:</b></dt><dd>V.M.</dd>
-</dl>
-
-##### Dinsdag 20 februari 2024  
-<dl><dt><b>08.00 u. Eke:</b></dt><dd>Overleden ouders en zus</dd>
-</dl>
-
 ##### Donderdag 22 februari 2024  
 <dl><dt>&nbsp;</dt><dd>Cathedra van de heilige apostel Petrus<br></dd><dt><b>08.00 u. Eke:</b></dt><dd>Overledenen</dd>
 </dl>
@@ -56,6 +26,35 @@ header_menu: true
 ##### Zondag 25 februari 2024  
 <dl><dt>&nbsp;</dt><dd>2e Zondag Veertigdagentijd<br></dd><dt><b>09.00 u. Gavere:</b></dt><dd>Jaargetijde voor André De Tier echtgenoot van Maria Van Beversluys<br>Eeuwigdurend voor P. De Vreese (1)<br><i>Lector: Rita Coryn</i></dd>
 <dt><b>10.30 u. Nazareth:</b></dt><dd>Jgt. André Van Herzeele, echtg. Yvette Rogge<br>Jgt. Gabriël Van Herzeele, echtg. van Maria Dhaese en familie<br><i>Lector: Patrick Van Hecke</i></dd>
+</dl>
+
+##### Maandag 26 februari 2024  
+<dl><dt><b>08.00 u. Eke:</b></dt><dd>*GEEN eucharistie viering*</dd>
+</dl>
+
+##### Dinsdag 27 februari 2024  
+<dl><dt>&nbsp;</dt><dd>H. Gregorius van Narek, abt en kerkleraar<br></dd><dt><b>08.00 u. Eke:</b></dt><dd>*GEEN eucharistie viering*</dd>
+</dl>
+
+##### Woensdag 28 februari 2024  
+<dl><dt><b>08.30 u. Nazareth:</b></dt><dd>*GEEN eucharistie viering*</dd>
+</dl>
+
+##### Donderdag 29 februari 2024  
+<dl><dt><b>08.00 u. Eke:</b></dt><dd>*GEEN eucharistie viering*</dd>
+</dl>
+
+##### Vrijdag 1 maart 2024  
+<dl><dt><b>08.00 u. Eke:</b></dt><dd>*GEEN eucharistie viering*</dd>
+</dl>
+
+##### Zaterdag 2 maart 2024  
+<dl><dt><b>18.00 u. Eke:</b></dt><dd>Eucharistie<br><i>Lector: Ingrid Clemmen</i></dd>
+</dl>
+
+##### Zondag 3 maart 2024  
+<dl><dt>&nbsp;</dt><dd>3e Zondag Veertigdagentijd<br></dd><dt><b>09.00 u. Gavere:</b></dt><dd>Eeuwigdurend voor de familie Sorgeloos<br><i>Lector: Conny Maes</i></dd>
+<dt><b>10.30 u. Nazareth:</b></dt><dd>Bertrand Dhont, Simone Bodijn en Stefan Dhont<br><i>Lector: Martin Dhaenens</i></dd>
 </dl>
 <br>
 <br>

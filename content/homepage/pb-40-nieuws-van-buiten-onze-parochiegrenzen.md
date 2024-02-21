@@ -11,53 +11,36 @@ header_menu: true
 
 
 
-#### ZIN IN EEN BEDEVAART OF PELGRIMSTOCHT?
+#### ERFGOEDPRIJS 2023 - ERFGOEDGEMEENSCHAP
 <br>
-Ga van 14 tot 20 juli mee met de diocesane bedevaart naar Lourdes!<br>
+<figure><img src="images/pb-bis.jpg" alt=" Erfgoedprijs 2023 © Provincie Oost-Vlaanderen" style="max-height: 500px; max-width: 500px;" /><figcaption> Erfgoedprijs 2023 © Provincie Oost-Vlaanderen</figcaption></figure><br>
 <br>
-Pelgrimstocht of bedevaart naar Lourdes? Het is wat je er zelf van maakt.<br>
+Provincie Oost-Vlaanderen zocht tegen <b>30 juni 2023</b> voor haar 'Erfgoedprijs - Erfgoedgemeenschap' een voorbeeldige erfgoedgemeenschap rond onroerend erfgoed.<br>
 <br>
-Een bedevaarder is vertrouwd met de geloofstraditie, gaat biddend op weg om nabij de grot<br>
-van Lourdes vreugde en dankbaarheid, kwetsbaarheid en gebrokenheid in Maria's handen te<br>
-leggen, erop vertrouwend dat zij onze intenties bij God brengt.<br>
+Dit onderwerp sloot perfect aan bij de Mariale Ommegang, dus besloten we om ook onze kans te wagen, hierin ondersteund door de Cultuurdienst van de gemeente Nazareth en de Cultuurregio Leie Schelde.<br>
 <br>
-Een pelgrim gaat eerder zoekend op weg, laat twijfelend het vertrouwde achter, staat open<br>
-voor ontmoetingen... hopend op herbronning en nieuwe inspiratie.<br>
+Van de 16 inzendingen voldeden er 8 met glans aan alle criteria: vzw Op Stoapel (Temse), vzw Buren van de Abdij (Gent), vzw Vrienden van de Onze-Lieve-Vrouwekerk (Dendermonde), DECEM vzw (Aalst), Het Stoepekomitee (Ertvelde-Stoepe), Werkgroep Mariale Ommegang (Nazareth), Le Petit vzw (Drongen) en vzw UitMUNTEnd (Munte). Dit zijn grote en kleine verenigingen rond verschillende soorten erfgoed. Volgens de jury overtuigen ze allen doordat ze bewust inzetten op kennisdelen en samenwerken, en verschillende doelgroepen bereiken. Hun engagement zorgt ervoor dat ook toekomstige generaties van ons erfgoed kunnen genieten om te wonen en ontspannen.<br>
 <br>
-Bedevaarder of eerder pelgrim? Je bent welkom om mee te gaan naar Lourdes. Samen met<br>
-gezinnen en jongeren, samen met mensen met grotere zorgnoden die verblijven in het<br>
-Accueil Notre Dame, met mensen vanuit Welzijnsschakels, met parochiegroepen... samen<br>
-met bisschop Lode.<br>
+De jury besloot om de 'Erfgoedprijs 2023 Erfgoedgemeenschap' toe te kennen aan vzw UitMUNTEnd (Merelbeke). Zij winnen hiermee 10.000 EUR die ze zullen besteden ten goede van het behoud en de ontsluiting van het erfgoed.<br>
 <br>
-Vanuit verschillende opstapplaatsen in ons bisdom brengt een bus je naar Tourcoing. Verder<br>
-gaat de reis met de TGV richting Lourdes. We hebben een divers aanbod van hotels waar je<br>
-kan verblijven in volpension. Er zijn verschillende formules met een programma dat<br>
-aangepast is aan de doelgroep: De gezinsgroep Falo, de jongerengroep Jolo, de<br>
-ziekenbedevaart voor mensen met verhoogde zorgnoden of mensen met een beperkte<br>
-mobiliteit... kortom voor elk wat wils.<br>
+Vzw UitMUNTEnd ontstond uit bezorgdheid over de toekomst van de in het beschermde dorpsgezicht gelegen kerk van Munte. Samen met de kerkraad zet de vzw zich in om de kerk te behouden als toegankelijke centrale plek. Het erfgoed van Munte is een belangrijke pijler van de vzw. Ze organiseren rondleidingen en concerten, brengen publicaties uit... en bereiken hiermee een ruim publiek. Tal van partners zetten mee hun schouders hieronder: de school, de<br>
+Christoforusgemeenschap, De Muntenaar, het Kasteel ter Zinkt, ...<br>
 <br>
-We maken onderweg tijd voor ontmoeting, voor zingeving en gebed, voor ontspanning en<br>
-rust.<br>
+<figure><img src="images/pb-hos.jpg" alt=" Erfgoedprijs 2023 - prijsuitreiking © KDW" style="max-height: 500px; max-width: 500px;" /><figcaption> Erfgoedprijs 2023 - prijsuitreiking © KDW</figcaption></figure><br>
 <br>
-Alle info en mogelijkheid om in te schrijven vind je op: www.bedevaartenbisdomgent.be<br>
-Met vragen kan je terecht op het bedevaartsecretariaat:<br>
-Secretariaat bedevaarten bisdom Gent<br>
-Onze-Lieve-Vrouwdreef 8, 9041 Oostakker<br>
-Email: {{<icon class="fa fa-envelope">}}&nbsp;<a href="Bedevaarten@bisdomgent.be">Bedevaarten@bisdomgent.be</a><br>
-Mobiel: {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:0465080847">0465 08 08 47</a><br>
+De prijsuitreiking vond plaats op zondag <b>11 februari 2023</b> in de Sint-Bonifatiuskerk van Munte.<br>
+Uiteraard was de Mariale Ommegang, als één van de acht genomineerden, hier ook vertegenwoordigd.<br>
 <br>
+De prijsuitreiking werd gepresenteerd door Pascal Vranckx en muzikaal opgeluisterd door Trio Evgeny Suvorkin. Zij brachten klassieke muziek op de viool, bayan (Russische accordeon) en de balalaika.<br>
+De gedeputeerde van de Provincie Oost-Vlaanderen, An Vervliet, opende de plechtigheid met een korte toelichting over de Erfgoedprijs.<br>
+Daarna werd de winnende erfgoedgemeenschap aan het woord gelaten om hun erfgoed voor te stellen bij monde van gids Bernadette Van Damme.<br>
+Na nog enkele korte toespraken was het tijd om de prijs te overhandigen en de gedenkplaat te onthullen, waarna iedereen uitgenodigd was op de receptie in de voormalige, gerestaureerde pastorie.<br>
 <br>
+<figure><img src="images/pb-cur.jpg" alt=" Prijsuitreiking 2023 - 8 inspirerende voorbeelden- Erfgoedgemeenschap © KDW" style="max-height: 500px; max-width: 500px;" /><figcaption> Prijsuitreiking 2023 - 8 inspirerende voorbeelden- Erfgoedgemeenschap © KDW</figcaption></figure><br>
 <br>
-
-
-
-
-
-#### GA JIJ OOK MEE NAAR BANNEUX?
-<br>
-<figure><img src="images/pb-hi.jpg" alt=" Ga jij ook mee naar Banneux? © Banneux-werking Oost-Vlaanderen" style="max-height: 500px; max-width: 500px;" /><figcaption> Ga jij ook mee naar Banneux? © Banneux-werking Oost-Vlaanderen</figcaption></figure><br>
-<br>
-Van maandag <b>5 juli</b> t.e.m. dinsdag <b>9 juli 2024</b> gaan we vanuit Oost-Vlaanderen op bedevaart naar Banneux, het bekende bedevaartsoord nabij Luik. Het vervoer gebeurt met liftbussen en medische begeleiding is voorzien. Deelname kost EUR 300 (alles inbegrepen). Voor meer info en inschrijvingen kan je steeds contact opnemen met Banneux-werking Oost-Vlaanderen op 0487 64 17 44 - 0476 59 53 70 of via {{<icon class="fa fa-envelope">}}&nbsp;<a href="banneuxoostvlaanderen@gmail.com.">banneuxoostvlaanderen@gmail.com.</a> Kijk ook eens op onze website www.banneux-ovl.com. Van harte welkom!<br>
+Van de winnaar en de andere genomineerde inzendingen, werd door de Provincie Oost-Vlaanderen een brochure gemaakt: "8 inspirerende voorbeelden - Erfgoedgemeenschap", welke zondag laatstleden reeds aan alle aanwezigen overhandigd werd.<br>
+We doen ons best om nog extra papieren brochures te verkrijgen voor de geïnteresseerde parochianen.<br>
+Parochianen die dit wensen, kunnen wel reeds de digitale versie van het boekje bekomen. Dit kan door een mailtje te sturen naar {{<icon class="fa fa-envelope">}}&nbsp;<a href="werkgroepmarialeommegang@gmail.com">werkgroepmarialeommegang@gmail.com</a> of door een telefoontje naar {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:093858531">09 385 85 31</a>. Vermeld ook uw adresgegevens indien u, indien voorhanden, interesse hebt in de papieren versie van de brochure.<br>
 <br>
 <br>
 <br>

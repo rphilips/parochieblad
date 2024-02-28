@@ -11,36 +11,54 @@ header_menu: true
 
 
 
-#### ERFGOEDPRIJS 2023 - ERFGOEDGEMEENSCHAP
+#### BEDEVAART NAAR SINT-JOZEF IN LEUVEN
 <br>
-<figure><img src="images/pb-bis.jpg" alt=" Erfgoedprijs 2023 © Provincie Oost-Vlaanderen" style="max-height: 500px; max-width: 500px;" /><figcaption> Erfgoedprijs 2023 © Provincie Oost-Vlaanderen</figcaption></figure><br>
+<figure><img src="images/pb-us.jpg" alt=" Bedevaart naar Sint-Jozef in Leuven © Marc Perseyn" style="max-height: 500px; max-width: 500px;" /><figcaption> Bedevaart naar Sint-Jozef in Leuven © Marc Perseyn</figcaption></figure><br>
 <br>
-Provincie Oost-Vlaanderen zocht tegen <b>30 juni 2023</b> voor haar 'Erfgoedprijs - Erfgoedgemeenschap' een voorbeeldige erfgoedgemeenschap rond onroerend erfgoed.<br>
+Naar jaarlijkse traditie gaan we dit jaar opnieuw met de autocar op<br>
+bedevaart naar Sint-Jozef in Leuven. Deze bedevaart heeft plaats op dinsdag<br>
+<b>19 maart 2024</b>. Dit is op het feest van Sint Jozef.<br>
 <br>
-Dit onderwerp sloot perfect aan bij de Mariale Ommegang, dus besloten we om ook onze kans te wagen, hierin ondersteund door de Cultuurdienst van de gemeente Nazareth en de Cultuurregio Leie Schelde.<br>
+We nemen deel aan de eucharistieviering van 11.00 uur met als thema 'Hij die<br>
+voor ons ten beste spreekt'. In de namiddag is er om 14.30 uur aanbidding.<br>
+'s Middags, tijdens de vrije tijd kan men een bezoek brengen aan de crypte<br>
+van Pater Damiaan en het Damiaancentrum.<br>
+Na het lof bezoeken wij de Sint-Pieterskerk in Leuven, alsook de mooie<br>
+gebouwen rond en op de Grote Markt.<br>
 <br>
-Van de 16 inzendingen voldeden er 8 met glans aan alle criteria: vzw Op Stoapel (Temse), vzw Buren van de Abdij (Gent), vzw Vrienden van de Onze-Lieve-Vrouwekerk (Dendermonde), DECEM vzw (Aalst), Het Stoepekomitee (Ertvelde-Stoepe), Werkgroep Mariale Ommegang (Nazareth), Le Petit vzw (Drongen) en vzw UitMUNTEnd (Munte). Dit zijn grote en kleine verenigingen rond verschillende soorten erfgoed. Volgens de jury overtuigen ze allen doordat ze bewust inzetten op kennisdelen en samenwerken, en verschillende doelgroepen bereiken. Hun engagement zorgt ervoor dat ook toekomstige generaties van ons erfgoed kunnen genieten om te wonen en ontspannen.<br>
+Het vertrek zal waarschijnlijk rond 7.30 uur zijn in de morgen. Praktische<br>
+afspraken gebeuren bij inschrijving.<br>
 <br>
-De jury besloot om de 'Erfgoedprijs 2023 Erfgoedgemeenschap' toe te kennen aan vzw UitMUNTEnd (Merelbeke). Zij winnen hiermee 10.000 EUR die ze zullen besteden ten goede van het behoud en de ontsluiting van het erfgoed.<br>
+Voor alle info en deelname kan u terecht bij Marc Perseyn,<br>
+Oudenaardseheerweg 184 Nazareth - {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:093855731">09 385 57 31</a> of {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:0475612062">0475 61 20 62</a> of bij<br>
+Claudine Delaey {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:0473441649">0473 44 16 49</a> ( regio Ename-Oudenaarde).<br>
 <br>
-Vzw UitMUNTEnd ontstond uit bezorgdheid over de toekomst van de in het beschermde dorpsgezicht gelegen kerk van Munte. Samen met de kerkraad zet de vzw zich in om de kerk te behouden als toegankelijke centrale plek. Het erfgoed van Munte is een belangrijke pijler van de vzw. Ze organiseren rondleidingen en concerten, brengen publicaties uit... en bereiken hiermee een ruim publiek. Tal van partners zetten mee hun schouders hieronder: de school, de<br>
-Christoforusgemeenschap, De Muntenaar, het Kasteel ter Zinkt, ...<br>
+Je kan inschrijven tot <b>10 maart 2024</b> en de betaling van 36 EUR (voor de bus<br>
+heen en terug) op rekening <b>{{<icon class="fa fa-piggy-bank">}}&nbsp;BE34 7374 2122 7290</b> geldt als bevestiging en<br>
+inschrijving.<br>
 <br>
-<figure><img src="images/pb-hos.jpg" alt=" Erfgoedprijs 2023 - prijsuitreiking © KDW" style="max-height: 500px; max-width: 500px;" /><figcaption> Erfgoedprijs 2023 - prijsuitreiking © KDW</figcaption></figure><br>
+Er wordt dan nog afgesproken waar u eventueel kan opstappen en welk uur.<br>
+Alle bedevaarders van de regio Aalter, Deinze, Oudenaarde, Kruisem,<br>
+Munkzwalm en de ganse Vlaamse Ardennen zijn van harte uitgenodigd.<br>
 <br>
-De prijsuitreiking vond plaats op zondag <b>11 februari 2023</b> in de Sint-Bonifatiuskerk van Munte.<br>
-Uiteraard was de Mariale Ommegang, als één van de acht genomineerden, hier ook vertegenwoordigd.<br>
 <br>
-De prijsuitreiking werd gepresenteerd door Pascal Vranckx en muzikaal opgeluisterd door Trio Evgeny Suvorkin. Zij brachten klassieke muziek op de viool, bayan (Russische accordeon) en de balalaika.<br>
-De gedeputeerde van de Provincie Oost-Vlaanderen, An Vervliet, opende de plechtigheid met een korte toelichting over de Erfgoedprijs.<br>
-Daarna werd de winnende erfgoedgemeenschap aan het woord gelaten om hun erfgoed voor te stellen bij monde van gids Bernadette Van Damme.<br>
-Na nog enkele korte toespraken was het tijd om de prijs te overhandigen en de gedenkplaat te onthullen, waarna iedereen uitgenodigd was op de receptie in de voormalige, gerestaureerde pastorie.<br>
 <br>
-<figure><img src="images/pb-cur.jpg" alt=" Prijsuitreiking 2023 - 8 inspirerende voorbeelden- Erfgoedgemeenschap © KDW" style="max-height: 500px; max-width: 500px;" /><figcaption> Prijsuitreiking 2023 - 8 inspirerende voorbeelden- Erfgoedgemeenschap © KDW</figcaption></figure><br>
+
+
+
+
+
+#### NAAMOPGAVE VAN 17 CATECHUMENEN IN HET BISDOM GENT
 <br>
-Van de winnaar en de andere genomineerde inzendingen, werd door de Provincie Oost-Vlaanderen een brochure gemaakt: "8 inspirerende voorbeelden - Erfgoedgemeenschap", welke zondag laatstleden reeds aan alle aanwezigen overhandigd werd.<br>
-We doen ons best om nog extra papieren brochures te verkrijgen voor de geïnteresseerde parochianen.<br>
-Parochianen die dit wensen, kunnen wel reeds de digitale versie van het boekje bekomen. Dit kan door een mailtje te sturen naar {{<icon class="fa fa-envelope">}}&nbsp;<a href="werkgroepmarialeommegang@gmail.com">werkgroepmarialeommegang@gmail.com</a> of door een telefoontje naar {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:093858531">09 385 85 31</a>. Vermeld ook uw adresgegevens indien u, indien voorhanden, interesse hebt in de papieren versie van de brochure.<br>
+<figure><img src="images/pb-vel.jpg" alt=" Naamopgave catechumenen © Kerknet" style="max-height: 500px; max-width: 500px;" /><figcaption> Naamopgave catechumenen © Kerknet</figcaption></figure><br>
+<br>
+Zeventien volwassenen werden door de bisschop aanvaard om in de paaswake gedoopt en gevormd te worden en de eucharistie te ontvangen.<br>
+<br>
+Zeventien catechumenen, hun begeleiders en dooppeter/meter werden op zondag <b>18 februari 2024</b> eerst ontvangen met een ontbijt in het Sint-Baafshuis door bisschop Lode en diaken Martin Todts, diocesaan verantwoordelijke voor het catechumenaat. Op <b>17 januari</b> hadden ze elkaar al leren kennen op een ontmoetingsavond.<br>
+<br>
+In de eucharistieviering in de kathedraal ontvingen ze de purperen sjaal die ze dragen in de veertigdagentijd en die bij hun doopsel in de paaswake wordt vervangen door een witte sjaal, teken van het nieuwe leven in Christus.<br>
+<br>
+Bron: Kerknet <b>19 februari 2024</b><br>
 <br>
 <br>
 <br>

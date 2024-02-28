@@ -41,22 +41,6 @@ in voor <b>1 april</b> bij de secretaris : {{<icon class="fa fa-envelope">}}&nbs
 
 
 
-#### DAVIDSFONDS ASPER: A(S)PERITIEFJE
-<br>
-Davidsfonds Asper organiseert op zondag <b>25 februari 2024</b> haar tweede A(s)peritiefje. Frank Degruyter vertelt - in zijn gekende fijnzinnige stijl - uit de Decamerone van Giovanni Boccaccio. Hij prikkelt (zijn en) onze verbeelding met deze verhalen waarin liefde en passie centraal staan. Vertellingen zijn het waarin sensualiteit en humor elkaar vinden. Kom, luister, geniet en droom over wat er misschien ooit nog van komt.<br>
-<br>
-Praktisch: zondag <b>25 februari 2024</b> om 10.00 u. in het OC Martinus. Inkom: EUR 12,00 voor DF-leden en EUR 15,00 voor niet-leden (koffie / thee met versnaperingen én een glaasje bubbels zijn inbegrepen). Inschrijven vóór <b>18 februari 2024</b> bij Martin Peleman<br>
-<br>
-(e-mail {{<icon class="fa fa-envelope">}}&nbsp;<a href="martin.peleman@telenet.be">martin.peleman@telenet.be</a> ; telefoon {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:092810967">09 281 09 67</a>). Betalen op de rekening van<br>
-Davidsfonds Asper <b>{{<icon class="fa fa-piggy-bank">}}&nbsp;BE36 8912 5401 1381</b>.<br>
-<br>
-<br>
-<br>
-
-
-
-
-
 #### FEMMA ASPER
 <br>
 <b>Yoga</b> : Elke dinsdag van <b>6 februari</b> t.e.m. <b>18 juni</b>. Aanvang om 19.30 u.<br>
@@ -78,6 +62,7 @@ Info en inschrijvingen bij Rita Petereyns op {{<icon class="fa fa-phone">}}&nbsp
 
 #### FERM ASPER
 <br>
+<b>Woensdag 6 maart</b> om 19.00 u. in het OC Martinus, Hulstraat Asper: Paasmenu - Kookdemo<br>
 <br>
 <br>
 Info en inschrijvingen bij Christiane Devenyns op {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:093843313">09 384 33 13</a> of op {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:0474667476">0474 66 74 76</a><br>
@@ -96,7 +81,7 @@ Info en inschrijvingen bij Christiane loontjens op {{<icon class="fa fa-phone">}
 
 #### FERM SEMMERZAKE
 <br>
-<b>Dinsdag 27 februari</b> om 19.00 u. in de Borgwalhoeve, Leenstraat 31, Vurste: Kookdemo : 'Paasmenu'. Een lekker aperitief met heerlijke hapjes, een smakelijk voorgerecht, een hartige hoofdschotel en een zoet dessert. Natuurlijk zijn proevertjes inbegrepen en krijg je de recepten mee naar huis. Ook niet-leden zijn welkom.<br>
+27/2 19.00 in de Borgwalhoeve, Leenstraat 31, Vurste: Kookdemo : 'Paasmenu'. Een lekker aperitief met heerlijke hapjes, een smakelijk voorgerecht, een hartige hoofdschotel en een zoet dessert. Natuurlijk zijn proevertjes inbegrepen en krijg je de recepten mee naar huis. Ook niet-leden zijn welkom.<br>
 <br>
 Lentekriebels voor leden Ferm +60 en partner op 18, 19,20 en <b>21 maart 2024</b> in Salons Mantovani. Een dag vol ontmoeting, vorming en ontspanning. Info en inschrijven vóór donderdag <b>15 februari</b> via {{<icon class="fa fa-envelope">}}&nbsp;<a href="FermSemmerzake@gmail.com">FermSemmerzake@gmail.com</a> of bij Rita Nachtergaele {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:0499269983">0499 26 99 83</a><br>
 <br>
@@ -109,16 +94,17 @@ Lentekriebels voor leden Ferm +60 en partner op 18, 19,20 en <b>21 maart 2024</b
 
 #### LDC 'DEN OEVER' - GAVERE
 <br>
-<b>Woensdag 21 februari</b> om 08.30 u.: Ontbijt<br>
-<b>Woensdag 21 februari</b> om 14.00 u.: Diamond painting<br>
-<b>Donderdag 22 februari</b> om 10.00 u.: Bewegen op muziek - Spaanse les ism KISP<br>
-<b>Donderdag 22 februari</b> om 14.00 u.: Bonte baknamiddag: Valentijnswafels<br>
-<b>Maandag 26 februari</b> om 14.00 u.: Kaarten i.s.m. OKRA<br>
-<b>Dinsdag 27 februari</b> om 10.00 u.: Yoga<br>
-<b>Dinsdag 27 februari</b> om 14.00 u.: Lijndansen, Portrettekenen, Spelletjesnamiddag<br>
 <b>Woensdag 28 februari</b> om 14.00 u.: Bingo<br>
 <b>Donderdag 29 februari</b> om 10.00 u.: Bewegen op muziek<br>
 <b>Donderdag 29 februari</b> om 13.00 u.: Spaanse les i.s.m. KISP<br>
+<b>Donderdag 29 februari</b> om 14.00 u.: Samen coole sokken haken<br>
+<br>
+<b>Dinsdag 5 maart</b> om 10.00 u.: Yoga<br>
+<b>Dinsdag 5 maart</b> om 14.00 u.: Lijndansen, Portrettekenen, Spelletjesnamiddag<br>
+<b>Woensdag 6 maart</b> om 14.00 u.: UNO-namiddag<br>
+<b>Donderdag 7 maart</b> om 10.00 u.: Bewegen op muziek<br>
+<b>Donderdag 7 maart</b> om 13.00 u.: Spaanse les i.s.m. KISP<br>
+<b>Donderdag 7 maart</b> om 14.00 u.: Samen breien<br>
 <br>
 <br>
 <br>
@@ -131,10 +117,13 @@ Lentekriebels voor leden Ferm +60 en partner op 18, 19,20 en <b>21 maart 2024</b
 <br>
 <b>OKRA-TREFPUNT EKE nodigt uit...</b><br>
 <br>
-<b>Donderdag 22 februari</b> om 14.00 u. in CC De Brouwerij: Lijndans en rummikub<br>
 <b>Woensdag 28 februari</b> om 14.00 u. in CC De Brouwerij: Kaarten<br>
 <b>Donderdag 29 februari</b> om 14.00 u. in CC De Brouwerij: Lijndans en rummikub<br>
 <br>
+<b>Maandag 4 maart</b> om 13.30 u. in CC De Brouwerij: Crea-atelier<br>
+<b>Dinsdag 5 maart</b> om 14.00 u. in Sporthal Nazareth: Petanque<br>
+<b>Dinsdag 5 maart</b> om 14.00 u. in Fiertelhof Zulte: OKRA-clusterquiz<br>
+<b>Donderdag 7 maart</b> om 14.00 u. in CC De Brouwerij: Lijndans en rummikub<br>
 <br>
 <br>
 <br>
@@ -148,11 +137,12 @@ Lentekriebels voor leden Ferm +60 en partner op 18, 19,20 en <b>21 maart 2024</b
 <br>
 Activiteitenkalender van januari 2024<br>
 <br>
-<b>Zondag 25 februari</b> om 09.30 u. in de kleine zaal cc Het Centrum: Bestuursvergadering<br>
-<b>Maandag 26 februari</b> om 09.30 u. in de kleine zaal cc Het Centrum: Bestuursvergadering<br>
-<b>Dinsdag 27 februari</b> om 14.00 u. aan de Sporthal: Petanque<br>
 <b>Donderdag 29 februari</b> om 14.00 u. in cc Het Centrum: Lijndansen<br>
 <br>
+<b>Maandag 4 maart</b> om 08.30 u. in het 'Schooltje van Landuyt': Ontbijt + Wandelen om 08.30 u.<br>
+<b>Dinsdag 5 maart</b> om 13.30 u. te Zulte: Kwis van het gewest<br>
+<b>Dinsdag 5 maart</b> om 14.00 u. in cc Het Centrum: Kaarten, rummikub<br>
+<b>Donderdag 7 maart</b> om 14.00 u. in Oudenaarde: Bowling (om 13.30 u. aan cc Het Centrum)<br>
 <br>
 !!! Voor meer info: tel. {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:093855371">09 385 53 71</a><br>
 <br>

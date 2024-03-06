@@ -11,6 +11,22 @@ header_menu: true
 
 
 
+#### 11 JAAR PONTIFICAAT PAUS FRANCISCUS
+<br>
+<figure><img src="images/pb-sub.jpg" alt=" Paus Franciscus © Kerknet" style="max-height: 500px; max-width: 500px;" /><figcaption> Paus Franciscus © Kerknet</figcaption></figure><br>
+<br>
+Op <b>13 maart 2013</b>, 11 jaar geleden, koos het conclaaf de Argentijnse kardinaal Jorge Mario Bergoglio tot paus.<br>
+<br>
+Mgr Franco Coppola, apostolische nuntius in België, en mgr. Noël Trenor, apostolische nuntius bij de Europese Unie, nodigen alle gelovigen uit om deze verjaardag te herdenken tijdens een eucharistieviering waarin mgr. Luc Terlinden, Aartsbisschop van Mechelen-Brussel, zal voorgaan en dat op <b>19 maart 2024</b> om 17.30 uur in de Abdij van Grimbergen, in concelebratie met alle Belgische bisschoppen die aanwezig kunnen zijn.<br>
+Bron: Kerknet<br>
+<br>
+<br>
+<br>
+
+
+
+
+
 #### BEDEVAART NAAR SINT-JOZEF IN LEUVEN
 <br>
 <figure><img src="images/pb-us.jpg" alt=" Bedevaart naar Sint-Jozef in Leuven © Marc Perseyn" style="max-height: 500px; max-width: 500px;" /><figcaption> Bedevaart naar Sint-Jozef in Leuven © Marc Perseyn</figcaption></figure><br>
@@ -40,25 +56,6 @@ inschrijving.<br>
 Er wordt dan nog afgesproken waar u eventueel kan opstappen en welk uur.<br>
 Alle bedevaarders van de regio Aalter, Deinze, Oudenaarde, Kruisem,<br>
 Munkzwalm en de ganse Vlaamse Ardennen zijn van harte uitgenodigd.<br>
-<br>
-<br>
-<br>
-
-
-
-
-
-#### NAAMOPGAVE VAN 17 CATECHUMENEN IN HET BISDOM GENT
-<br>
-<figure><img src="images/pb-vel.jpg" alt=" Naamopgave catechumenen © Kerknet" style="max-height: 500px; max-width: 500px;" /><figcaption> Naamopgave catechumenen © Kerknet</figcaption></figure><br>
-<br>
-Zeventien volwassenen werden door de bisschop aanvaard om in de paaswake gedoopt en gevormd te worden en de eucharistie te ontvangen.<br>
-<br>
-Zeventien catechumenen, hun begeleiders en dooppeter/meter werden op zondag <b>18 februari 2024</b> eerst ontvangen met een ontbijt in het Sint-Baafshuis door bisschop Lode en diaken Martin Todts, diocesaan verantwoordelijke voor het catechumenaat. Op <b>17 januari</b> hadden ze elkaar al leren kennen op een ontmoetingsavond.<br>
-<br>
-In de eucharistieviering in de kathedraal ontvingen ze de purperen sjaal die ze dragen in de veertigdagentijd en die bij hun doopsel in de paaswake wordt vervangen door een witte sjaal, teken van het nieuwe leven in Christus.<br>
-<br>
-Bron: Kerknet <b>19 februari 2024</b><br>
 <br>
 <br>
 <br>

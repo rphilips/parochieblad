@@ -11,12 +11,31 @@ header_menu: true
 
 
 
-#### OVERLIJDEN
+#### DUIDING BIJ DE VIERDE ZONDAG VAN DE VASTEN
 <br>
-We namen in de kerk afscheid van:<br>
+<b>Samen tijd nemen voor verandering</b><br>
 <br>
-<i>Rosette Van Lancker</i>, 89 jaar, echtgenote van Polidoor Fierens uit Asper<br>
-<i>Annie Buyle 70 jaar</i>, weduwe van Aloïs De Boever uit Dikkelvenne<br>
+Wij tellen af naar Pasen en verlangen naar de eerste lentezon. Terwijl wordt overal in de wereld zaad uitgestrooid en hoopt men op een goede oogst. Ook in Congo werken boeren samen om toegang te krijgen tot de grond en van braakliggende velden een vruchtbaar land te maken. Ze verenigen zich in boerenunies, want samen staan ze sterker tegen de geïnstalleerde macht die al zoveel jaren alles in zijn greep houdt. In Congo ijveren de boeren en hun families om toegang te krijgen tot grond. Met de kaart en de GPS in de hand verdelen ze het land in zones om te bepalen waar ze willen herbebossen en waar groenten telen.<br>
+<br>
+Heel de wereld is er op uit om ertsen en grondstoffen uit Congo te halen. Slechts voor enkele voedingsproducten is Congo zelfvoorzienend, voor de rest is de bevolking aangewezen op invoer. Daarom ijvert de boerenbeweging op nationaal niveau voor een herziening van de wetten die de grondeigendom en het beheer ervan regelen. Het vraagt moed om altijd maar opnieuw wantoestanden aan de kaak te stellen, overheden op hun verantwoordelijkheid te wijzen en aan iets te beginnen waarvan anderen denken dat het onmogelijk is.<br>
+<br>
+Dat deden ook de profeten bij dat bijbelse volk Israël: waarschuwen als het mis gaat. Men zag hen als 'door God gezonden boodschappers. Want God wil zijn mensen behoeden voor de ondergang en Hij wil tussen hen wonen'.<br>
+<br>
+Wat doet de wereld met profeten die waarschuwen? Men lacht ze uit, wuift hun woorden weg als prietpraat en ondertussen worden de toestanden steeds erger.<br>
+<br>
+Ook vandaag gebeurt hetzelfde: klimaatafspraken worden op de lange baan geschoven omwille van eigenbelang; de wapenindustrie draait op volle toeren want oorlog voeren lijkt makkelijker dan te investeren in vrede; al maar meer mensen moeten op de vlucht terwijl men niet investeert in leefbaarheid in het thuisland, diversiteit van planten en dieren wordt alsmaar kleiner...<br>
+<br>
+Daarmee roepen wij rampen over ons heen, zegt de Bijbel. De ballingschap, de deportatie van een groot deel van de bevolking, zag men als gevolg van de ontrouw aan Gods wet, de Thora. Men was immers vergeten dat er zoiets bestond als het sabbatjaar en het jubeljaar, waarin mensen met minder kansen weer konden bijbenen. Maar men boog voor afgoden en deed mee aan corruptie en uitbuiting. Zo word je al gauw een speelbal in de handen van de grootmachten en staat het ergste je te wachten: de ballingschap in Babylon.<br>
+<br>
+Er gingen jaren van ellende over heen. Het land wachtte als het ware op herstel. Als het uitgekozen volk faalt, kan de bevrijdende God zich ook bedienen van buitenstaanders om een nieuwe impuls te geven aan de droom en de zegen van Abraham.<br>
+<br>
+Herkennen we dat ook in onze geschiedenis? Hebben de kerk en het westers christendom het oorspronkelijk ideaal van het evangelie niet verkwanseld?<br>
+<br>
+Misschien is deze moeilijke tijd die gelovigen en zinzoekers doormaken ook een tijd om samen nieuwe kansen te zien. Als men het kwaad onder ogen ziet, dan is een nieuw begin mogelijk.<br>
+Jezus zelf zou ook zo'n teken worden, wanneer hij op een kruis wordt geheven, op een schandpaal. Doorheen die gruwel zag de evangelist Johannes toch een bevrijdend teken: iemand die zichzelf helemaal geeft tot het uiterste, geeft daarmee de liefde van God voor deze wereld gestalte.<br>
+<br>
+Op weg naar Pasen worden wij uitgenodigd om even te kijken naar de vele plekken waar mensen deze wereld met al zijn problemen toch omarmen en er zich voor inzetten tot het uiterste, soms zelfs tot in de dood.<br>
+In al het donkere, toch licht zien dat niet kan gedoofd worden, we schrikken er voor terug. Maar in verbondenheid met velen vinden we wellicht de kracht om in dat licht te staan!<br>
 <br>
 <br>
 <br>
@@ -25,25 +44,49 @@ We namen in de kerk afscheid van:<br>
 
 
 
-#### BROEDERLIJK DELEN IN DE VRIJE BASISSCHOOL NAZARETH
+#### VEERTIGDAGENTIJD - TIJD OM BROEDERLIJK TE DELEN
 <br>
-<figure><img src="images/pb-si.jpg" alt=" koffiestop © VRIJE BASISSCHOOL NAZARETH" style="max-height: 500px; max-width: 500px;" /><figcaption> koffiestop © VRIJE BASISSCHOOL NAZARETH</figcaption></figure><br>
+<figure><img src="images/pb-tui.jpg" alt=" Campagne Broederlijk Delen © BD" style="max-height: 500px; max-width: 500px;" /><figcaption> Campagne Broederlijk Delen © BD</figcaption></figure><br>
 <br>
-Ook dit jaar plant Broederlijk Delen een 'koffiestop'.<br>
-Dit jaar vindt die plaats op vrijdag <b>1 maart 2024</b>.<br>
-Ook wij doen mee!<br>
+Dit jaar zet Broederlijk Delen haar partnerorganisaties uit <b>Congo in de kijker</b> met als jaarthema van Broederlijk Delen is <b>"Samen voor rechtvaardigheid werkt aanstekelijk"</b>.<br>
+In Congo is het voor de plaatselijke mensen heel moeilijk om toegang te krijgen tot landbouwgrond. De wetgeving daar zorgt ervoor dat familiale landbouwers met één pennenstreek de toegang tot grond kunnen verliezen. Maar door zich te verenigen en samen actie te ondernemen garanderen boeren niet alleen voor zichzelf toegang tot grond maar oefenen zij ook druk uit op het beleid.<br>
 <br>
-Klas 5 zal u op die dag vanaf 14.30 u. tot 16.00 u. op de groene speelplaats verwelkomen<br>
-met 'eerlijke' dranken: een kop koffie, een kop thee of fruitsap.<br>
+Met Broederlijk Delen willen we samenwerken aan een wereld waarin ieder mens meetelt, een wereld zoals God hem droomt. Een rechtvaardige en duurzame wereld zonder ongelijkheid waar geen mens honger lijdt, verdrukt wordt of op de vlucht moet. Als 25% van de mensen ervoor kiest om te delen en te herverdelen, is dat genoeg om het 100% anders te doen. Wij hier slaan de handen in elkaar om samen te werken en deel te worden van de 25%. Zo maken wij die wereld mogelijk. Daarbij, samen werken aan rechtvaardigheid werkt aanstekelijk!<br>
 <br>
-De inkom is voorzien via Dorp 10 en Drapstraat 10.<br>
-Kom zeker eens langs, geniet van een drankje en stop<br>
-een vrije bijdrage in de Koffiestop-collectebus.<br>
-Zo steunt u dit jaar de boeren in Congo waar<br>
-boerenfamilies zich verenigen om samen op te<br>
-komen voor hun recht op landbouwgrond.<br>
 <br>
-Elke kop koffie telt dus!<br>
+<br>
+
+
+
+
+
+#### BEZINNING
+<br>
+<i>Werken aan Gods droom</i><br>
+<i>Wij bidden u om aandacht voor ons leven hier en nu.</i><br>
+<i>Leer ons de kleine en grote kansen zien in ons alledaagse leven,</i><br>
+<i>waarin we uw droom een beetje concreter kunnen maken: </i><br>
+<i>in de ontmoetingen met wie op onze weg komt,</i><br>
+<i>in de zorg waarmee we ons werk mogen doen,</i><br>
+<i>in de gezelligheid waarmee we elkaar mogen omringen,</i><br>
+<i>in alles wat we belangeloos voor anderen doen,</i><br>
+<i>ver weg en dichtbij.</i><br>
+<br>
+<i>Laat in ons hart de juiste mix groeien</i><br>
+<i>van strijdvaardigheid en geduld.</i><br>
+<i>Wek in ons blijvende aandacht en inzet</i><br>
+<i>om uw Rijk van vrede en rechtvaardigheid</i><br>
+<i>werkelijkheid te laten worden</i><br>
+<i>in kleine en grote dingen,</i><br>
+<i>dichtbij en veraf.</i><br>
+<br>
+<i>Geef ons de moed om te geloven</i><br>
+<i>dat elke kleine, goede daad</i><br>
+<i>een duwtje in de goede richting is</i><br>
+<i>en dat uw visioen het uiteindelijk zal halen.</i><br>
+<br>
+<i>God, als mensen samenwerken voor het goede,</i><br>
+<i>is niets onmogelijk.</i><br>
 <br>
 <br>
 <br>
@@ -100,83 +143,11 @@ Info: Hilde Vanmeirhaeghe:<br>
 
 
 
-#### DUIDING BIJ DE DERDE ZONDAG VAN DE VASTEN
+#### GROOT-GAVERE: VORMELINGEN IN DE BRES VOOR BROEDERLIJK DELEN
 <br>
-<b>Samen bouwen aan een nieuwe samenleving</b><br>
+<figure><img src="images/pb-ops.jpg" alt=" Anjerplant © Wikipedia" style="max-height: 500px; max-width: 500px;" /><figcaption> Anjerplant © Wikipedia</figcaption></figure><br>
 <br>
-Wij kennen allemaal de tien geboden die we te onderhouden hebben. De ouderen onder ons kennen ze alle tien uit het hoofd dank zij het rijmpje Bovenal bemin één God, zweer niet ijdel enzovoort... De Tien Geboden zijn echter zoveel meer. Zij werden aan Mozes gegeven die zijn volk wegleidde uit de slavernij om samen een rechtvaardige samenleving op te bouwen. De Tien Geboden waren het fundament waarop Israël werd gebouwd. Ze vormen de grondwet van een democratische staat gebaseerd op vrijheid, gelijkheid en gerechtigheid. Hier is het ganse volk bij betrokken: mannen, vrouwen, jongeren, ouderen, volwassenen, kinderen.<br>
-<br>
-Zoals het joodse volk schreeuwde in Egypte om het onrecht dat hen was aangedaan, zo schreeuwt vandaag de aarde om wat er met haar gebeurt. De boodschap van Paus Franciscus op de klimaatconferentie in Dubai klonk zo: "Laat ons aandacht hebben voor de schreeuw van de aarde, laat ons de smeekbeden van de armen aanhoren, laten we gevoelig worden voor de hoop van de jongeren en de dromen van kinderen!" Vervolgens vraagt hij de wereldleiders hun egoïsme en nationale belangen te overstijgen. Zijn kritiek op de actualiteit is snoeihard en tevens doet hij een hoopvol voorstel. Het klinkt zo: " De zorg voor de schepping en voor de vrede, zijn de meest dringende kwesties en ze zijn nauw met elkaar verbonden. Hoeveel energie verspilt de mensheid aan de vele oorlogen die momenteel aan de gang zijn, zoals die in Israël en Palestina, in Oekraïne en in vele delen van de wereld: oorlogen die de problemen niet zullen oplossen, maar ze alleen maar vergroten! Hoeveel grondstoffen worden er verspild aan wapens die levens en ons gemeenschappelijk huis verwoesten! Nogmaals doe ik dit voorstel: "Laten we met het geld dat wordt uitgegeven aan wapens en andere militaire uitgaven een wereldfonds oprichten dat eindelijk een einde kan maken aan de honger."<br>
-<br>
-De boodschap van paus Franciscus in Dubai doet denken aan het kordate optreden van Jezus die de tempel reinigt. De tempel was het politieke, economische en godsdienstige centrum van het land. In de tempel stond ook de ark met daarin de twee stenen tafelen met de Tien Geboden. Als Jezus de tempel binnentreedt merkt hij dat de tempel een handelszaak is geworden. Wisselaars hebben er een monopolie en verkopen met woekerwinsten.<br>
-Het is alsof de Tien Geboden terug aan scherven liggen.<br>
-<br>
-Johannes schrijft zijn evangelie wanneer de tempel reeds lang verwoest is. Hij geeft aan de tempel een nieuwe betekenis. Voor hem wordt het lichaam van Jezus de tempel. De gestorven Jezus die voortleeft leeft in de gemeenschap die de Tien Geboden onderhoudt.<br>
-<br>
-Maar de paus geeft aan de tempel nog een andere betekenis: de tempel is de aarde, ons huis waarin wij allen wonen, wij allen als deel van de natuur. Wat Jezus voor de tempel wil, dat vraagt de paus voor de aarde. Hij vraagt dat ons leven opnieuw gefundeerd zou zijn op de Tien Geboden.<br>
-<br>
-Nog steeds vallen de tien geboden in scherven als ze geconfronteerd worden met één van onze gouden kalveren. Maar wij mogen niet vergeten dat Mozes een tweede maal de berg opging en zijn volk opnieuw de Tien Geboden aanbood. Overal in de wereld staan mensen en organisaties op, die samen werken en strijden voor rechtvaardigheid. Zij kiezen voor het leven en bouwen aan een vrije en rechtvaardige samenleving, gefundeerd op de Gods Tien Geboden.<br>
-<br>
-Zo'n organisatie is Broederlijk Delen. Toen de boeren in Mikwi (Congo) vreesden dat zij hun grond kwijt gingen spelen aan industriële landbouw, vonden zij de moed om hun verschillen naast zich neer te leggen en samen te strijden voor de goede zaak. De grond behoort nu weer toe aan de hele gemeenschap en niet meer aan slechts één individu of aan een clan.<br>
-Een voorbeeld waaruit blijkt dat samen werken aan rechtvaardigheid werkt.<br>
-<br>
-<b>BEZINNING</b><br>
-<br>
-<i>Vader van alle mensen</i><br>
-<i>die in het verborgene ziet,</i><br>
-<i>die ons hart en onze nieren doorgrondt,</i><br>
-<i>wij vragen U in deze Veertigdagentijd: </i><br>
-<i>help ons dag na dag onze binnenkamer in te gaan</i><br>
-<i>om U daar te ontmoeten in de stilte.</i><br>
-<br>
-<i>U weet toch wat er in ons omgaat.</i><br>
-<i>Vorm daar ons hart, opdat het barmhartiger zal worden</i><br>
-<i>zoals U barmhartig bent.</i><br>
-<i>En maak ons eerlijk en zuiver, tot op de graat</i><br>
-<i>opdat ons vasten gebeurt voor U</i><br>
-<i>en niet voor het oog van de mensen.</i><br>
-<br>
-<br>
-<br>
-
-
-
-
-
-#### VEERTIGDAGENTIJD - TIJD OM BROEDERLIJK TE DELEN
-<br>
-<figure><img src="images/pb-amo.jpg" alt=" Campagne Broederlijk Delen © BD" style="max-height: 500px; max-width: 500px;" /><figcaption> Campagne Broederlijk Delen © BD</figcaption></figure><br>
-<br>
-Dit jaar zet Broederlijk Delen haar partnerorganisaties uit <b>Congo in de kijker</b> met als jaarthema van Broederlijk Delen is <b>"Samen voor rechtvaardigheid werkt aanstekelijk"</b>.<br>
-In Congo is het voor de plaatselijke mensen heel moeilijk om toegang te krijgen tot landbouwgrond. De wetgeving daar zorgt ervoor dat familiale landbouwers met één pennenstreek de toegang tot grond kunnen verliezen. Maar door zich te verenigen en samen actie te ondernemen garanderen boeren niet alleen voor zichzelf toegang tot grond maar oefenen zij ook druk uit op het beleid.<br>
-<br>
-<figure><img src="images/pb-via.jpg" alt=" Freddy © BD" style="max-height: 500px; max-width: 500px;" /><figcaption> Freddy © BD</figcaption></figure><br>
-<br>
-Om aan te tonen dat er in Congo echt gewerkt wordt aan rechtvaardigheid en mensen hun schouders daaronder zetten maken we nu kennis met Freddy.<br>
-<br>
-<b>Freddy,</b> een gedreven medewerker en medewerker van CONAPAC vecht tegen het principe dat het landbouwbeleid geschreven is op maat van de elite en de grootmachten.<br>
-<br>
-Samen met andere landbouworganisaties probeert hij de beleidsmakers ervan te overtuigen om meer aandacht te besteden aan de belangen van de familiale landbouwers omdat de toegang tot grond vaak moeilijk is. Dit heeft verschillende oorzaken zoals de grote bevolkingsgroei, de conflicten in de regio, de vluchtelingenstromen die de beschikbare grond nog verder onder druk zetten. In Congo kan je geen eigenaar worden van grond. Alle grond blijft eigendom van de Congolese staat. Je moet een toelating vragen om de grond te mogen bewerken. De voorwaarden daarvoor worden bepaald door de lokale overheden. Maar soms is er sprake van vriendjespolitiek. In overleg met de overheid tracht CONAPAC daarvoor concrete en wettelijke oplossingen voor de lokale boeren te bedenken.<br>
-<br>
-<br>
-<br>
-
-
-
-
-
-#### GROOT-GAVERE: COMMUNIETOCHT VOOR ONZE EERSTE COMMUNICANTJES
-<br>
-<figure><img src="images/pb-vix.jpg" alt=" Eerste communietocht © Els Agten" style="max-height: 500px; max-width: 500px;" /><figcaption> Eerste communietocht © Els Agten</figcaption></figure><br>
-<br>
-Als voorbereiding op hun eerste communie kunnen ouders en kinderen in gezinsverband op tocht gaan in de kerk. Aan de hand van zeven haltes en doe-opdrachtjes ontmoeten zij Jezus en maken zij kennis met het christelijk geloof. De kinderen krijgen hiervoor een uitnodiging. Om het parcours zelfstandig te kunnen lopen krijgen de kinderen hiervoor een routekaart en de volwassenen een volgboekje.<br>
-<br>
-Niet alleen de communicantjes en hun ouders maar ook alle andere geïnteresseerden zijn zeker welkom.<br>
-<br>
-De deuren van de kerk staan open:<br>
-<br>
-- in Asper op vrijdag <b>1 maart</b> van 15.30 u. tot 18.00 u. en op zaterdag <b>2 maart</b> van 13.30 u. tot 18.00 u.<br>
-- in Gavere op zondag <b>3 maart</b> van 10.00 u. tot 12.00 u. en van 13.30 u.-18.00 u. en op maandag <b>4 maart</b> van 16.00 u. tot 18.00 u.<br>
+Op Palmzondag - <b>24 maart</b> - verkopen onze vormelingen kleurrijke anjerplantjes ten voordele van Broederlijk Delen. We hopen dat deze bloemetjes velen huiskamers en terrassen mogen opvrolijken naar Pasen toe. Voor de democratische prijs van 5 EUR per potje steun je de actie. Congo en de plaatselijke organisaties rekenen op uw milde steun. Vertel het voort! Van harte dank bij voorbaat.<br>
 <br>
 <br>
 <br>
@@ -199,6 +170,11 @@ De deuren van de kerk staan open:<br>
 
 
 #### GROOT-GAVERE: JONGE VERSE PALM
+<br>
+<figure><img src="images/pb-tam.jpg" alt=" palmtakken © Wikipedia" style="max-height: 500px; max-width: 500px;" /><figcaption> palmtakken © Wikipedia</figcaption></figure><br>
+<br>
+Echte palmtakken zijn takken van de palmboom of van de olijfboom. Palmen zijn het symbool voor de rechtvaardige koning, teken van overwinning. Olijftakken zijn het symbool voor de vrede die door de koning wordt gebracht. Deze echte palmtakken worden bij ons - naargelang de streek - vervangen door allerlei andere groene takken en twijgen.<br>
+Vroeger werden palmtakjes boven of naast de huisdeur opgehangen, achter het kruisbeeld gestoken, bij het wijwaterbakje bevestigd, naar het kerkhof gebracht of naar een pas omgeploegde of met koren bezaaide akker.. Een jaar lang mogen de takjes deze plekken sieren als bescherming tegen onheil. Maar laat het vooral een getuigenis zijn van hoop en geloof dat doorheen lijden en dood de verrijzenis van Jezus Christus voor de mensheid telkens weer een nieuw begin inluidt en dat het kruis een teken is van liefde die alle duistere krachten overwint.<br>
 <br>
 Voor Palmzondag <b>24 maart</b> zijn we nu al op zoek naar jonge verse palm. Wie daarbij kan helpen neemt contact op met een parochiemedewerker. Alvast dank.<br>
 <br>

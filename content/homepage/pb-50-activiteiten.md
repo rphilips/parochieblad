@@ -41,6 +41,24 @@ in voor <b>1 april</b> bij de secretaris : {{<icon class="fa fa-envelope">}}&nbs
 
 
 
+#### DAVIDSFONDS ASPER
+<br>
+<b>"Achter de schermen van de wetstraat"</b><br>
+<br>
+Johny Vansevenant, gekende wetstraatjournalist, geeft op uitnodiging van Davidsfonds Asper een uiteenzetting over het politieke landschap in België. Met zijn 35 jaar ervaring in het volgen van de federale en regionale politiek en zijn dagelijkse interactie met politici en kabinetten zal hij de toehoorder "achter de schermen van de wetstraat" laten kijken en uiteenzetten hoe zijn verslagen tot stand komen en hoe die informatie in de nieuwsuitzendingen worden weergegeven.<br>
+Er wordt eveneens een analyse gemaakt van de huidige politiek en hoe deze in de nabije toekomst mogelijks kan evalueren.<br>
+<br>
+De lezing gaat door op vrijdag <b>15 maart</b> om 20.00uur in het OC Martinus, Hulstraat 27, Asper.<br>
+Prijs: Df-leden EUR 12; niet leden EUR 15; Adk EUR 18.<br>
+Inschrijven via {{<icon class="fa fa-envelope">}}&nbsp;<a href="annie.dhondt@hotmail.be">annie.dhondt@hotmail.be</a><br>
+<br>
+<br>
+<br>
+
+
+
+
+
 #### FEMMA ASPER
 <br>
 <b>Yoga</b> : Elke dinsdag van <b>6 februari</b> t.e.m. <b>18 juni</b>. Aanvang om 19.30 u.<br>
@@ -81,7 +99,6 @@ Info en inschrijvingen bij Christiane loontjens op {{<icon class="fa fa-phone">}
 
 #### FERM SEMMERZAKE
 <br>
-27/2 19.00 in de Borgwalhoeve, Leenstraat 31, Vurste: Kookdemo : 'Paasmenu'. Een lekker aperitief met heerlijke hapjes, een smakelijk voorgerecht, een hartige hoofdschotel en een zoet dessert. Natuurlijk zijn proevertjes inbegrepen en krijg je de recepten mee naar huis. Ook niet-leden zijn welkom.<br>
 <br>
 Lentekriebels voor leden Ferm +60 en partner op 18, 19,20 en <b>21 maart 2024</b> in Salons Mantovani. Een dag vol ontmoeting, vorming en ontspanning. Info en inschrijven vóór donderdag <b>15 februari</b> via {{<icon class="fa fa-envelope">}}&nbsp;<a href="FermSemmerzake@gmail.com">FermSemmerzake@gmail.com</a> of bij Rita Nachtergaele {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:0499269983">0499 26 99 83</a><br>
 <br>
@@ -92,19 +109,93 @@ Lentekriebels voor leden Ferm +60 en partner op 18, 19,20 en <b>21 maart 2024</b
 
 
 
+#### LANDELIJKE GILDE ASPER
+<br>
+De LG Asper organiseert een kookworkshop voor kinderen op <b>17 maart 2024</b>. Dit gaat door in het OC Sint-Martinus van 09.00 u. tot 12.00 u.<br>
+Vanaf 12.00 u. is er het feestmenu : gratis voor keukenpieten en kleuters.<br>
+<br>
+Kinderen tot 12 j. : EUR 10,00 en volwassenen : EUR 15,00<br>
+Inschrijven kan via {{<icon class="fa fa-envelope">}}&nbsp;<a href="LG.Asper@hotmail.com">LG.Asper@hotmail.com</a> of {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:093847486">09 384 74 86</a><br>
+Betalen : <b>{{<icon class="fa fa-piggy-bank">}}&nbsp;BE10 7374 4200 5704</b> van LG Asper<br>
+<br>
+<br>
+<br>
+
+
+
+
+
+#### LANDELIJKE GILDE NAZARETH: DAUWTRIPPEN IN ZINGEM
+<br>
+<figure><img src="images/pb-ter.jpg" alt=" Dauwtrippen in Zingem © LG Nazareth" style="max-height: 500px; max-width: 500px;" /><figcaption> Dauwtrippen in Zingem © LG Nazareth</figcaption></figure><br>
+<br>
+Vroege ochtendwandeling op Paasmaandag <b>1 april 2024</b><br>
+Hou je van de rust die 's ochtends vroeg nog in de lucht hangt, zie je graag de dauw uit het gras opstijgen, de zon opkomen, en de natuur ontwaken terwijl de vogels fluiten tijdens een mooie wandeling in een gevarieerd landschap langs de Schelde?<br>
+Op PAASMAANDAG <b>1 april</b> gaan we onder leiding van een ervaren gids van Natuurpunt Leie - Schelde wandelen langs "de Stuyvenberg" in Zingem.<br>
+<br>
+Tijdens deze dauwtrip stappen we in de Scheldemeersen, vroeger het toneel van veehoeders en mandenvlechters en steenbakkers.<br>
+<br>
+PRAKTSCH:<br>
+- Paasmaandag <b>1 april 2024</b><br>
+- Vertrek om 7 uur 's morgens voor de Brug over de Schelde in Zingem kant Weistraat.<br>
+- Duur van de wandeling is 2 uur.<br>
+- Stevige stapschoenen, reserveschoenen en een fluojasje zijn aanraders, want we stappen soms op onverharde wegen.<br>
+- Na de wandeling verplaatsen we ons met de auto voor een landelijk ontbijt naar Nederzwalm Hof Ter Biest, Biestmolenstraat 9. Daar genieten we van een uitgebreid ontbijt: verschillende soorten ontbijtkoeken, zachte broodjes, pistolets, kaas charcuterie, gerookte zalm, vers sinaasappelsap, vruchtensappen, ontbijtgranen vers fruit, eitjes, koffie, thee, yoghurt en nog veel meer. Geert Bradt is daar onze gastheer.<br>
+<br>
+De kostprijs van het gidsen en een deel van het ontbijt wordt betaald door de Landelijke Gilde Nazareth.<br>
+Voor het ontbijt vragen wij een bijdrage van 25 EUR/ persoon over te schrijven op het gekende rekeningnummer <b>{{<icon class="fa fa-piggy-bank">}}&nbsp;BE86 7374 2100 0150</b>. Huisgenoten van ingeschreven wandelaars, maar ook andere leden die niet mee wandelen kunnen ook deelnemen aan het ontbijt achteraf.<br>
+<br>
+Inschrijven is noodzakelijk bij Peter De Bleecker tel {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:0484969007">0484 96 90 07</a> of email naar {{<icon class="fa fa-envelope">}}&nbsp;<a href="peter.debleecker@belgacom.net">peter.debleecker@belgacom.net</a> tot <b>23 maart 2024</b>.<br>
+<br>
+<br>
+<br>
+
+
+
+
+
 #### LDC 'DEN OEVER' - GAVERE
 <br>
-<b>Woensdag 28 februari</b> om 14.00 u.: Bingo<br>
-<b>Donderdag 29 februari</b> om 10.00 u.: Bewegen op muziek<br>
-<b>Donderdag 29 februari</b> om 13.00 u.: Spaanse les i.s.m. KISP<br>
-<b>Donderdag 29 februari</b> om 14.00 u.: Samen coole sokken haken<br>
-<br>
-<b>Dinsdag 5 maart</b> om 10.00 u.: Yoga<br>
-<b>Dinsdag 5 maart</b> om 14.00 u.: Lijndansen, Portrettekenen, Spelletjesnamiddag<br>
 <b>Woensdag 6 maart</b> om 14.00 u.: UNO-namiddag<br>
 <b>Donderdag 7 maart</b> om 10.00 u.: Bewegen op muziek<br>
 <b>Donderdag 7 maart</b> om 13.00 u.: Spaanse les i.s.m. KISP<br>
 <b>Donderdag 7 maart</b> om 14.00 u.: Samen breien<br>
+<b>Maandag 11 maart</b> om 14.00 u.: Kaarten i.s.m. OKRA<br>
+<b>Dinsdag 12 maart</b> om 10.00 u.: Yoga<br>
+<b>Dinsdag 12 maart</b> om 14.00 u.: Lijndansen, Portrettekenen, Spelletjesnamiddag<br>
+<b>Woensdag 13 maart</b> om 14.00 u.: Sessie gezonde buurt i.s.m. CM<br>
+<b>Donderdag 14 maart</b> om 10.00 u.: Bewegen op muziek<br>
+<b>Donderdag 14 maart</b> om 13.00 u.: Spaanse les<br>
+<b>Donderdag 14 maart</b> om 14.00 u.: Mantelzorgcafé: ergonomisch werken als mantelzorger<br>
+<br>
+<br>
+<br>
+
+
+
+
+
+#### NEOS NAZARETH:
+<br>
+<figure><img src="images/pb-tum.jpg" alt=" Geven na Leven © Neos Nazareth" style="max-height: 500px; max-width: 500px;" /><figcaption> Geven na Leven © Neos Nazareth</figcaption></figure><br>
+<br>
+Op dinsdag <b>12 maart 2024</b> om 14.30 u. verwelkomen wij jullie graag in Cc Centrum, Dorp 22,<br>
+Nazareth, voor een buitengewone lezing!<br>
+<br>
+Luc Colenbie, Transplantatiecoördinator, UZGent zal spreken over:<br>
+<i>"Geven na Leven" - De Uitdagingen bij Orgaantransplantaties</i><br>
+<br>
+Jaarlijks wachten meer dan 1.000 mensen in België op een nieuw orgaan om hun leven voort te zetten. Het redden van één mensenleven vereist niet alleen de inzet van artsen en verpleegkundigen, maar ook van chauffeurs, ambulanciers, piloten van privéjets, helikopters, ...<br>
+<br>
+<b>Luc Colenbie</b>, een bekend gezicht in Nazareth en transplantatiecoördinator aan het UZ in Gent, neemt ons mee op een fascinerende reis. Tijdens zijn boeiende voordracht zal hij de complexiteit en uitdagingen van orgaantransplantaties bespreken. Onderwerpen als<br>
+toestemming en begeleiding van de familie van de donor, matching met de patiënt-ontvanger, dringend en veilig transport van organen, en meer komen aan bod.<br>
+<br>
+Mis deze kans niet om inzicht te krijgen in de wereld van orgaantransplantaties en ontdek hoe elke schakel in de keten van levensbelang is. Samen kunnen we een verschil maken!<br>
+<br>
+Deelnameprijs: 10 EUR leden (15 EUR niet-leden) - omvat voordracht, koffie en gebak.<br>
+Inschrijven vóór <b>5 maart</b> via overschrijving naar bankrekening <b>{{<icon class="fa fa-piggy-bank">}}&nbsp;BE51 4457 6095 5162</b> met<br>
+vermelding "Luc".<br>
+Graag tot dan!<br>
 <br>
 <br>
 <br>
@@ -117,13 +208,10 @@ Lentekriebels voor leden Ferm +60 en partner op 18, 19,20 en <b>21 maart 2024</b
 <br>
 <b>OKRA-TREFPUNT EKE nodigt uit...</b><br>
 <br>
-<b>Woensdag 28 februari</b> om 14.00 u. in CC De Brouwerij: Kaarten<br>
-<b>Donderdag 29 februari</b> om 14.00 u. in CC De Brouwerij: Lijndans en rummikub<br>
-<br>
-<b>Maandag 4 maart</b> om 13.30 u. in CC De Brouwerij: Crea-atelier<br>
-<b>Dinsdag 5 maart</b> om 14.00 u. in Sporthal Nazareth: Petanque<br>
-<b>Dinsdag 5 maart</b> om 14.00 u. in Fiertelhof Zulte: OKRA-clusterquiz<br>
 <b>Donderdag 7 maart</b> om 14.00 u. in CC De Brouwerij: Lijndans en rummikub<br>
+<b>Woensdag 13 maart</b> om 14.00 u. in CC De Brouwerij: Kaarten<br>
+<b>Donderdag 14 maart</b> om 09.30 u. in CC De Brouwerij: Lijndans<br>
+<b>Donderdag 14 maart</b> om 13.45 u. vertrek aan de kerk: Wandelen<br>
 <br>
 <br>
 <br>
@@ -137,12 +225,9 @@ Lentekriebels voor leden Ferm +60 en partner op 18, 19,20 en <b>21 maart 2024</b
 <br>
 Activiteitenkalender van januari 2024<br>
 <br>
-<b>Donderdag 29 februari</b> om 14.00 u. in cc Het Centrum: Lijndansen<br>
-<br>
-<b>Maandag 4 maart</b> om 08.30 u. in het 'Schooltje van Landuyt': Ontbijt + Wandelen om 08.30 u.<br>
-<b>Dinsdag 5 maart</b> om 13.30 u. te Zulte: Kwis van het gewest<br>
-<b>Dinsdag 5 maart</b> om 14.00 u. in cc Het Centrum: Kaarten, rummikub<br>
 <b>Donderdag 7 maart</b> om 14.00 u. in Oudenaarde: Bowling (om 13.30 u. aan cc Het Centrum)<br>
+<b>Dinsdag 12 maart</b> om 14.00 u. aan de Sporthal: Petanque<br>
+<b>Donderdag 14 maart</b> om 14.00 u. in cc Het Centrum: Lijndansen<br>
 <br>
 !!! Voor meer info: tel. {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:093855371">09 385 53 71</a><br>
 <br>
@@ -155,13 +240,48 @@ Activiteitenkalender van januari 2024<br>
 
 #### SAMANA ASPER
 <br>
-Van harte welkom op onze spelnamiddagen. Noteer volgende datums : <b>22 februari</b>, <b>14 maart</b>, <b>18 april</b> en <b>13 juni</b> om 14.00 u.<br>
+Van harte welkom op onze spelnamiddagen. Noteer volgende datums : <b>14 maart</b>, <b>18 april</b> en <b>13 juni</b> om 14.00 u.<br>
 <br>
 Deze gezellige bijeenkomsten vinden plaats in het OC-Martinus in de Hulstraat te Asper.<br>
 <br>
 Graag inschrijven bij Ann Bergez: Haagstraat 70, {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:0477661859">0477 66 18 59</a> of {{<icon class="fa fa-envelope">}}&nbsp;<a href="annbergez@gmail.com">annbergez@gmail.com</a><br>
 <br>
 Als lid van Samana Asper krijgen wij de kans om naar de avant-premiere van het toneelstuk 'kuuroord Fontina' te gaan kijken en dit aan halve prijs ( 6 EUR)! Toneelkring Mavek verwacht ons op woendag <b>6 maart</b> in het CC Nova te Eke. De voorstelling start om 14.30 u. Betalen kan aan de kassa. Wij spreken af aan het gemeenteplein in Asper omstreeks 13.30 u. om te carpoolen. Wie zelf geen vervoer heeft, gelieve dat te vermelden bij jouw inschrijving. Graag inschrijven bij Vanderstichelen Lydie tegen <b>28 februari</b> op {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:093841423">09 384 14 23</a> of {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:0498459548">0498 45 95 48</a><br>
+<br>
+<br>
+<br>
+
+
+
+
+
+#### SAMANA NAZARETH
+<br>
+<b>Maandag 11 maart</b> om 14.00 u. in CC Het Centrum: Crea. Gratis, inschrijven is niet nodig, iedereeen welkom.<br>
+<br>
+<br>
+<br>
+<br>
+
+
+
+
+
+#### VBS NAZARETH: BOEKENBEURS
+<br>
+<figure><img src="images/pb-de.jpg" alt=" Boekenbeurs in VBS Nazareth © VBS Nazareth" style="max-height: 500px; max-width: 500px;" /><figcaption> Boekenbeurs in VBS Nazareth © VBS Nazareth</figcaption></figure><br>
+<br>
+<br>
+<br>
+
+
+
+
+
+#### VBS NAZARETH: OPENDEURMOMENTEN
+<br>
+<figure><img src="images/pb-tu.jpg" alt=" Ruimte om te groeien © VBS Nazareth" style="max-height: 500px; max-width: 500px;" /><figcaption> Ruimte om te groeien © VBS Nazareth</figcaption></figure><br>
+<figure><img src="images/pb-hi.jpg" alt=" Troeven van VBS Nazareth © VBS Nazareth" style="max-height: 500px; max-width: 500px;" /><figcaption> Troeven van VBS Nazareth © VBS Nazareth</figcaption></figure><br>
 <br>
 <br>
 <br>

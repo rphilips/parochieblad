@@ -11,31 +11,6 @@ header_menu: true
 <br>
 <br>
 
-##### Donderdag 29 februari 2024  
-<dl><dt><b>08.00 u. Eke:</b></dt><dd>*GEEN eucharistie viering*</dd>
-</dl>
-
-##### Vrijdag 1 maart 2024  
-<dl><dt><b>08.00 u. Eke:</b></dt><dd>*GEEN eucharistie viering*</dd>
-</dl>
-
-##### Zaterdag 2 maart 2024  
-<dl><dt><b>18.00 u. Eke:</b></dt><dd>Eucharistie<br><i>Lector: Ingrid Clemmen</i></dd>
-</dl>
-
-##### Zondag 3 maart 2024  
-<dl><dt>&nbsp;</dt><dd>3e Zondag Veertigdagentijd<br></dd><dt><b>09.00 u. Gavere:</b></dt><dd>Eeuwigdurend voor de familie Sorgeloos<br><i>Lector: Conny Maes</i></dd>
-<dt><b>10.30 u. Nazareth:</b></dt><dd>Bertrand Dhont, Simone Bodijn en Stefan Dhont<br><i>Lector: Martin Dhaenens</i></dd>
-</dl>
-
-##### Maandag 4 maart 2024  
-<dl><dt>&nbsp;</dt><dd>H. Casimir, koning<br></dd><dt><b>08.00 u. Eke:</b></dt><dd>V.M.</dd>
-</dl>
-
-##### Dinsdag 5 maart 2024  
-<dl><dt><b>08.00 u. Eke:</b></dt><dd>Overleden ouders en zus</dd>
-</dl>
-
 ##### Donderdag 7 maart 2024  
 <dl><dt>&nbsp;</dt><dd>HH. Perpetua en Felicitas, martelaressen<br></dd><dt><b>08.00 u. Eke:</b></dt><dd>Overledenen</dd>
 </dl>
@@ -49,8 +24,33 @@ header_menu: true
 </dl>
 
 ##### Zondag 10 maart 2024  
-<dl><dt>&nbsp;</dt><dd>4e Zondag Veertigdagentijd<br></dd><dt><b>09.00 u. Gavere:</b></dt><dd>Eeuwigdurend voor Alfons De Groote (1)<br><i>Lector: Dries Biesemans</i></dd>
+<dl><dt>&nbsp;</dt><dd>4e Zondag Veertigdagentijd<br>Omhaling Broederlijk Delen<br></dd><dt><b>09.00 u. Gavere:</b></dt><dd>Eeuwigdurend voor Alfons De Groote (1)<br><i>Lector: Dries Biesemans</i></dd>
 <dt><b>10.30 u. Nazareth:</b></dt><dd>Eucharistie<br><i>Lector: Prosper De Lepeleire</i></dd>
+</dl>
+
+##### Maandag 11 maart 2024  
+<dl><dt><b>08.00 u. Eke:</b></dt><dd>V.M.</dd>
+</dl>
+
+##### Dinsdag 12 maart 2024  
+<dl><dt><b>08.00 u. Eke:</b></dt><dd>Pastoor Godfried Rooms</dd>
+</dl>
+
+##### Donderdag 14 maart 2024  
+<dl><dt><b>08.00 u. Eke:</b></dt><dd>Mgr. Petrus Canisius Van Lierde</dd>
+</dl>
+
+##### Vrijdag 15 maart 2024  
+<dl><dt><b>08.00 u. Eke:</b></dt><dd>Overledenen</dd>
+</dl>
+
+##### Zaterdag 16 maart 2024  
+<dl><dt><b>18.00 u. Eke:</b></dt><dd>|Danielle Guillem, Alfonse Craessens en Marthe Juvenay|<br><i>Lector: Eigen lectoren</i></dd>
+</dl>
+
+##### Zondag 17 maart 2024  
+<dl><dt>&nbsp;</dt><dd>5e Zondag Veertigdagentijd<br></dd><dt><b>09.00 u. Gavere:</b></dt><dd>Jgt. voor André Melkebeke en echtgenote Georgette Saegerman en overleden familie<br>Jgt. voor René Van Der Schueren en echtgenote Marie-Rachel Van Der Haeghen en dochter Yvette Van Der Schueren<br><i>Lector: Luc De Coninck</i></dd>
+<dt><b>10.30 u. Nazareth:</b></dt><dd>Eucharistie<br><i>Lector: Jo Buysse</i></dd>
 </dl>
 <br>
 <br>

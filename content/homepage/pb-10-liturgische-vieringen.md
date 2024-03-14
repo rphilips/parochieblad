@@ -11,31 +11,6 @@ header_menu: true
 <br>
 <br>
 
-##### Donderdag 7 maart 2024  
-<dl><dt>&nbsp;</dt><dd>HH. Perpetua en Felicitas, martelaressen<br></dd><dt><b>08.00 u. Eke:</b></dt><dd>Overledenen</dd>
-</dl>
-
-##### Vrijdag 8 maart 2024  
-<dl><dt>&nbsp;</dt><dd>H. Johannes de Deo, kloosterling<br></dd><dt><b>08.00 u. Eke:</b></dt><dd>Eucharistie</dd>
-</dl>
-
-##### Zaterdag 9 maart 2024  
-<dl><dt>&nbsp;</dt><dd>H. Francisca Romana, kloosterlinge<br></dd><dt><b>18.00 u. Eke:</b></dt><dd>Etienne Clemmen en echtg. Martha Corijn en overl. ouders, schoonouders en familie<br>Sylvain Matthys, echtg. Yvonne De Smet, ouders, schoonouders en familie<br><i>Lector: Kathy Wellems</i></dd>
-</dl>
-
-##### Zondag 10 maart 2024  
-<dl><dt>&nbsp;</dt><dd>4e Zondag Veertigdagentijd<br>Omhaling Broederlijk Delen<br></dd><dt><b>09.00 u. Gavere:</b></dt><dd>Eeuwigdurend voor Alfons De Groote (1)<br><i>Lector: Dries Biesemans</i></dd>
-<dt><b>10.30 u. Nazareth:</b></dt><dd>Eucharistie<br><i>Lector: Prosper De Lepeleire</i></dd>
-</dl>
-
-##### Maandag 11 maart 2024  
-<dl><dt><b>08.00 u. Eke:</b></dt><dd>V.M.</dd>
-</dl>
-
-##### Dinsdag 12 maart 2024  
-<dl><dt><b>08.00 u. Eke:</b></dt><dd>Pastoor Godfried Rooms</dd>
-</dl>
-
 ##### Donderdag 14 maart 2024  
 <dl><dt><b>08.00 u. Eke:</b></dt><dd>Mgr. Petrus Canisius Van Lierde</dd>
 </dl>
@@ -51,6 +26,32 @@ header_menu: true
 ##### Zondag 17 maart 2024  
 <dl><dt>&nbsp;</dt><dd>5e Zondag Veertigdagentijd<br></dd><dt><b>09.00 u. Gavere:</b></dt><dd>Jgt. voor André Melkebeke en echtgenote Georgette Saegerman en overleden familie<br>Jgt. voor René Van Der Schueren en echtgenote Marie-Rachel Van Der Haeghen en dochter Yvette Van Der Schueren<br><i>Lector: Luc De Coninck</i></dd>
 <dt><b>10.30 u. Nazareth:</b></dt><dd>Eucharistie<br><i>Lector: Jo Buysse</i></dd>
+</dl>
+
+##### Maandag 18 maart 2024  
+<dl><dt>&nbsp;</dt><dd>H. Cyrillus van Jeruzalem, bisschop en kerkleraar<br></dd><dt><b>08.00 u. Eke:</b></dt><dd>V.M.</dd>
+</dl>
+
+##### Dinsdag 19 maart 2024  
+<dl><dt>&nbsp;</dt><dd>H. Jozef, bruidegom van de heilige maagd Maria<br></dd><dt><b>08.00 u. Eke:</b></dt><dd>Eucharistie</dd>
+<dt><b>19.00 u. Zevergem:</b></dt><dd>Biechtviering</dd>
+</dl>
+
+##### Donderdag 21 maart 2024  
+<dl><dt><b>08.00 u. Eke:</b></dt><dd>Overleden ouders en zus</dd>
+</dl>
+
+##### Vrijdag 22 maart 2024  
+<dl><dt><b>08.00 u. Eke:</b></dt><dd>Geen intentie</dd>
+</dl>
+
+##### Zaterdag 23 maart 2024  
+<dl><dt>&nbsp;</dt><dd>H. Turibius de Mogrovejo, bisschop<br></dd><dt><b>18.00 u. Eke:</b></dt><dd>|E.H. André Marysse|<br>Jgt. Hilda Vander Elstraeten, echtg. Eric De Volder<br>Jgt. Jozef Bradt<br><i>Lector: Hilde Vanmeirhaeghe</i></dd>
+</dl>
+
+##### Zondag 24 maart 2024  
+<dl><dt>&nbsp;</dt><dd>Palmzondag of Passiezondag<br></dd><dt><b>09.00 u. Gavere:</b></dt><dd>Eeuwigdurend voor Maria De Muynck (2)<br>Voor de heilige Rita en de heilige Antonius (FR)<br><i>Lector: Isabelle Tuypens</i></dd>
+<dt><b>10.30 u. Nazareth:</b></dt><dd>Jgt. Jacques Geiregat<br>Antoinette Hoste<br>Jgt. |Maria de Loof|<br>|Firmin Van herzeele|<br><i>Lector: Annemie De Gussem</i></dd>
 </dl>
 <br>
 <br>

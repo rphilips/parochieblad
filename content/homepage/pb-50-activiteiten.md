@@ -80,7 +80,8 @@ Info en inschrijvingen bij Rita Petereyns op {{<icon class="fa fa-phone">}}&nbsp
 
 #### FERM ASPER
 <br>
-<b>Woensdag 6 maart</b> om 19.00 u. in het OC Martinus, Hulstraat Asper: Paasmenu - Kookdemo<br>
+<b>Maandag 18 maart</b> Salons Mantovani: Lentekriebels. Programma: - Welkom, Bezinning en koffiemoment - Lezing 'Weg van Water' - 3- gangen maaltijd - Showprogramma met Willy Sommers & orkest (met koffiepauze)<br>
+<b>Woensdag 20 maart</b> om 19.30 u. in het OC Martinus, Hulstraat Asper: Reanimeren kun je leren i.s.m. het Rode Kruis.<br>
 <br>
 <br>
 Info en inschrijvingen bij Christiane Devenyns op {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:093843313">09 384 33 13</a> of op {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:0474667476">0474 66 74 76</a><br>
@@ -99,6 +100,7 @@ Info en inschrijvingen bij Christiane loontjens op {{<icon class="fa fa-phone">}
 
 #### FERM SEMMERZAKE
 <br>
+<b>Maandag 18 maart</b> om 19.00 u. in de kerk van Semmerzake (vroegere winterkapel): Les bloemschikken "Pasen". Je interieur opfleuren met Pasen? Dan is deze workshop voor jou. sWe maken een voorjaarsschikking met lentebloemen die zeker ook voor sfeer zal brengen op uw paastafel. Info en inschrijving vóór woensdag <b>13 maart</b> via {{<icon class="fa fa-envelope">}}&nbsp;<a href="FermSemmerzake@gmail.com">FermSemmerzake@gmail.com</a> of bij Rita Nachtergaele {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:0499269983">0499 26 99 83</a>. Ook niet-leden zijnwelkom.<br>
 <br>
 Lentekriebels voor leden Ferm +60 en partner op 18, 19,20 en <b>21 maart 2024</b> in Salons Mantovani. Een dag vol ontmoeting, vorming en ontspanning. Info en inschrijven vóór donderdag <b>15 februari</b> via {{<icon class="fa fa-envelope">}}&nbsp;<a href="FermSemmerzake@gmail.com">FermSemmerzake@gmail.com</a> of bij Rita Nachtergaele {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:0499269983">0499 26 99 83</a><br>
 <br>
@@ -156,46 +158,17 @@ Inschrijven is noodzakelijk bij Peter De Bleecker tel {{<icon class="fa fa-phone
 
 #### LDC 'DEN OEVER' - GAVERE
 <br>
-<b>Woensdag 6 maart</b> om 14.00 u.: UNO-namiddag<br>
-<b>Donderdag 7 maart</b> om 10.00 u.: Bewegen op muziek<br>
-<b>Donderdag 7 maart</b> om 13.00 u.: Spaanse les i.s.m. KISP<br>
-<b>Donderdag 7 maart</b> om 14.00 u.: Samen breien<br>
-<b>Maandag 11 maart</b> om 14.00 u.: Kaarten i.s.m. OKRA<br>
-<b>Dinsdag 12 maart</b> om 10.00 u.: Yoga<br>
-<b>Dinsdag 12 maart</b> om 14.00 u.: Lijndansen, Portrettekenen, Spelletjesnamiddag<br>
 <b>Woensdag 13 maart</b> om 14.00 u.: Sessie gezonde buurt i.s.m. CM<br>
 <b>Donderdag 14 maart</b> om 10.00 u.: Bewegen op muziek<br>
 <b>Donderdag 14 maart</b> om 13.00 u.: Spaanse les<br>
 <b>Donderdag 14 maart</b> om 14.00 u.: Mantelzorgcafé: ergonomisch werken als mantelzorger<br>
-<br>
-<br>
-<br>
-
-
-
-
-
-#### NEOS NAZARETH:
-<br>
-<figure><img src="images/pb-tum.jpg" alt=" Geven na Leven © Neos Nazareth" style="max-height: 500px; max-width: 500px;" /><figcaption> Geven na Leven © Neos Nazareth</figcaption></figure><br>
-<br>
-Op dinsdag <b>12 maart 2024</b> om 14.30 u. verwelkomen wij jullie graag in Cc Centrum, Dorp 22,<br>
-Nazareth, voor een buitengewone lezing!<br>
-<br>
-Luc Colenbie, Transplantatiecoördinator, UZGent zal spreken over:<br>
-<i>"Geven na Leven" - De Uitdagingen bij Orgaantransplantaties</i><br>
-<br>
-Jaarlijks wachten meer dan 1.000 mensen in België op een nieuw orgaan om hun leven voort te zetten. Het redden van één mensenleven vereist niet alleen de inzet van artsen en verpleegkundigen, maar ook van chauffeurs, ambulanciers, piloten van privéjets, helikopters, ...<br>
-<br>
-<b>Luc Colenbie</b>, een bekend gezicht in Nazareth en transplantatiecoördinator aan het UZ in Gent, neemt ons mee op een fascinerende reis. Tijdens zijn boeiende voordracht zal hij de complexiteit en uitdagingen van orgaantransplantaties bespreken. Onderwerpen als<br>
-toestemming en begeleiding van de familie van de donor, matching met de patiënt-ontvanger, dringend en veilig transport van organen, en meer komen aan bod.<br>
-<br>
-Mis deze kans niet om inzicht te krijgen in de wereld van orgaantransplantaties en ontdek hoe elke schakel in de keten van levensbelang is. Samen kunnen we een verschil maken!<br>
-<br>
-Deelnameprijs: 10 EUR leden (15 EUR niet-leden) - omvat voordracht, koffie en gebak.<br>
-Inschrijven vóór <b>5 maart</b> via overschrijving naar bankrekening <b>{{<icon class="fa fa-piggy-bank">}}&nbsp;BE51 4457 6095 5162</b> met<br>
-vermelding "Luc".<br>
-Graag tot dan!<br>
+<b>Dinsdag 19 maart</b> om 10.00 u.: Yoga<br>
+<b>Dinsdag 19 maart</b> om 14.00 u.: Lijndansen, Portrettekenen, Spelletjesnamiddag<br>
+<b>Woensdag 20 maart</b> om 08.30 u.: Lenteontbijt<br>
+<b>Woensdag 20 maart</b> om 14.00 u.: Diamond painting<br>
+<b>Donderdag 21 maart</b> om 09.00 u.: Spaanse les<br>
+<b>Donderdag 21 maart</b> om 10.00 u.: Bewegen op muziek<br>
+<b>Donderdag 21 maart</b> om 14.00 u.: Bingo<br>
 <br>
 <br>
 <br>
@@ -208,10 +181,12 @@ Graag tot dan!<br>
 <br>
 <b>OKRA-TREFPUNT EKE nodigt uit...</b><br>
 <br>
-<b>Donderdag 7 maart</b> om 14.00 u. in CC De Brouwerij: Lijndans en rummikub<br>
 <b>Woensdag 13 maart</b> om 14.00 u. in CC De Brouwerij: Kaarten<br>
 <b>Donderdag 14 maart</b> om 09.30 u. in CC De Brouwerij: Lijndans<br>
 <b>Donderdag 14 maart</b> om 13.45 u. vertrek aan de kerk: Wandelen<br>
+<b>Maandag 18 maart</b> om 13.30 u. in CC De Brouwerij: Crea-atelier<br>
+<b>Dinsdag 19 maart</b> om 14.00 u. in Sporthal Nazareth: Petanque<br>
+<b>Donderdag 21 maart</b> om 14.00 u. in CC De Brouwerij: Lijndans en rummikub<br>
 <br>
 <br>
 <br>
@@ -225,9 +200,9 @@ Graag tot dan!<br>
 <br>
 Activiteitenkalender van januari 2024<br>
 <br>
-<b>Donderdag 7 maart</b> om 14.00 u. in Oudenaarde: Bowling (om 13.30 u. aan cc Het Centrum)<br>
-<b>Dinsdag 12 maart</b> om 14.00 u. aan de Sporthal: Petanque<br>
 <b>Donderdag 14 maart</b> om 14.00 u. in cc Het Centrum: Lijndansen<br>
+<b>Dinsdag 19 maart</b> om 14.00 u. in cc Het Centrum: Kaarten, rummikub, crea<br>
+<b>Vrijdag 22 maart</b> om 09.00 u. in de kleine zaal cc Het Centrum: Clustervergadering De Pinte / Nazareth<br>
 <br>
 !!! Voor meer info: tel. {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:093855371">09 385 53 71</a><br>
 <br>
@@ -242,6 +217,13 @@ Activiteitenkalender van januari 2024<br>
 <br>
 Van harte welkom op onze spelnamiddagen. Noteer volgende datums : <b>14 maart</b>, <b>18 april</b> en <b>13 juni</b> om 14.00 u.<br>
 <br>
+De Bingo-namiddag gaat door op <b>21 maart</b> i.p.v. op <b>28 maart</b> en dit om 14.00 u.<br>
+<br>
+Op donderdag <b>4 april</b> : Paasfeest om 14.00 u.<br>
+Na de bezinning kunnen jullie genieten van pannenkoeken met koffie/thee à volenté.<br>
+Inschrijven kan tot uiterlijk <b>26 maart</b> bij Lydie.<br>
+{{<icon class="fa fa-envelope">}}&nbsp;<a href="Lydie.vanderstichelen@telenet.be">Lydie.vanderstichelen@telenet.be</a> of {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:0498459548">0498 45 95 48</a>. Deelnemen kost 6 EUR en voor alle ingeschrevenen is er een paasgeschenk voorzien.<br>
+<br>
 Deze gezellige bijeenkomsten vinden plaats in het OC-Martinus in de Hulstraat te Asper.<br>
 <br>
 Graag inschrijven bij Ann Bergez: Haagstraat 70, {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:0477661859">0477 66 18 59</a> of {{<icon class="fa fa-envelope">}}&nbsp;<a href="annbergez@gmail.com">annbergez@gmail.com</a><br>
@@ -255,33 +237,9 @@ Als lid van Samana Asper krijgen wij de kans om naar de avant-premiere van het t
 
 
 
-#### SAMANA NAZARETH
-<br>
-<b>Maandag 11 maart</b> om 14.00 u. in CC Het Centrum: Crea. Gratis, inschrijven is niet nodig, iedereeen welkom.<br>
-<br>
-<br>
-<br>
-<br>
-
-
-
-
-
 #### VBS NAZARETH: BOEKENBEURS
 <br>
 <figure><img src="images/pb-de.jpg" alt=" Boekenbeurs in VBS Nazareth © VBS Nazareth" style="max-height: 500px; max-width: 500px;" /><figcaption> Boekenbeurs in VBS Nazareth © VBS Nazareth</figcaption></figure><br>
-<br>
-<br>
-<br>
-
-
-
-
-
-#### VBS NAZARETH: OPENDEURMOMENTEN
-<br>
-<figure><img src="images/pb-tu.jpg" alt=" Ruimte om te groeien © VBS Nazareth" style="max-height: 500px; max-width: 500px;" /><figcaption> Ruimte om te groeien © VBS Nazareth</figcaption></figure><br>
-<figure><img src="images/pb-hi.jpg" alt=" Troeven van VBS Nazareth © VBS Nazareth" style="max-height: 500px; max-width: 500px;" /><figcaption> Troeven van VBS Nazareth © VBS Nazareth</figcaption></figure><br>
 <br>
 <br>
 <br>

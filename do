@@ -1,9 +1,7 @@
 hugo
-git add --all . 
+git add --all .
 
-echo -n "Commit: ";
-read;
-echo You typed ${REPLY}
-git commit -m "$REPLY"
 
-git push -u origin 
+git commit -m "New edition"
+
+git push -u origin

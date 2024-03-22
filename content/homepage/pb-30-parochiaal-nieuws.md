@@ -114,7 +114,8 @@ BEZINNING BIJ DE GOEDE WEEK<br>
 <i>Zoveel onrecht.</i><br>
 <i>Zoveel lijden.</i><br>
 <i>Zoveel verlies.</i><br>
-<br>
+"", "sort": "", "stat": "nazareth", "cal": "" }<br>
+Parochiaal zangk<br>
 <i>Het is een goede week</i><br>
 <i>Zoveel trouw.</i><br>
 <i>Zoveel overgave.</i><br>
@@ -131,6 +132,54 @@ BEZINNING BIJ DE GOEDE WEEK<br>
 <i>Graankorrel wordt kiemkracht.</i><br>
 <br>
 (Marijke Vanhoutte)<br>
+<br>
+<br>
+<br>
+
+
+
+
+
+#### VORMSELCATECHESE SINT AMANDUS EKE: BROEDERLIJK DELEN
+<br>
+Hartelijk dank aan alle mensen die ons en Broederlijk Delen een warm hart toedragen.<br>
+<br>
+De verkoop van de knutselwerkjes gemaakt door onze vormelingen heeft 280 EUR opgebracht.<br>
+<br>
+Dankzij jullie hebben we met de pannenkoekenverkoop 1.400 EUR opgehaald.<br>
+<br>
+U weet of weet het niet maar in ons catecheseteam worden we ook geconfronteerd<br>
+<br>
+met de ziekte van Parkinson. Marleen die alle pannenkoeken (920) heeft gebakken stelde voor<br>
+<br>
+om de helft van de opbrengst te schenken aan de Parkinson Liga, waarmee we als catecheseteam<br>
+<br>
+volledig akkoord waren.<br>
+<br>
+Door jullie warme vrijgevigheid konden we met veel dankbaarheid een overschrijving doen van<br>
+<br>
+980 EUR aan Broederlijk Delen en 700 EUR aan de Parkinson Liga.<br>
+<br>
+Nogmaals hartelijk dank namens de vormelingen en het catecheseteam:<br>
+<br>
+Marleen, Ria, Veerle en Hilde<br>
+<br>
+<br>
+<br>
+
+
+
+
+
+#### KUIS VAN DE KERK TE NAZARETH
+<br>
+<figure><img src="images/pb-hi1.jpg" alt=" Kuis van de kerk te Nazareth © Rita Van Oost" style="max-height: 500px; max-width: 500px;" /><figcaption> Kuis van de kerk te Nazareth © Rita Van Oost</figcaption></figure><br>
+<figure><img src="images/pb-hi2.jpg" alt=" Kuis van de kerk te Nazareth © Rita Van Oost" style="max-height: 500px; max-width: 500px;" /><figcaption> Kuis van de kerk te Nazareth © Rita Van Oost</figcaption></figure><br>
+<figure><img src="images/pb-hi3.jpg" alt=" Kuis van de kerk te Nazareth © Rita Van Oost" style="max-height: 500px; max-width: 500px;" /><figcaption> Kuis van de kerk te Nazareth © Rita Van Oost</figcaption></figure><br>
+<br>
+De grote schoonmaak in de kerk is gedaan, maandag <b>18 maart</b> en dinsdag <b>19 maart</b> hebben we veel helpers gekregen om eens alle stoelen af te wassen , de vloer te schuren en de biechtstoelen en de preekstoel op de poetsen zodat alle stof weg is.<br>
+<br>
+Veel dank aan de helpers!!!<br>
 <br>
 <br>
 <br>

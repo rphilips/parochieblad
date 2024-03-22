@@ -55,7 +55,7 @@ header_menu: true
 
 ##### Zondag 31 maart 2024  
 <dl><dt>&nbsp;</dt><dd>Pasen, Verrijzenis van de Heer<br></dd><dt><b>09.00 u. Gavere:</b></dt><dd>Paasviering<br>Voor overleden ouders en kleinzoon<br><i>Lector: Martin Peleman</i></dd>
-<dt><b>10.30 u. Nazareth:</b></dt><dd>Paasviering<br>|Hector Adam en Marie Yde|<br>Mariette De Ketelaere, echtg. Luc Adam<br><i>Lector: Marc Perseyn</i></dd>
+<dt><b>10.30 u. Nazareth:</b></dt><dd>Paasviering<br>|Hector Adam en Marie Yde|<br>Mariette De Ketelaere, echtg. Luc Adam<br>jgt. voor Georges en Jeanne Van Simaeys - Dhondt<br>jgt. voor Rene en Bertha Van Simaeys - Dhondt<br><i>Lector: Marc Perseyn</i></dd>
 </dl>
 <br>
 <br>

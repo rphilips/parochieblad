@@ -11,33 +11,8 @@ header_menu: true
 <br>
 <br>
 
-##### Donderdag 21 maart 2024  
-<dl><dt><b>08.00 u. Eke:</b></dt><dd>Overleden ouders en zus</dd>
-</dl>
-
-##### Vrijdag 22 maart 2024  
-<dl><dt><b>08.00 u. Eke:</b></dt><dd>Geen intentie</dd>
-</dl>
-
-##### Zaterdag 23 maart 2024  
-<dl><dt>&nbsp;</dt><dd>H. Turibius de Mogrovejo, bisschop<br></dd><dt><b>18.00 u. Eke:</b></dt><dd>|E.H. André Marysse|<br>Jgt. Hilda Vander Elstraeten, echtg. Eric De Volder<br>Jgt. Jozef Bradt<br><i>Lector: Hilde Vanmeirhaeghe</i></dd>
-</dl>
-
-##### Zondag 24 maart 2024  
-<dl><dt>&nbsp;</dt><dd>Palmzondag of Passiezondag<br>Omhaling Broederelijk Delen<br></dd><dt><b>09.00 u. Gavere:</b></dt><dd>Eeuwigdurend voor Maria De Muynck (2)<br>Voor de heilige Rita en de heilige Antonius (FR)<br><i>Lector: Isabelle Tuypens</i></dd>
-<dt><b>10.30 u. Nazareth:</b></dt><dd>Stichtingen (4/15)<br>Jgt. Jacques Geiregat<br>Antoinette Hoste<br>Jgt. |Maria de Loof|<br>|Firmin Van herzeele|<br><i>Lector: Annemie De Gussem</i></dd>
-</dl>
-
-##### Maandag 25 maart 2024  
-<dl><dt>&nbsp;</dt><dd>Heilige Maandag<br></dd><dt><b>08.00 u. Eke:</b></dt><dd>V.M.</dd>
-</dl>
-
-##### Dinsdag 26 maart 2024  
-<dl><dt>&nbsp;</dt><dd>Heilige Dinsdag<br></dd><dt><b>08.00 u. Eke:</b></dt><dd>Overleden ouders en zus</dd>
-</dl>
-
 ##### Woensdag 27 maart 2024  
-<dl><dt>&nbsp;</dt><dd>Heilige Woensdag<br></dd><dt><b>19.00 u. Sint-Baafskathedraal:</b></dt><dd>Gent - Sint-Baafskathedraal - Chrismamis</dd>
+<dl><dt>&nbsp;</dt><dd>Heilige Woensdag<br></dd><dt><b>19.00 u. Sint-Baafskathedraal:</b></dt><dd>Gent - Chrismamis</dd>
 </dl>
 
 ##### Donderdag 28 maart 2024  
@@ -56,6 +31,35 @@ header_menu: true
 ##### Zondag 31 maart 2024  
 <dl><dt>&nbsp;</dt><dd>Pasen, Verrijzenis van de Heer<br></dd><dt><b>09.00 u. Gavere:</b></dt><dd>Paasviering<br>Voor overleden ouders en kleinzoon<br><i>Lector: Martin Peleman</i></dd>
 <dt><b>10.30 u. Nazareth:</b></dt><dd>Paasviering<br>|Hector Adam en Marie Yde|<br>Mariette De Ketelaere, echtg. Luc Adam<br>jgt. voor Georges en Jeanne Van Simaeys - Dhondt<br>jgt. voor Rene en Bertha Van Simaeys - Dhondt<br><i>Lector: Marc Perseyn</i></dd>
+</dl>
+
+##### Maandag 1 april 2024  
+<dl><dt><b>08.00 u. Eke:</b></dt><dd>V.M.</dd>
+</dl>
+
+##### Dinsdag 2 april 2024  
+<dl><dt>&nbsp;</dt><dd><b>H. Franciscus van Paola,</b> kluizenaar<br></dd><dt><b>08.00 u. Eke:</b></dt><dd>Paus H. Johannes-Paulus II<br>Jgt. Walter De Graeve</dd>
+</dl>
+
+##### Woensdag 3 april 2024  
+<dl><dt><b>08.30 u. Nazareth:</b></dt><dd>*GEEN eucharistie viering*</dd>
+</dl>
+
+##### Donderdag 4 april 2024  
+<dl><dt>&nbsp;</dt><dd><b>H. Isidorus,</b> bisschop en kerkleraar<br></dd><dt><b>08.00 u. Eke:</b></dt><dd>Overledenen</dd>
+</dl>
+
+##### Vrijdag 5 april 2024  
+<dl><dt>&nbsp;</dt><dd><b>H. Vincentius Ferrer,</b> priester<br></dd><dt><b>08.00 u. Eke:</b></dt><dd>Bijzondere intentie</dd>
+</dl>
+
+##### Zaterdag 6 april 2024  
+<dl><dt><b>18.00 u. Eke:</b></dt><dd>Georges Van de Voorde en echtg. Martha Rasschaert en zonen Robert en André<br>Vicaris Gert Poelman</dd>
+</dl>
+
+##### Zondag 7 april 2024  
+<dl><dt>&nbsp;</dt><dd>2e Zondag van Pasen<br></dd><dt><b>09.00 u. Gavere:</b></dt><dd>Jaargetijde voor Aimé Dervaux en echtgenote Gabriëlla De Schamphelaere<br>Eeuwigdurend voor P. De Vreese (2)<br><i>Lector: Chris Jungbluth</i></dd>
+<dt><b>10.30 u. Nazareth:</b></dt><dd>Eucharistie<br><i>Lector: Marijke Dhondt</i></dd>
 </dl>
 <br>
 <br>

@@ -11,40 +11,11 @@ header_menu: true
 
 
 
-#### 1 UUR VOOR HEM MET HEM
+#### ZOMERUUR IN AANTOCHT
 <br>
-<figure><img src="images/pb-at.jpg" alt=" 1 uur voor hem met hem cr © H. Maria Magdalenaparochie" style="max-height: 500px; max-width: 500px;" /><figcaption> 1 uur voor hem met hem cr © H. Maria Magdalenaparochie</figcaption></figure><br>
+<figure><img src="images/pb-sui.jpg" alt=" Zomeruur © de standaard" style="max-height: 500px; max-width: 500px;" /><figcaption> Zomeruur © de standaard</figcaption></figure><br>
 <br>
-H. Maria Magdalenaparochie in Deinze nodigt u uit:<br>
-Als toeschouwer bent u niet langer buitenstaander, maar wordt u deel van het Passieverhaal<br>
-van Jezus. Aan de hand van film, tekst en muziek beleeft u het beklijvende verhaal door de<br>
-ogen van Jezus, Petrus, Pilatus en Maria. We mogen Hem volgen op de weg die Hij is gegaan.<br>
-<br>
-ZATERDAG <b>23 maart 2024</b><br>
-<br>
-SINT-PAULUSKERK<br>
-(Oostkouterlaan <b>5 juli</b>, 9800 Deinze)<br>
-deuren open vanaf 19.30 u.<br>
-start voorstelling om 20.00 u.<br>
-<br>
-Iedereen welkom vanaf ongeveer 10 jaar<br>
-<br>
-vrije bijdrage<br>
-<br>
-<br>
-<br>
-
-
-
-
-
-#### OFFICIËLE OPENING VAN HET SINT-BAAFSHUIS GENT
-<br>
-<figure><img src="images/pb-ibi.jpg" alt=" Publieke binnentuin Sint-Baafshuis © Bisdom Gent, foto: Maîtrise" style="max-height: 500px; max-width: 500px;" /><figcaption> Publieke binnentuin Sint-Baafshuis © Bisdom Gent, foto: Maîtrise</figcaption></figure><br>
-<br>
-"Een open huis midden in de stad dat oud en nieuw weet te integreren. Symbool voor een Kerk van de toekomst." Zo klonk het vrijdag <b>1 maart 2024</b>.<br>
-<br>
-Het statige gebouw krijgt een nieuwe bestemming als kloppend hart van de opleidingen en diensten van het bisdom Gent en als open huis midden in de stad onder de toren van de kathedraal.<br>
+Het weekend van zaterdag 30 en zondag <b>31 maart</b> (PAASWEEKEND) is het terug zo ver. Opnieuw schakelen we over van de winter- naar de zomertijd. Twee uur wordt drie uur. In het voorjaar zetten we onze uurwerken opnieuw vooruit (zomertijd). Dat betekent automatisch dat we onze uurwerken in het najaar een uurtje achteruit (wintertijd) zetten.<br>
 <br>
 <br>
 <br>

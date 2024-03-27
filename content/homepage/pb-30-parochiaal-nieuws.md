@@ -15,7 +15,20 @@ header_menu: true
 <br>
 We namen in de kerk afscheid van:<br>
 <br>
-<i>Leo De Wilde</i>, 95 j., echtg. Henriette Govaert, WZC de veilige haven, Aalter<br>
+<i>Marcel Thienpont</i>, 88 j., Gavere<br>
+<i>Paul Geerinck</i>, 84 jaar, weduwnaar van Sheila Verstrepen overleden te Gent.<br>
+Als pastoraal medewerker heeft Paul in Dikkelvenne gedurende vele jaren als diaken nauw samengewerkt met wijlen pastoor Johan Van Den Haute.<br>
+<br>
+<br>
+<br>
+
+
+
+
+
+#### VIERINGEN VOOR DE GOEDE WEEK
+<br>
+<figure><img src="images/pb-us.jpg" alt=" Diensten Goede Week © Kerk Nazareth: DRE" style="max-height: 500px; max-width: 500px;" /><figcaption> Diensten Goede Week © Kerk Nazareth: DRE</figcaption></figure><br>
 <br>
 <br>
 <br>
@@ -47,18 +60,10 @@ EEN HARTELIJKE UITNODIGING OM HIERAAN DEEL TE NEMEN.<br>
 
 
 
-#### VIERINGEN VOOR DE GOEDE WEEK
-<br>
-<figure><img src="images/pb-non.jpg" alt=" Diensten Goede Week © Kerk Nazareth: DRE" style="max-height: 500px; max-width: 500px;" /><figcaption> Diensten Goede Week © Kerk Nazareth: DRE</figcaption></figure><br>
-<br>
-<br>
-<br>
-
-
-
-
-
 #### DE GOEDE WEEK IS VOOR CHRISTENEN DE MEEST BIJZONDERE WEEK VAN HET LITURGISCH JAAR
+<br>
+<figure><img src="images/pb-sed1.jpg" alt=" Pasen (1) © Guy Claus" style="max-height: 500px; max-width: 500px;" /><figcaption> Pasen (1) © Guy Claus</figcaption></figure><br>
+<figure><img src="images/pb-sed2.jpg" alt=" Pasen (2) © Guy Claus" style="max-height: 500px; max-width: 500px;" /><figcaption> Pasen (2) © Guy Claus</figcaption></figure><br>
 <br>
 Midden de drukte van het leven, willen we proberen Jezus van heel nabij te volgen, op zijn tocht van lijden en dood naar verrijzenis.<br>
 Wie op een intense manier naar Pasen wil toeleven, kan daarvoor aansluiten bij één of meerdere liturgische momenten.<br>
@@ -114,8 +119,7 @@ BEZINNING BIJ DE GOEDE WEEK<br>
 <i>Zoveel onrecht.</i><br>
 <i>Zoveel lijden.</i><br>
 <i>Zoveel verlies.</i><br>
-"", "sort": "", "stat": "nazareth", "cal": "" }<br>
-Parochiaal zangk<br>
+<br>
 <i>Het is een goede week</i><br>
 <i>Zoveel trouw.</i><br>
 <i>Zoveel overgave.</i><br>
@@ -140,6 +144,95 @@ Parochiaal zangk<br>
 
 
 
+#### MARIA, VROUW VAN GELOOF EN EEUWIGE TROUW
+<br>
+<figure><img src="images/pb-tam.jpg" alt=" Pieta (Michelangelo) © Wikipedia" style="max-height: 500px; max-width: 500px;" /><figcaption> Pieta (Michelangelo) © Wikipedia</figcaption></figure><br>
+<br>
+<i>Toen zij hoorde dat de doodstraf was uitgesproken</i><br>
+<i>kon niemand haar nog tegenhouden.</i><br>
+<i>Zij vluchtte de straat op: </i><br>
+<i>radeloos, tussen een krioelende massa pelgrims,</i><br>
+<i>huilend, tussen een menigte in opgewonden kermisstemming.</i><br>
+<br>
+<i>Zij liep haastig en schichtig, baande zich een weg</i><br>
+<i>doorheen een traag slenterende massa.</i><br>
+<br>
+<i>Zij ontdekte plots een rode bloedvlek op de weg,</i><br>
+<i>op de weg naar Golgotha.</i><br>
+<br>
+<i>Zij liep als een wilde furie, duwde de mensen opzij,</i><br>
+<i>en stond plots op de open plek,</i><br>
+<i>even buiten de stadspoort.</i><br>
+<br>
+<i>Mensen stonden in groepjes toe te zien.</i><br>
+<i>Ze hoorde nog enkele doffe slagen van de hamer,</i><br>
+<i>en toen vielen alle gesprekken stil.</i><br>
+<br>
+<i>Iedereen keek toe hoe het eerste kruis werd opgericht</i><br>
+<i>met een van pijn verkrampte Jezus erop vastgenageld.</i><br>
+<br>
+<i>Maria bleef maar toekijken,</i><br>
+<i>zocht met haar ogen naar de trekken van zijn gezicht,</i><br>
+<i>ze zocht naar zijn ogen.</i><br>
+<i>Dat was haar afscheid,</i><br>
+<i>als streelde zij een laatste maal zijn aangezicht.</i><br>
+<br>
+<i>Een pover afscheid,</i><br>
+<i>midden een menigte die onverschillig en cynisch toekeek.</i><br>
+<i>Zij keek naar de hemel die haar zo duister werd.</i><br>
+<i>Zij keek naar de aarde die zo vijandig leek.</i><br>
+<br>
+<i>Tussen haar wanhoop en haar angst keek zij in zijn ogen,</i><br>
+<i>in zijn blik, als altijd een blik vol vrede.</i><br>
+<br>
+<i>Hij had haar zo dikwijls verteld</i><br>
+<i>dat mensen niet mogen terugslaan, niet mochten haten.</i><br>
+<br>
+<i>Nu wist zij: dat was niet 'zomaar' een boodschap.</i><br>
+<i>Hij was die boodschap.</i><br>
+<br>
+<i>En zij fluisterde zijn naam: "Jezus",</i><br>
+<i>als een gebed, als een nieuw gebed om vrede,</i><br>
+<i>om kracht tot vergeving.</i><br>
+(Manu Verhulst )<br>
+<br>
+<br>
+<br>
+
+
+
+
+
+#### GROOT-GAVERE: PALMZONDAG - DAG VAN JUBEL MAAR OOK VAN KRUISIG HEM
+<br>
+<figure><img src="images/pb-amo.jpg" alt=" Palmmanden © C. Piens" style="max-height: 500px; max-width: 500px;" /><figcaption> Palmmanden © C. Piens</figcaption></figure><br>
+<br>
+<figure><img src="images/pb-ira.jpg" alt=" Gebedkaartje Palmzondag © C. Piens" style="max-height: 500px; max-width: 500px;" /><figcaption> Gebedkaartje Palmzondag © C. Piens</figcaption></figure><br>
+<br>
+Op Palmzondag vierden we dat Jezus op een ezelsveulen de stad Jeruzalem binnenreed. Eerst feestelijk binnengehaald als koning van vrede, valt Jezus enkele dagen later van dat voetstuk; in de stad wachten hem lijden, verguizing en dood. De zegening van de palm door de priester en de bijhorende liederen herinnerden ons aan het volk dat "Hosanna" riep maar vooruitlopend op Goede Vrijdag, de dag waarop Jezus door datzelfde volk verstoten werd en riepen "kruisig Hem" .<br>
+<br>
+De gebedskaartjes en een klein palmtakje - het groene takje van hoop - werden aangereikt aan alle aanwezigen. Vooraan was nog voldoende palm voor thuis, buren of vrienden. Ook al zijn sommigen niet zo sterk meer betrokken op het geloof, dat takje is toch nog welkom in vele huiskamers als teken van zegen.<br>
+<br>
+<br>
+<br>
+
+
+
+
+
+#### EEN HART VOOR BROEDERLIJK DELEN
+<br>
+Niet alleen de frisse geur van de anjerplantjes maar ook de veelkleurige bloemenpracht bij het binnenkomen van de kerk zorgden voor een lentegevoel bij de mishoorders. Het enthousiasme waarmee onze vormelingen de plantjes aanprezen deden de bloemen letterlijk de kerkdeur uitvliegen. Terecht mogen zij en de catechisten fier zijn omdat die verkoop opnieuw een succes werd.<br>
+<br>
+Binnenkort verneemt u welk bedrag onze geloofsgemeenschap vanuit de wekelijkse omhalingen in de kerk en de opbrengst van de bloemenverkoop heeft kunnen overmaken aan Broederlijk delen. Dank uit naam van de Congolese organisaties die zich inzetten voor het welzijn van de plaatselijke bevolking.<br>
+<br>
+<br>
+<br>
+
+
+
+
+
 #### VORMSELCATECHESE SINT AMANDUS EKE: BROEDERLIJK DELEN
 <br>
 Hartelijk dank aan alle mensen die ons en Broederlijk Delen een warm hart toedragen.<br>
@@ -150,7 +243,7 @@ Dankzij jullie hebben we met de pannenkoekenverkoop 1.400 EUR opgehaald.<br>
 <br>
 U weet of weet het niet maar in ons catecheseteam worden we ook geconfronteerd<br>
 <br>
-met de ziekte van Parkinson. Marleen die alle pannenkoeken (920) heeft gebakken stelde voor<br>
+met de ziekte van Parkinson. Marleen die alle pannenkoeken heeft gebakken stelde voor<br>
 <br>
 om de helft van de opbrengst te schenken aan de Parkinson Liga, waarmee we als catecheseteam<br>
 <br>
@@ -162,6 +255,8 @@ Door jullie warme vrijgevigheid konden we met veel dankbaarheid een overschrijvi
 <br>
 Nogmaals hartelijk dank namens de vormelingen en het catecheseteam:<br>
 <br>
+Izaura, Noor, Mathis, Amelie, Wout, Daan, Warre, Elena, Gemma, Henri, Maja en Sizar.<br>
+<br>
 Marleen, Ria, Veerle en Hilde<br>
 <br>
 <br>
@@ -171,53 +266,14 @@ Marleen, Ria, Veerle en Hilde<br>
 
 
 
-#### KUIS VAN DE KERK TE NAZARETH
+#### ERFGOEDDAG KERK DIKKELVENNE
 <br>
-<figure><img src="images/pb-hi1.jpg" alt=" Kuis van de kerk te Nazareth © Rita Van Oost" style="max-height: 500px; max-width: 500px;" /><figcaption> Kuis van de kerk te Nazareth © Rita Van Oost</figcaption></figure><br>
-<figure><img src="images/pb-hi2.jpg" alt=" Kuis van de kerk te Nazareth © Rita Van Oost" style="max-height: 500px; max-width: 500px;" /><figcaption> Kuis van de kerk te Nazareth © Rita Van Oost</figcaption></figure><br>
-<figure><img src="images/pb-hi3.jpg" alt=" Kuis van de kerk te Nazareth © Rita Van Oost" style="max-height: 500px; max-width: 500px;" /><figcaption> Kuis van de kerk te Nazareth © Rita Van Oost</figcaption></figure><br>
+<figure><img src="images/pb-de.jpg" alt=" Erfgoeddag Kerk Dikkelvenne © Kerkraad Sint-Petrus Dikkelvenne" style="max-height: 500px; max-width: 500px;" /><figcaption> Erfgoeddag Kerk Dikkelvenne © Kerkraad Sint-Petrus Dikkelvenne</figcaption></figure><br>
+Het miraculeuze 16de-eeuwse beeld van onze Dikkelvense Heilige Christiana, in notenhout en moderne polychromie, werd recent deskundig gerestaureerd (mede met subsidie van Cultuurregio Leie).<br>
 <br>
-De grote schoonmaak in de kerk is gedaan, maandag <b>18 maart</b> en dinsdag <b>19 maart</b> hebben we veel helpers gekregen om eens alle stoelen af te wassen , de vloer te schuren en de biechtstoelen en de preekstoel op de poetsen zodat alle stof weg is.<br>
+Nu is het unieke historische beeld eindelijk terug thuis. Op Erfgoeddag zondag <b>21 april</b> tussen 10.00 u. en 17.00 u. zet de kerkraad Sint-Petrus Dikkelvenne de kerkdeur wagenwijd. Je krijgt er een unieke inkijk in de lokale geschiedenis van het bronnendorp en het rijke erfgoed en het restauratieproject wordt in beeld gebracht.<br>
 <br>
-Veel dank aan de helpers!!!<br>
-<br>
-<br>
-<br>
-
-
-
-
-
-#### PAROCHIAAL ZANGKOOR NAZARETH ZINGT...
-<br>
-Iedere zondagvoormiddag, en op feestdagen, tijdens de liturgische viering in de Onze Lieve Vrouw<br>
-Geboortekerk, van 10.30 u. tot 11.15 u.<br>
-<br>
-De repetities zijn vóór de misvieringen, deze beginnen om 09.45 u. in de kerk.<br>
-Een hartverwarmende oproep aan wie zangkriebels heeft en graag meezingt in ons koor.<br>
-Een muzikaal engagement aangaan in vriendschapssfeer.<br>
-Kom gerust kijken, luisteren, proberen. Je bent van harte welkom!<br>
-Iedere zondagvoormiddag, en op feestdagen, tijdens de liturgische viering in de Onze Lieve Vrouw<br>
-Geboortekerk, van 10.30 u. tot 11.15 u.<br>
-<br>
-De repetities zijn vóór de misvieringen, deze beginnen om 09.45 u. in de kerk.<br>
-Een hartverwarmende oproep aan wie zangkriebels heeft en graag meezingt in ons koor.<br>
-Een muzikaal engagement aangaan in vriendschapssfeer.<br>
-<br>
-Kom gerust kijken, luisteren, proberen. Je bent van harte welkom!<br>
-<br>
-<br>
-<br>
-
-
-
-
-
-#### GROOT-GAVERE: VORMELINGEN IN DE BRES VOOR BROEDERLIJK DELEN
-<br>
-<figure><img src="images/pb-ops.jpg" alt=" Anjerplant © Wikipedia" style="max-height: 500px; max-width: 500px;" /><figcaption> Anjerplant © Wikipedia</figcaption></figure><br>
-<br>
-Op Palmzondag - <b>24 maart</b> - verkopen onze vormelingen kleurrijke anjerplantjes ten voordele van Broederlijk Delen. We hopen dat deze bloemetjes velen huiskamers en terrassen mogen opvrolijken naar Pasen toe. Voor de democratische prijs van 5 EUR per potje steun je de actie. Congo en de plaatselijke organisaties rekenen op uw milde steun. Vertel het voort! Van harte dank bij voorbaat.<br>
+Uitzonderlijk worden de kerkschatten van Dikkelvenne tentoongesteld. Op het programma staan ook allerlei leuke activiteiten voor het hele gezin: prinsessen-kleurwedstrijd voor de kleinsten, schattentocht voor jong en oud. Tover jezelf om tot prins of prinses Christiana en krijg een prachtige foto. Toegang gratis.<br>
 <br>
 <br>
 <br>

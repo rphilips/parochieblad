@@ -11,6 +11,25 @@ header_menu: true
 
 
 
+#### DAVIDSFONDS GAVERE
+<br>
+Zondag <b>28 april</b> zijn we toe aan onze tweede editie van de Melodieuze tuinen. Een gezellige zondagvoormiddag beleving waar gemusiceerd wordt op verrassende locaties terwijl de aanwezigen culinair kunnen genieten van Gaverse streekproducten.<br>
+<br>
+Een fijne samenwerking van het Davidsfonds Gavere, Landelijke gilde Dikkelvenne-Baaigem-Vurste, KLJ Gavere en VZW de Bolster.<br>
+<br>
+Inschrijven  {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:093844430">09 384 44 30</a> {{<icon class="fa fa-envelope">}}&nbsp;<a href="Davidsfonds.gavere@gmail.com">Davidsfonds.gavere@gmail.com</a> en Lg_dikkelvenne_baaigem_vurste@hotmail.com<br>
+<br>
+Start: zondag <b>28 april</b> van 10.00 uur tot 13.00 uur<br>
+Borgwalhoeve, leenstraat 31, Vurste<br>
+Inkom leden: 18 EUR , niet-leden: 25,00 EUR - min 16 jaar: 12,00 EUR.<br>
+<br>
+<br>
+<br>
+
+
+
+
+
 #### FEMMA ASPER
 <br>
 <b>Yoga</b> : Elke dinsdag van <b>6 februari</b> t.e.m. <b>18 juni</b>. Aanvang om 19.30 u.<br>
@@ -47,9 +66,18 @@ De Paashaas komt ook !<br>
 
 #### FERM ASPER
 <br>
-<b>Woensdag 27 maart</b> om 14.30 u. of 19.30 u.: Bloemschikles: Pasen ! Info en inschrijvingen bij Christiane Devenyns op {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:093843313">09 384 33 13</a> of op {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:0474667476">0474 66 74 76</a> of via {{<icon class="fa fa-envelope">}}&nbsp;<a href="christianedevenyns@hotmail.com">christianedevenyns@hotmail.com</a><br>
-<br>
 <b>Zaterdag 6 april</b>: Daguitstap Keukenhof<br>
+<b>Woensdag 10 april</b> om 14.30 u. in het O.C. St.-Martinus: Kinderkookworkshop<br>
+<br>
+Zondag <b>28 april</b> zijn we toe aan onze tweede editie van de Melodieuze tuinen. Een gezellige zondagvoormiddag beleving waar gemusiceerd wordt op verrassende locaties terwijl de aanwezigen culinair kunnen genieten van Gaverse streekproducten.<br>
+<br>
+Een fijne samenwerking van het Davidsfonds Gavere, Landelijke gilde Dikkelvenne-Baaigem-Vurste, KLJ Gavere en VZW de Bolster.<br>
+<br>
+Inschrijven  {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:093844430">09 384 44 30</a> {{<icon class="fa fa-envelope">}}&nbsp;<a href="Davidsfonds.gavere@gmail.com">Davidsfonds.gavere@gmail.com</a> en Lg_dikkelvenne_baaigem_vurste@hotmail.com<br>
+<br>
+Start: zondag <b>28 april</b> van 10.00 uur tot 13.00 uur<br>
+Borgwalhoeve, leenstraat 31, Vurste<br>
+Inkom leden: 18 EUR , niet-leden: 25,00 EUR - min 16 jaar: 12,00 EUR.:<br>
 <br>
 Beter Bewegen : Elke dinsdag vanaf <b>9 januari</b> t.e.m. <b>30 april</b> (uitgezonderd schoolvakanties) van 20.00 u. tot 21.00 u. - Sporthal Scaldis, Sportdreef 1B Gavere<br>
 <br>
@@ -62,45 +90,12 @@ Info en inschrijvingen bij Christiane loontjens op {{<icon class="fa fa-phone">}
 
 
 
-#### LANDELIJKE GILDE NAZARETH: DAUWTRIPPEN IN ZINGEM
-<br>
-<figure><img src="images/pb-ter.jpg" alt=" Dauwtrippen in Zingem © LG Nazareth" style="max-height: 500px; max-width: 500px;" /><figcaption> Dauwtrippen in Zingem © LG Nazareth</figcaption></figure><br>
-<br>
-Vroege ochtendwandeling op Paasmaandag <b>1 april 2024</b><br>
-Hou je van de rust die 's ochtends vroeg nog in de lucht hangt, zie je graag de dauw uit het gras opstijgen, de zon opkomen, en de natuur ontwaken terwijl de vogels fluiten tijdens een mooie wandeling in een gevarieerd landschap langs de Schelde?<br>
-Op PAASMAANDAG <b>1 april</b> gaan we onder leiding van een ervaren gids van Natuurpunt Leie - Schelde wandelen langs "de Stuyvenberg" in Zingem.<br>
-<br>
-Tijdens deze dauwtrip stappen we in de Scheldemeersen, vroeger het toneel van veehoeders en mandenvlechters en steenbakkers.<br>
-<br>
-PRAKTSCH:<br>
-- Paasmaandag <b>1 april 2024</b><br>
-- Vertrek om 7 uur 's morgens voor de Brug over de Schelde in Zingem kant Weistraat.<br>
-- Duur van de wandeling is 2 uur.<br>
-- Stevige stapschoenen, reserveschoenen en een fluojasje zijn aanraders, want we stappen soms op onverharde wegen.<br>
-- Na de wandeling verplaatsen we ons met de auto voor een landelijk ontbijt naar Nederzwalm Hof Ter Biest, Biestmolenstraat 9. Daar genieten we van een uitgebreid ontbijt: verschillende soorten ontbijtkoeken, zachte broodjes, pistolets, kaas charcuterie, gerookte zalm, vers sinaasappelsap, vruchtensappen, ontbijtgranen vers fruit, eitjes, koffie, thee, yoghurt en nog veel meer. Geert Bradt is daar onze gastheer.<br>
-<br>
-De kostprijs van het gidsen en een deel van het ontbijt wordt betaald door de Landelijke Gilde Nazareth.<br>
-Voor het ontbijt vragen wij een bijdrage van 25 EUR/ persoon over te schrijven op het gekende rekeningnummer <b>{{<icon class="fa fa-piggy-bank">}}&nbsp;BE86 7374 2100 0150</b>. Huisgenoten van ingeschreven wandelaars, maar ook andere leden die niet mee wandelen kunnen ook deelnemen aan het ontbijt achteraf.<br>
-<br>
-Inschrijven is noodzakelijk bij Peter De Bleecker tel {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:0484969007">0484 96 90 07</a> of email naar {{<icon class="fa fa-envelope">}}&nbsp;<a href="peter.debleecker@belgacom.net">peter.debleecker@belgacom.net</a> tot <b>23 maart 2024</b>.<br>
-<br>
-<br>
-<br>
-
-
-
-
-
 #### LDC 'DEN OEVER' - GAVERE
 <br>
-<b>Donderdag 28 maart</b> om 10.00 u.: Bewegen op muziek<br>
-<b>Donderdag 28 maart</b> om 13.30 u.: Spaanse les i.s.m. KISP<br>
-<b>Donderdag 28 maart</b> om 14.00 u.: Bonte baknamiddag: appelbeignets<br>
-<br>
-<b>Maandag 1 april</b> om 14.00 u.: Vergeet elkaar geen mop te vertellen. Lachen is gezond<br>
-<b>Dinsdag 2 april</b> om 13.30 u.: Lijndansen<br>
-<b>Dinsdag 2 april</b> om 14.00 u.: Portrettekenen en Spelletjesnamiddag<br>
 <b>Donderdag 4 april</b> om 14.00 u.: Samen breien en haken<br>
+<b>Maandag 8 april</b> om 14.00 u.: Kaarten i.s.m. OKRA<br>
+<b>Dinsdag 9 april</b> om 11.30 u.: Paasmenu<br>
+<b>Woensdag 10 april</b> om 14.00 u.: Bloemschikken: Lentestukje<br>
 <br>
 <br>
 <br>
@@ -113,11 +108,10 @@ Inschrijven is noodzakelijk bij Peter De Bleecker tel {{<icon class="fa fa-phone
 <br>
 <b>OKRA-TREFPUNT EKE nodigt uit...</b><br>
 <br>
-<b>Woensdag 27 maart</b> om 14.00 u. in CC De Brouwerij: Kaarten<br>
-<b>Donderdag 28 maart</b> om 14.00 u. in CC De Brouwerij: Lijndans en rummikub<br>
-<br>
-<b>Dinsdag 2 april</b> om 14.00 u. in Sporthal Nazareth: Petanque<br>
 <b>Donderdag 4 april</b> om 14.00 u. in CC De Brouwerij: Lijndans en rummikub<br>
+<b>Woensdag 10 april</b> om 14.00 u. in CC De Brouwerij: Kaarten<br>
+<b>Donderdag 11 april</b> om 09.30 u. in CC De Brouwerij: Lijndans<br>
+<b>Donderdag 11 april</b> om 13.45 u. vertrek aan de kerk: Wandelen<br>
 <br>
 <br>
 <br>
@@ -130,11 +124,12 @@ Inschrijven is noodzakelijk bij Peter De Bleecker tel {{<icon class="fa fa-phone
 <br>
 Activiteiten van maart en april 2024<br>
 <br>
-<b>Donderdag 28 maart</b> om 14.00 u. in cc Het Centrum: Lijndansen<br>
-<br>
-<b>Dinsdag 2 april</b> om 14.00 u. cc Het Centrum: Kaarten en rummikub<br>
 <b>Woensdag 3 april</b> om 14.00 u. in cc Het Centrum: Paaskoffietafel<br>
 <b>Donderdag 4 april</b> om 14.00 u. cc Het Centrum: Fietsen<br>
+<b>Maandag 8 april</b> om 13.30 u. cc Het Centrum: Wandelen<br>
+<b>Dinsdag 9 april</b> om 14.00 u. aan de Sporthal: Petanque<br>
+<b>Donderdag 11 april</b> om 14.00 u. cc De Zwaan zaal A: Lijndansen<br>
+<b>Vrijdag 12 april</b> om 14.00 u. in cc De Zwaan: Modeshow<br>
 <br>
 !!! Voor meer info: tel. {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:093855371">09 385 53 71</a><br>
 E - MAIL : {{<icon class="fa fa-envelope">}}&nbsp;<a href="okra.nazareth@gmail.com">okra.nazareth@gmail.com</a> WEB : okra-nazareth.be<br>
@@ -148,7 +143,7 @@ E - MAIL : {{<icon class="fa fa-envelope">}}&nbsp;<a href="okra.nazareth@gmail.c
 
 #### SAMANA ASPER
 <br>
-Van harte welkom op onze spelnamiddagen. Noteer volgende datums : <b>14 maart</b>, <b>18 april</b> en <b>13 juni</b> om 14.00 u.<br>
+Van harte welkom op onze spelnamiddagen. Noteer volgende datums : <b>18 april</b> en <b>13 juni</b> om 14.00 u.<br>
 <br>
 De Bingo-namiddag gaat door op <b>25 april</b> om 14.00 u.<br>
 <br>
@@ -171,9 +166,21 @@ Graag inschrijven bij Ann Bergez: Haagstraat 70, {{<icon class="fa fa-phone">}}&
 #### SAMANA NAZARETH
 <br>
 <b>Vrijdag 5 april</b> om 14.00 u. In CC Het Centrum: Paasfeest<br>
+<b>Dinsdag 9 april</b> om 14.00 u. In CC Het Centrum: Crea<br>
 <br>
 <br>
 <br>
+<br>
+<br>
+<br>
+
+
+
+
+
+#### VBS NAZARETH: BOUWWERKEN!
+<br>
+<figure><img src="images/pb-ne.jpg" alt=" Etentje ten voordele van de bouwwerken © VBS NAZARETH" style="max-height: 500px; max-width: 500px;" /><figcaption> Etentje ten voordele van de bouwwerken © VBS NAZARETH</figcaption></figure><br>
 <br>
 <br>
 <br>

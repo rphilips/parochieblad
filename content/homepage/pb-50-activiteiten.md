@@ -34,33 +34,13 @@ Inkom leden: 18 EUR , niet-leden: 25,00 EUR - min 16 jaar: 12,00 EUR.<br>
 <br>
 <b>Yoga</b> : Elke dinsdag t.e.m. <b>18 juni</b>. Aanvang om 19.30 u.<br>
 <br>
-<b>Gezellig haken en breien</b> : Woensdag <b>17 april</b> , <b>22 mei</b> en <b>26 juni</b> om 19.30 u.<br>
+<b>Gezellig haken en breien</b> : Woensdag <b>22 mei</b> en <b>26 juni</b> om 19.30 u.<br>
 <br>
 <b>Bloemschikken</b><br>
 Data volgende lessen: <b>20 juni</b> (zomercreatie), <b>10 oktober</b> (herfst) en <b>12 december 2024</b> (kerst) telkens om 19.30 u.<br>
 <br>
 Alle activiteiten gaan door in het OC-Martinus, Hulstraat 27, Asper<br>
 Info en inschrijvingen bij Rita Petereyns op {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:0479675175">0479 67 51 75</a> of {{<icon class="fa fa-envelope">}}&nbsp;<a href="ritapetereyns@gmail.com">ritapetereyns@gmail.com</a><br>
-<br>
-<b>Lentewandeling</b> in domein Borgwal Vurste : zaterdag <b>20 april 2024</b><br>
-<br>
-Samenkomst om 14.00 u. stipt op parking OC Martinus, Hulstraat 27 te Asper<br>
-<br>
-We rijden van hieruit met zo weinig mogelijk wagens naar Vurste!<br>
-Omstreeks 14.15 u. aankomst en start wandeling in Domein Borgwal, Leenstraat 31 te Vurste<br>
-Wandeling doorheen het parkdomein met aandacht voor fauna en flora.<br>
-<br>
-Kennismaking met de bomen, struiken, planten en vogels in dit uniek Gavers wandelplekje!<br>
-<br>
-Verneem ook iets over historische bouwwerken op deze plek.<br>
-Wandelafstand: zo'n 3km gespreid over 2uurtjes wandel-, lees- en luisterplezier.<br>
-Voorzie je wel van een stevige wandelschoen, want parkpaden zijn soms wat modderig.<br>
-Vergeet niet je fototoestel of verrekijker mee te brengen om nog meer te genieten van deze natuur.<br>
-We zijn terug omstreeks 17.00 u. aan het OC Martinus in de Hulstraat 27 te Asper<br>
-Hopelijk maak je daarna nog wat tijd vrij voor een drankje en een korte nabespreking in het OC<br>
-<br>
-We vragen iedere wandelaar die wenst deel te nemen in te schrijven tegen maandag <b>15 april 2024</b> bij Marleen Troubleyn. Deze activiteit is gratis!<br>
-{{<icon class="fa fa-envelope">}}&nbsp;<a href="Troubleynma@telenet.be">Troubleynma@telenet.be</a> of {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:093240942">09 324 09 42</a><br>
 <br>
 <br>
 <br>
@@ -95,18 +75,6 @@ Info bij Micheline Vandecauter via {{<icon class="fa fa-phone">}}&nbsp;<a href="
 
 
 
-#### FERM DIKKELVENNE
-<br>
-<b>Donderdag 18 april</b> om 19.00 u. in zaal Bronnendal: Bloemschik workshop, De prijs voor het materiaal bedraagt EUR 20. Het lesgeld komt op 10 EUR voor leden en 13 EUR voor niet-leden. We geven er de voorkeur aan om cash te betalen. Inschrijven kan ten laatste tot zaterdag <b>9 april 2024</b> bij Noella Carreel op tel.nr. {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:093845939">09 384 59 39</a> of via mail naar {{<icon class="fa fa-envelope">}}&nbsp;<a href="noellacarreel@gmail.com">noellacarreel@gmail.com</a><br>
-<br>
-<br>
-<br>
-<br>
-
-
-
-
-
 #### KWB NAZARETH-EKE
 <br>
 Bedevaart Oostakker: woensdag <b>1 mei 2024</b><br>
@@ -131,15 +99,12 @@ Info: Dirk Le Roy {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:093854460">09
 
 #### LDC 'DEN OEVER' - GAVERE
 <br>
-<b>Woensdag 17 april</b> om 08.30 u.: Ontbijt<br>
-<b>Woensdag 17 april</b> om 14.00 u.: Diamond painting<br>
-<b>Donderdag 18 april</b> om 10.00 u.: Bewegen op muziek<br>
-<b>Donderdag 18 april</b> om 13.30 u.: Spaanse les<br>
-<b>Donderdag 18 april</b> om 14.00 u.: Bingo<br>
-<b>Maandag 22 april</b> om 14.00 u.: Kaarten i.s.m. OKRA<br>
-<b>Dinsdag 23 april</b> om 10.00 u.: Yoga<br>
-<b>Dinsdag 23 april</b> om 14.00 u.: Lijndansen, Portrettekenen, Spelletjesnamiddag<br>
 <b>Woensdag 24 april</b> om 14.00 u.: UNO-namiddag<br>
+<b>Donderdag 25 april</b> om 09.00 u.: Spaanse les<br>
+<b>Donderdag 25 april</b> om 10.00 u.: Bewegen op muziek<br>
+<b>Donderdag 25 april</b> om 14.00 u.: Bonte baknamiddag: Oliebollen<br>
+<b>Dinsdag 30 april</b> om 10.00 u.: Yoga<br>
+<b>Dinsdag 30 april</b> om 14.00 u.: Lijndansen, portrettekenen, spelletjesnamiddag<br>
 <br>
 <br>
 <br>
@@ -182,11 +147,14 @@ De Kringwinkel is iedere werkdag open van 10 tot 18 uur en op zaterdag tot 17 uu
 <br>
 <b>OKRA-TREFPUNT EKE nodigt uit...</b><br>
 <br>
-<b>Donderdag 18 april</b> om 14.00 u. in CC De Brouwerij: Lijndans en rummikub<br>
 <b>Woensdag 24 april</b> om 14.00 u. in CC De Brouwerij: Kaarten<br>
 <b>Donderdag 25 april</b> om 09.30 u. in CC De Brouwerij: Lijndans<br>
 <b>Donderdag 25 april</b> om 13.45 u. vertrek aan de kerk: Wandelen<br>
 <b>Vrijdag 26 april</b> om 19.00 u. in WZC de Lichtervelde: Lentequiz tvv vzw Lisanga<br>
+<b>Maandag 29 april</b> om 13.30 u. in CC De Brouwerij: Crea-atelier<br>
+<b>Dinsdag 30 april</b> om 14.00 u. in Sporthal Nazareth: Petanque<br>
+<br>
+<b>Donderdag 2 mei</b> om 14.00 u. in CC De Brouwerij: Lijndans en rummikub<br>
 <br>
 <br>
 <br>
@@ -197,12 +165,15 @@ De Kringwinkel is iedere werkdag open van 10 tot 18 uur en op zaterdag tot 17 uu
 
 #### OKRA TREFPUNT NAZARETH
 <br>
-Activiteiten van maart en april 2024<br>
+Activiteiten van april en mei 2024<br>
 <br>
-<b>Donderdag 18 april</b> om 14.00 u. cc Het Centrum: Fietsen<br>
-<b>Dinsdag 23 april</b> om 14.00 u. aan de Sporthal: Petanque<br>
 <b>Donderdag 25 april</b> om 06.30 u. op de parking achter de sporthal: 4-daagse reis naar Duitsland: donderdag 25 - zondag <b>28 april 2024</b><br>
 <b>Donderdag 25 april</b> om 14.00 u. in cc De Brouwerij: Lijndansen<br>
+<b>Maandag 29 april</b> om 09.30 u. in cc Het Centrum: Bestuursvergadering<br>
+<b>Dinsdag 30 april</b> om 14.00 u. cc Het Centrum: Crea<br>
+<b>Dinsdag 30 april</b> om 14.00 u. cc Het Centrum: Kaarten en rummikub<br>
+<br>
+<b>Donderdag 2 mei</b> om 14.00 u. aan cc Het Centrum: Fietsen<br>
 <br>
 !!! Voor meer info: tel. {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:093855371">09 385 53 71</a><br>
 E - MAIL : {{<icon class="fa fa-envelope">}}&nbsp;<a href="okra.nazareth@gmail.com">okra.nazareth@gmail.com</a> WEB : okra-nazareth.be<br>

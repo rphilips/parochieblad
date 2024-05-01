@@ -11,45 +11,41 @@ header_menu: true
 
 
 
-#### "IK BEN DE WARE WIJNSTOK" (EVANGELIELEZING 5E ZONDAG VAN PASEN)
+#### VIERINGEN VAN DE KOMENDE WEKEN
 <br>
-<figure><img src="images/pb-vir.jpg" alt=" Jezus de ware wijnstok © Thomas godsdienstonderwijs" style="max-height: 500px; max-width: 500px;" /><figcaption> Jezus de ware wijnstok © Thomas godsdienstonderwijs</figcaption></figure><br>
+EERSTE COMMUNIES<br>
+- Eke: zaterdag <b>4 mei</b> om 10 uur<br>
+- Asper: zaterdag <b>4 mei</b> om 15 uur<br>
+- Gavere: zondag <b>5 mei</b> om 9 uur<br>
+- Nazareth: donderdag <b>9 mei</b> om 10.30 uur<br>
 <br>
-Jezus zei tegen zijn leerlingen: "Ik ben de wijnstok van Gods druivenplant en jullie zijn de takken. God is de tuinman, de wijngaardenier".<br>
+DINSDAG <b>7 mei</b> - KRUISDAGEN<br>
+- Asper: 19 uur (OC Sint-Martinus)<br>
+- Nazareth: 20 uur (Hoeve Royakkers Kortrijksestwg 12)<br>
 <br>
-In het evangelie van de 5e zondag van Pasen wordt dit beeld gebruikt om de verbondenheid uit te drukken tussen God, Jezus Christus en zijn leerlingen. Jezus is de ware wijnstok, de leerlingen (dus ook wij) zijn de ranken en God is de tuinman, de zorgzame wijngaardenier. Los van de wijnstok verdorren de ranken en brengen geen vrucht voort. Christenen, die niet leven van hun verbondenheid met de verrezen Heer, zijn aan het verdorren. Ze hebben dan geen voeling met de ware bron van hun leven. Met andere woorden: als je in je leven niet verbonden leeft met Jezus Christus, zul je niets van zijn Blijde Boodschap begrijpen en beleven, laat staan uitdragen naar anderen.<br>
+DONDERDAG <b>9 mei</b> - O.-L.-H. HEMELVAART<br>
+- Gavere: hoogdagviering om 9 uur<br>
 <br>
-<b>Bezinning</b><br>
+VORMSELS<br>
+- Eke: donderdag <b>9 mei</b> om 9 uur<br>
+Vormheer: Vic. Gen. Joris Polfliet<br>
+- Asper: zaterdag <b>11 mei</b> om 14.30 uur<br>
+Vormheer: E.H. Tony De Jans<br>
+- Nazareth: zaterdag <b>11 mei</b> om 17 uur<br>
+Vormheer: E.H. Tony De Jans<br>
+- Gavere: zondag <b>12 mei</b> om 9 uur<br>
+Vormheer: Bisschop Lode Van Hecke<br>
 <br>
-<i>Het zijn prachtige beelden: </i><br>
-<i>God als wijnbouwer,</i><br>
-<i>de eigenaar die zorg draagt</i><br>
-<i>en die levenskansen geeft.</i><br>
-<i>Jezus als de enige echte wijnstok,</i><br>
-<i>die zijn leven doorgeeft.</i><br>
-<i>En zij die op die wijnstok geënt zijn</i><br>
-<i>dragen uiteindelijk vruchten.</i><br>
-<i>Deze beelden zeggen alles</i><br>
-<i>over het bij elkaar horen</i><br>
-<i>van God, Jezus en de mensen.</i><br>
-<i>Het verwoordt</i><br>
-<i>dat alleen leven in verbondenheid</i><br>
-<i>iets waar maakt van het Rijk van God.</i><br>
-<i>Om uit te kunnen groeien</i><br>
-<i>tot een mens van God</i><br>
-<i>mogen we onze kracht en ons voorbeeld</i><br>
-<i>halen bij die Man van Nazareth.</i><br>
-<i>Hij is een nooit uitgeputte Bron van leven en van inspiratie.</i><br>
-<i>Los van Hem wordt ons leven</i><br>
-<i>dor, droog en vruchteloos.</i><br>
-<i>Maar in verbondenheid met Hem,</i><br>
-<i>puttend uit zijn Geest,</i><br>
-<i>zijn we bij de Wijnbouwer in goede handen.</i><br>
-<i>Geënt op het leven van Jezus</i><br>
-<i>levert ons leven vruchten af</i><br>
-<i>van liefde, van goedheid</i><br>
-<i>en vrede in overvloed.</i><br>
-(Wim Holterman osfs)<br>
+ZATERDAG <b>18 mei</b><br>
+- Eke: 18 uur eucharistie<br>
+<br>
+ZONDAG <b>19 mei</b> - PINKSTEREN<br>
+- Gavere: hoogdagviering om 9 uur<br>
+- Nazareth: hoogdagviering om 10.30 uur<br>
+<br>
+ZONDAG <b>26 mei</b> - DRIEVULDIGHEIDSZONDAG<br>
+- Gavere: hoogdagviering om 9 uur<br>
+- Nazareth: hoogdagviering om 10.30 uur<br>
 <br>
 <br>
 <br>
@@ -58,45 +54,158 @@ In het evangelie van de 5e zondag van Pasen wordt dit beeld gebruikt om de verbo
 
 
 
-#### MEIMAAND - MARIAMAAND
+#### DOOPSEL
 <br>
-<figure><img src="images/pb-sed.jpg" alt=" Mariakapelletje kruisig St.-Rochuswegel-Vossestraat Gavere © C. Piens" style="max-height: 500px; max-width: 500px;" /><figcaption> Mariakapelletje kruisig St.-Rochuswegel-Vossestraat Gavere © C. Piens</figcaption></figure><br>
+Hebben het doopselsacrament ontvangen:<br>
 <br>
-Als je er op let, vind je nog tal van kapelletjes met Mariabeeldjes! Soms is het een eenvoudig kastje aan een boom of een nis in een huisgevel. Soms is het een echt gebouwtje ergens op de hoek van twee straten. In de meimaand staan er hier en daar bloemen bij Maria's beeltenis. Meimaand, Mariamaand... Wat zit daar achter? Wat is er zo bijzonder aan Maria? Waarom kom je haar beeld toch nog zo vaak tegen?<br>
+Mila Bourgoignie<br>
 <br>
-Maria was de moeder van Jezus. Dat is zeker niet gemakkelijk geweest. Vanaf het begin heeft ze haar hart opengesteld voor God. Ze begreep misschien niet altijd wat er precies gebeurde, maar ze bleef trouw: aan God, aan haar zoon Jezus, aan de apostelen en later aan de eerste christenen. Maria heeft JA geantwoord op de vraag van God in haar leven. Ja, dit bijzonder kind mag in mijn leven komen. Ja, ik blijf geloven in de bijzondere roeping van mijn zoon Jezus, ook al doet het soms pijn om te zien wat Hij doet. Ja, ik blijf bij Hem ook als Hij sterft. Ja, ik geloof dat we samen zijn weg moeten gaan. Ja, ik wil alle mensen dicht bij Jezus, dicht bij God brengen.<br>
+Werden gedoopt ter gelegenheid van hun eerste communie:<br>
 <br>
-Doorheen de eeuwen is Maria een voorbeeld geweest voor vele christenen. Willen we niet allemaal trouw zijn aan ons gegeven woord? Trouw aan de mensen rondom ons? Soms lukt dat, soms niet. Bij Maria vinden we steun om vol te houden, net zoals zij dat gedaan heeft. Maria kon zo leven omdat ze haar vertrouwen in God had gesteld. Door te kijken naar Maria leren mensen meer te vertrouwen op God in hun leven.<br>
+De Greve Liam<br>
+Van Baeveghem Lily<br>
+De Smet Rune<br>
+Van dekende Emiel<br>
+Rosemont Stey<br>
+Espina Dylan<br>
+De Ruyck Astor<br>
 <br>
-Maria wordt bij christenen al eeuwenlang vereerd. Zij is een heilige die dicht bij de gewone mensen staat en tegelijk dicht bij Jezus, dicht bij God. Heel wat vaders en moeders vonden steun bij Maria. Ze vertelden haar hun zorgen. Door tot Maria te bidden, kwamen ze dichter bij God.<br>
 <br>
-<b>Gebed tot Maria</b><br>
 <br>
-<i>Maria,</i><br>
-<i>in geloof bidden wij tot U</i><br>
-<i>bewaar en koester in Uw moederhart</i><br>
-<i>alles wat wij U toevertrouwen: </i><br>
-<i>de vele kleine zorgen,</i><br>
-<i>de bedrukte vragen die blijven hangen,</i><br>
-<i>de weemoed van wat we niet begrijpen,</i><br>
-<i>de pijn van de vertrapte goedheid,</i><br>
-<i>het zoeken naar genegenheid en begrip.</i><br>
-<i>Maria,</i><br>
-<i>moeder van Jezus,</i><br>
-<i>wees ons nabij met Uw woord en Uw hart</i><br>
-<i>als moeheid en machteloosheid ons lamleggen,</i><br>
-<i>als eenzaamheid zwaar drukt,</i><br>
-<i>als opeenhopende last ons te boven gaat,</i><br>
-<i>als gelovig enthousiasme slinkt en wankelt,</i><br>
-<i>als de trouw aan Uw Zoon dreigt stuk te lopen</i><br>
-<i>Moeder,</i><br>
-<i>wij danken U</i><br>
-<i>dat Gij ons in dit bidden steunt.</i><br>
-<i>Bescherm in uw goedheid allen die U zoeken,</i><br>
-<i>bemoedig hen die met veel zorgen zitten,</i><br>
-<i>bewaar allen die U nu al jaren vergeten zijn</i><br>
-<i>en ook ons die nu tot U bidden.</i><br>
-<i>Amen.</i><br>
+
+
+
+
+
+#### OVERLIJDEN
+<br>
+We namen in de kerk afscheid van:<br>
+<br>
+<i>Agnes Bracke</i>, 87 j., weduwe Jean-Pierre De Preester<br>
+<i>Monique Van Den Haute</i>, 85 jaar, weduwe van Hector Van Syngel uit Dikkelvenne<br>
+<i>Michel Detollenaere</i>, 83 j., echtg. Alma Willems, uit Vurste<br>
+<i>Lydia D'Heuvaert</i>, 88 j., weduwe Maurice Sprangers, uit Gavere<br>
+<br>
+<br>
+<br>
+
+
+
+
+
+#### EERSTE COMMUNIE
+<br>
+<figure><img src="images/pb-tu.jpg" alt=" Eerste communie © Kerknet" style="max-height: 500px; max-width: 500px;" /><figcaption> Eerste communie © Kerknet</figcaption></figure><br>
+<br>
+Eke: Zaterdag <b>4 mei</b> om 10.00 u.<br>
+Asper: zaterdag <b>4 mei</b> om 15.00 u.<br>
+Gavere: zondag <b>5 mei</b> om 09.00 u.<br>
+Nazareth: Donderdag <b>9 mei</b> (Hemelvaart) om 10.30 u.<br>
+<br>
+Onze eerste communicantjes kijken met groot verlangen uit naar het eerste weekend van de meimaand want dan zijn zij de sterretjes; zij doen hun eerste communie.<br>
+<br>
+De eerste communie is één van de drie initiatiesacramenten in de katholieke Kerk. Deze zijn het doopsel, de eucharistie en het vormsel. Bij die eerste communie neemt het kind voor de eerste maal volledig deel aan de eucharistie in de kerkgemeenschap. Zij ontvangen voor de allereerste keer de hostie, het 'Lichaam van Christus'. Op die leeftijd zijn deze kinderen in staat zich ontvankelijk te stellen voor de liefde van God en van Jezus die het brood breekt. Aan de viering van de eerste communie gaat een periode van voorbereiding vooraf waarin de kinderen catechese krijgen over de betekenis van de communie en de eucharistie - weliswaar op hun leeftijdsniveau.  De kinderen die de eerste communie willen ontvangen moeten wel gedoopt<br>
+zijn.<br>
+<br>
+<b>Eerste communicanten Asper</b><br>
+<br>
+Comère Héloïse, De Cnuydt Matiz, De Roose Lotte, De Vrieze Xivenne, Dierick Lisa, Lebrun Esmee, Tembuyser Amilie, Van Cauwenberge Elise, Van de Moortele Aurelie, Van de Velde Lucas, Van Den Borre Senne, Van Der Beken Owen, Vanhaecke Cesar<br>
+<br>
+<b>Eerste communicanten Gavere</b><br>
+<br>
+Balcaen Pauline, Biesemans Babette, Bossaer Imke, Buyck Sienna, De Baets Amelie, De Bie Ryan, De Borger Arne, De Greve Liam, De Groote Len, De La Riviere Feline, De Ruyck Astor, De Rycke Marie Julie, De Smet Rune, De Witte Laurens, Gelas Faber, Hofman Céleste, Lammens Gaston, Lammens Louise, Lamont Miel, Leyman Elisabeth Jeanine, Mehuys Géraldine, Moerman Daniella, Rasemont Sky, Redant Jonas, Schollaert Florine, Swinnen Manuel, Tavernier Mila, Temmerman Vince, Van de Moortele Lena, Van Den Meerschaut Vika, Van Meirhaeghe Clara, Vandevelde Esmée, Vlerick Bo, Ysebaert Lore,<br>
+<br>
+<br>
+<br>
+
+
+
+
+
+#### VORMSEL: ONTVANG HET ZEGEL VAN DE HEILIGE GEEST, DE GAVE GODS
+<br>
+<figure><img src="images/pb-ne.jpg" alt=" Vormsel © Federatie Kana" style="max-height: 500px; max-width: 500px;" /><figcaption> Vormsel © Federatie Kana</figcaption></figure><br>
+<br>
+- Eke: donderdag <b>9 mei</b> om 09.00 u. - Vormheer: Vic. Gen. Joris Polfliet<br>
+- Asper: zaterdag <b>11 mei</b> om 14.30 u. - Vormheer: E.H. Tony De Jans<br>
+- Nazareth: zaterdag <b>11 mei</b> om 17.00 u. - Vormheer: E.H. Tony De Jans<br>
+- Gavere: zondag <b>12 mei</b> om 09.00 u. - Vormheer: Bisschop Lode Van Hecke<br>
+<br>
+In het weekend van <b>11 december</b> mei tekenen E.H. Tony De Jans (in Asper) en Bisschop Lode Van Hecke (in Gavere) onze kandidaat-vormelingen met het zegel van de Heilige Geest. Het sacrament van het vormsel is een belangrijke stap in de geloofsgroei van jongeren en iets waar je in alle vrijheid voor kiest. Met het vormsel hernieuwen de vormelingen de doopbeloften en wordt van hen verwacht dat ze zich verbonden weten met de geloofsgemeenschap en bereid zijn het geloof daadwerkelijk te beleven. Een grote opdracht die een heuse voorbereiding vraagt. Als basisinitiatie in de beleving van het geloof volgen de jongeren een aantal maanden vormselcatechese. Zo kunnen zij ervaren dat het evangelie het leven van mensen rijker kan maken. Het authentieke geloofsgetuigenis van onze catechisten Chris, Christiane, Liesbeth en Rita en van andere gelovigen zal voor hen de leidraad zijn bij het thuiskomen in de drie grote dimensies van de gelovig leven nl. de dienst aan de wereld, de liturgie en de verkondiging en verdieping van het geloof.<br>
+<br>
+Deze basisinitiatie kan voor sommige jongeren een aanzet zijn om de gave van het geloof stap voor stap een plaats te geven in hun leven. Voor anderen zal dat niet het geval zijn. Dat betekent niet dat wij als kerkgemeenschap en als catechisten mislukt zijn. Wij hebben een dienst bewezen aan het levensverhaal van jonge mensen en blijven geloven dat Gods Woord ook in hun leven vruchten zal doen ontspruiten.<br>
+<br>
+<b>Vormelingen Asper</b><br>
+<br>
+Attah Saow Lucky Al Yeboah, Boddaert Mona, Cockroft Alicia, De Vrieze Charlotte, De Zutter Seppe, Dierick Féline, Hoste Ilany, Pijpaert Emma, Van Caneghem Naut, Van De Velde Olivia, Van Durme Miel, Vereecken Jorit, Wandels Diego<br>
+<br>
+<b>Vormelingen Gavere</b><br>
+<br>
+Callebaut Lander, Christiaen Arno, De Clercq Sem, De Brabander Jamie, De Keukeleire Ylana, De Keyzer Gyan, De Meyer Remi, De Regge Matteo, De Schepper Mauro, De Vrieze Emile, De Vrieze Melanie, Desplenter Cyriel, Dhondt Ruben, Fernandez Dhaemer, Sasha Leandro, Geenens Keano, Kemper Oskar, Lammens Arthur, Machal Olivia, Rasschaert Julie, Renneboog Robbe, Ronca Tine, Schalck Laura, Schollier Senne, Teerlinck Nikola, Van den Berghe Bo, Van Gansbeke Stan, Van Meirhaeghe Hanne-Lotte, Van Severen Elisa, Van Syngel Olivier, Vande Putte Finn, Vandenmeersschaut Feline, Vandewalle Hugo Frans, Velghe Gabriël, Verloove Juliette, Wauters Kobe, Wauters Ilisa<br>
+<br>
+<br>
+<br>
+
+
+
+
+
+#### KRUISDAGEN
+<br>
+<figure><img src="images/pb-hi.jpg" alt=" De vruchten der aarde © Kerknet" style="max-height: 500px; max-width: 500px;" /><figcaption> De vruchten der aarde © Kerknet</figcaption></figure><br>
+<br>
+Kruisdagen zijn de maandag, dinsdag en woensdag voor Hemelvaartsdag. Het is een aloude gewoonte op die dagen, als de lente overal het land in bloei zet, om God zijn zegen te vragen over de vruchten der aarde. Generaties lang hebben boeren dat gedaan. Zij beseffen heel goed dat de mens wel kan ploegen, zaaien en bemesten, maar dat het resultaat van dat werk niet helemaal in mensenhanden ligt. Wetenschap en techniek kunnen veel helpen, maar het mysterie van het leven zelf blijft even mooi en onvatbaar voor onze ingrepen. Vanuit dat besef blijft het zinvol om in deze tijd van het jaar even halt te houden om de Schepper van al dat goeds te danken en te loven.<br>
+<br>
+<b>Groot-Gavere</b><br>
+<br>
+Naar jaarlijkse gewoonte organiseert de <b>Landelijke Gilde Asper</b> een Kruisdagenviering. Deze viering gaat door in het Ontmoetingscentrum Sint Martinus te Asper, Hulstraat 27 , op dinsdag <b>7 mei</b> om 19.00 u. Hopelijk in open lucht. Bij minder goed weer binnen.<br>
+<br>
+<b>Nazareth-Eke</b><br>
+<br>
+Op dinsdagavond <b>7 mei 2024</b> om 20.00 u. is er op het fruitteeltbedrijf van de familie Willy en Rina Royakkers-Neyens, Kortrijkseheerweg 12 A, 9810 NAZARETH<br>
+<br>
+Een H.Mis naar aanleiding van de Kruisdagen, Voor de zegening van de vruchten,de velden en de dieren.<br>
+<br>
+U bent er allen welkom om met onze buurt en de leden van Landelijke Gilde Nazareth en Ferm Nazareth deze avondmis samen te vieren.<br>
+<br>
+Graag tot dan!<br>
+Namens Landelijke Gilde, Ferm Nazareth en de familie Royakkers - Neyens<br>
+<br>
+<br>
+<br>
+
+
+
+
+
+#### HEMELVAART - 9 MEI
+<br>
+<figure><img src="images/pb-at.jpg" alt=" Hemelvaart © RK documenten" style="max-height: 500px; max-width: 500px;" /><figcaption> Hemelvaart © RK documenten</figcaption></figure><br>
+<br>
+Op Pasen vieren we dat Jezus niet dood is maar leeft vanuit het vertrouwen dat de dood niet het laatste woord heeft. De 40ste dag na Pasen vieren de christenen Hemelvaartsdag. Hemelvaart vertelt ons dat Jezus bij God leeft, maar zijn wij Hem dan volledig kwijt op aarde? Betekent dit dat de leerlingen afscheid moesten nemen van Hem en dat ze er vanaf dat moment volledig alleen voor stonden? Niets is minder waar. Door een gelovige bril is Jezus juist blijvend maar anders verbonden met ons. Jezus is inderdaad niet langer in levende lijve aanwezig, maar wel vanuit een "goddelijke tegenwoordigheid"; die Hij op Pinksteren tot uiting zal brengen door aan zijn leerlingen en aan ons "Zijn Geest" te schenken. Op Hemelvaart vieren we dat we ons gedragen mogen weten door een God. Dat "gedragen zijn" komt sterk tot uiting op momenten waarop mensen elkaar nabij zijn naar het voorbeeld van Jezus en ze zelf ervaren "ik doe dit niet helemaal alleen, er is Iemand die me kracht geeft om er te blijven zijn voor de ander".<br>
+<br>
+<br>
+<br>
+
+
+
+
+
+#### ANTIFOON TER ERE VAN MARIA
+<br>
+<i>Wij groeten u Maria,</i><br>
+<i>koningin en moeder vol goedheid.</i><br>
+<i>Bij u vinden wij het leven,</i><br>
+<i>de vreugde en heel onze hoop.</i><br>
+<i>Wij roepen u aan op onze pelgrimstocht : </i><br>
+<i>wees de lijdende mensheid nabij ;</i><br>
+<i>gedenk ons</i><br>
+<i>zie barmhartig op ons neer</i><br>
+<i>en leid ons door dit leven</i><br>
+<i>naar Christus, uw Zoon.</i><br>
+<i>Moeder vol goedheid en liefde,</i><br>
+<i>heilige maagd Maria.</i><br>
+(Berkel)<br>
 <br>
 <br>
 <br>
@@ -219,6 +328,8 @@ Naar jaarlijkse gewoonte organiseert de Landelijke Gilde Asper een Kruisdagenvie
 <br>
 Deze viering gaat door in het Ontmoetingscentrum Sint Martinus te Asper, Hulstraat 27 , op dinsdag <b>7 mei</b> om 19.00 u. In deze viering staat het gebed om Gods zegen over de vruchten der aarde, centraal.<br>
 <br>
+Na de viering is er mogelijkheid tot gezellig samenzijn met een drankje.<br>
+<br>
 <br>
 <br>
 
@@ -237,41 +348,6 @@ Een collecte (juist voor de eucharistieviering) zal u toelaten uw steentje bij t
 De terugweg kan gebeuren met auto's van de bedevaarders (afspreken doet u best zelf).<br>
 <br>
 De inrichter Beweging.net rekent op uw aanwezigheid.<br>
-<br>
-<br>
-<br>
-
-
-
-
-
-#### EERSTE COMMUNIE
-<br>
-Asper: zaterdag <b>4 mei</b> om 15.00 u.<br>
-Gavere: zondag <b>5 mei</b> om 09.00 u.<br>
-Eke: Zaterdag <b>4 mei</b> om 10.00 u.<br>
-Nazareth: Donderdag <b>9 mei</b> (Hemelvaart) om 10.30 u.<br>
-<br>
-<figure><img src="images/pb-ubi.jpg" alt=" Eerste communie © Kerknet" style="max-height: 500px; max-width: 500px;" /><figcaption> Eerste communie © Kerknet</figcaption></figure><br>
-<br>
-Onze eerste communicantjes kijken met groot verlangen uit naar het eerste weekend van de meimaand want dan zijn zij de sterretjes; zij doen hun eerste communie.<br>
-<br>
-De eerste communie is één van de drie initiatiesacramenten in de katholieke Kerk. Deze zijn het doopsel, de eucharistie en het vormsel. Bij die eerste communie neemt het kind voor de eerste maal volledig deel aan de eucharistie in de kerkgemeenschap. Zij ontvangen voor de allereerste keer de hostie, het 'Lichaam van Christus'. Op die leeftijd zijn deze kinderen in staat zich ontvankelijk te stellen voor de liefde van God en van Jezus die het brood breekt. Aan de viering van de eerste communie gaat een periode van voorbereiding vooraf waarin de kinderen catechese krijgen over de betekenis van de communie en de eucharistie - weliswaar op hun leeftijdsniveau.  De kinderen die de eerste communie willen ontvangen moeten wel gedoopt zijn.<br>
-<br>
-<br>
-<br>
-
-
-
-
-
-#### SYMBOLIEK VAN HET MEIKLOKJE
-<br>
-<figure><img src="images/pb-tam.jpg" alt=" Lelietje-van-dalen © Wikipedia" style="max-height: 500px; max-width: 500px;" /><figcaption> Lelietje-van-dalen © Wikipedia</figcaption></figure><br>
-<br>
-Dit bloempje dat welig tiert staat symbool voor zuiverheid, discretie en vooral geluk. Deze laatste symboliek is meteen ook belangrijk voor de 1ste mei, de dag dat we met een bosje meiklokjes geluk schenken aan al onze geliefden. Met andere woorden schenken van een boeketje meiklokjes betekent dat men voorspoed, geluk en liefde toewenst.<br>
-<br>
-Dit gebruik stamt uit 1561 toen de Franse koning Karel IX op <b>1 mei</b> aan de aanwezige hofdames meiklokjes gaf met de wens dat ze hen geluk zouden brengen. Dit welriekende bloempje is ook vaak te zien op Maria-afbeeldingen. Wat stelt dit voor? Die witte klokjes verwijzen naar de Heilige Maagd. Zij duiden op zuiverheid en nederigheid. Zo gaat ook het verhaal dat lelietjes-van-dalen zijn ontstaan uit de tranen van de heilige Maagd Maria nadat ze het graf van haar zoon had bezocht.<br>
 <br>
 <br>
 <br>

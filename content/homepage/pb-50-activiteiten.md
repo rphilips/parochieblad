@@ -11,25 +11,6 @@ header_menu: true
 
 
 
-#### DAVIDSFONDS GAVERE
-<br>
-Zondag <b>28 april</b> zijn we toe aan onze tweede editie van de Melodieuze tuinen. Een gezellige zondagvoormiddag beleving waar gemusiceerd wordt op verrassende locaties terwijl de aanwezigen culinair kunnen genieten van Gaverse streekproducten.<br>
-<br>
-Een fijne samenwerking van het Davidsfonds Gavere, Landelijke gilde Dikkelvenne-Baaigem-Vurste, KLJ Gavere en VZW de Bolster.<br>
-<br>
-Inschrijven  {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:093844430">09 384 44 30</a> {{<icon class="fa fa-envelope">}}&nbsp;<a href="Davidsfonds.gavere@gmail.com">Davidsfonds.gavere@gmail.com</a> en Lg_dikkelvenne_baaigem_vurste@hotmail.com<br>
-<br>
-Start: zondag <b>28 april</b> van 10.00 uur tot 13.00 uur<br>
-Borgwalhoeve, leenstraat 31, Vurste<br>
-Inkom leden: 18 EUR , niet-leden: 25,00 EUR - min 16 jaar: 12,00 EUR.<br>
-<br>
-<br>
-<br>
-
-
-
-
-
 #### FEMMA ASPER
 <br>
 <b>Yoga</b> : Elke dinsdag t.e.m. <b>18 juni</b>. Aanvang om 19.30 u.<br>
@@ -51,7 +32,7 @@ Info en inschrijvingen bij Rita Petereyns op {{<icon class="fa fa-phone">}}&nbsp
 
 #### FERM ASPER
 <br>
-<b>WANDELEN</b><br>
+<b>Wandelen</b><br>
 <br>
 Wekelijkse wandeltocht (+5 km)<br>
 Namiddag<br>
@@ -64,9 +45,29 @@ Waar? Start aan de voorkant van de kerk te Asper<br>
 <b>Bloemschikles</b>: Moederdag. Woensdag <b>8 mei</b> om 14.30 u. of om 19.30 u.<br>
 Info bij Christiane Devenyns op {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:0474667476">0474 66 74 76</a> of {{<icon class="fa fa-envelope">}}&nbsp;<a href="christianedevenyns@hotmail.com">christianedevenyns@hotmail.com</a><br>
 <br>
-Kookworkshop : Aspergemenu<br>
+<b>Kookworkshop : Aspergemenu</b><br>
+<br>
 Op woensdag <b>15 mei</b> om 14.30 u. of om 19.00 u. in OC Martinus, Hulstraat<br>
 Info bij Micheline Vandecauter via {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:093860859">09 386 08 59</a> of via {{<icon class="fa fa-envelope">}}&nbsp;<a href="micheline.vandecautere@gmail.com">micheline.vandecautere@gmail.com</a><br>
+<br>
+<b>Sneukeltoer : Pinkstermaandag 20 mei 2024</b><br>
+<br>
+Gezinsfietstocht (30 km) met lekkers onderweg en een broodje Breydel bij aankomst.<br>
+Start van 13.30 u. tot 14.30 u. - OC St.Martinus - Hulstraat 27 Asper<br>
+Volwassenen: EUR 14 - kinderen tot 12 jaar : EUR 7<br>
+Inschrijven voor <b>10 mei</b> met vermelding van alle namen op {{<icon class="fa fa-envelope">}}&nbsp;<a href="fermasper1923@gmail.com">fermasper1923@gmail.com</a> of op {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:0479469650">0479 46 96 50</a><br>
+<br>
+Inschrijvingen zijn pas definitief na betaling op <b>{{<icon class="fa fa-piggy-bank">}}&nbsp;BE07 7374 4201 1966</b> (Ferm Asper) met vermelding van je naam en het aantal personen.<br>
+Fiets 2-daagse op vrijdag 23 en zaterdag <b>24 augustus</b> (opgelet : wijziging datum voorkeur nog te bevestigen na overleg met hotel )!!!<br>
+<br>
+<b>Twee-daagse fietsvakantie. vrijdag 23 en zaterdag 24 augustus</b><br>
+<br>
+We verkennen de omgeving rond Roeselare (programma volgt later)<br>
+Prijs? definitieve prijs kan pas later bepaald worden<br>
+Bij interesse inschrijven voor <b>30 april</b> bij Micheline Vandecauter via {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:093860859">09 386 08 59</a> of via {{<icon class="fa fa-envelope">}}&nbsp;<a href="Micheline.vdcautere@gmail.com.">Micheline.vdcautere@gmail.com.</a><br>
+Zelf instaan voor fietstransport.<br>
+Betalen? Gelieve voor <b>30 april</b> een voorschot van EUR 50,00/persoon over te schrijven op de rekening van Ferm Asper <b>{{<icon class="fa fa-piggy-bank">}}&nbsp;BE07 7374 4201 1966</b> met vermelding "Roeselare" en van de na(a)m(en) van de ingeschrevene(n)<br>
+Opgelet: Inschrijvingen zijn pas geldig mits ontvangst van de betaling!<br>
 <br>
 <br>
 <br>
@@ -97,14 +98,16 @@ Info: Dirk Le Roy {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:093854460">09
 
 
 
-#### LDC 'DEN OEVER' - GAVERE
+#### LDC DEN OEVER - GAVERE
 <br>
-<b>Woensdag 24 april</b> om 14.00 u.: UNO-namiddag<br>
-<b>Donderdag 25 april</b> om 09.00 u.: Spaanse les<br>
-<b>Donderdag 25 april</b> om 10.00 u.: Bewegen op muziek<br>
-<b>Donderdag 25 april</b> om 14.00 u.: Bonte baknamiddag: Oliebollen<br>
-<b>Dinsdag 30 april</b> om 10.00 u.: Yoga<br>
-<b>Dinsdag 30 april</b> om 14.00 u.: Lijndansen, portrettekenen, spelletjesnamiddag<br>
+<b>Donderdag 2 mei</b> om 10.00 u.: Bewegen op muziek<br>
+<b>Donderdag 2 mei</b> om 13.30 u.: Spaanse les I.s.m. KISP<br>
+<b>Donderdag 2 mei</b> om 14.00 u.: Samen breien - Granny Squares haken<br>
+<b>Maandag 6 mei</b> om 14.00 u.: Kaarten i.s.m. OKRA<br>
+<b>Dinsdag 7 mei</b> om 10.00 u.: Yoga<br>
+<b>Dinsdag 7 mei</b> om 14.00 u.: Lijndansen, portrettekenen, Spelletjesnamiddag<br>
+<b>Woensdag 8 mei</b> om 08.30 u.: Ontbijt<br>
+<b>Woensdag 8 mei</b> om 14.00 u.: UNO - namiddag<br>
 <br>
 <br>
 <br>
@@ -147,14 +150,8 @@ De Kringwinkel is iedere werkdag open van 10 tot 18 uur en op zaterdag tot 17 uu
 <br>
 <b>OKRA-TREFPUNT EKE nodigt uit...</b><br>
 <br>
-<b>Woensdag 24 april</b> om 14.00 u. in CC De Brouwerij: Kaarten<br>
-<b>Donderdag 25 april</b> om 09.30 u. in CC De Brouwerij: Lijndans<br>
-<b>Donderdag 25 april</b> om 13.45 u. vertrek aan de kerk: Wandelen<br>
-<b>Vrijdag 26 april</b> om 19.00 u. in WZC de Lichtervelde: Lentequiz tvv vzw Lisanga<br>
-<b>Maandag 29 april</b> om 13.30 u. in CC De Brouwerij: Crea-atelier<br>
-<b>Dinsdag 30 april</b> om 14.00 u. in Sporthal Nazareth: Petanque<br>
-<br>
 <b>Donderdag 2 mei</b> om 14.00 u. in CC De Brouwerij: Lijndans en rummikub<br>
+<b>Woensdag 8 mei</b> om 14.00 u.: OKRA-Eke verwent oud-Ekenaars die nu in WZC de Lichtervelde wonen<br>
 <br>
 <br>
 <br>
@@ -167,13 +164,9 @@ De Kringwinkel is iedere werkdag open van 10 tot 18 uur en op zaterdag tot 17 uu
 <br>
 Activiteiten van april en mei 2024<br>
 <br>
-<b>Donderdag 25 april</b> om 06.30 u. op de parking achter de sporthal: 4-daagse reis naar Duitsland: donderdag 25 - zondag <b>28 april 2024</b><br>
-<b>Donderdag 25 april</b> om 14.00 u. in cc De Brouwerij: Lijndansen<br>
-<b>Maandag 29 april</b> om 09.30 u. in cc Het Centrum: Bestuursvergadering<br>
-<b>Dinsdag 30 april</b> om 14.00 u. cc Het Centrum: Crea<br>
-<b>Dinsdag 30 april</b> om 14.00 u. cc Het Centrum: Kaarten en rummikub<br>
-<br>
 <b>Donderdag 2 mei</b> om 14.00 u. aan cc Het Centrum: Fietsen<br>
+<b>Maandag 6 mei</b> om 13.30 u. aan cc Het Centrum: Wandelen<br>
+<b>Dinsdag 7 mei</b> om 14.00 u. aan de Sporthal: Petanque<br>
 <br>
 !!! Voor meer info: tel. {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:093855371">09 385 53 71</a><br>
 E - MAIL : {{<icon class="fa fa-envelope">}}&nbsp;<a href="okra.nazareth@gmail.com">okra.nazareth@gmail.com</a> WEB : okra-nazareth.be<br>
@@ -187,9 +180,7 @@ E - MAIL : {{<icon class="fa fa-envelope">}}&nbsp;<a href="okra.nazareth@gmail.c
 
 #### SAMANA ASPER
 <br>
-Van harte welkom op onze spelnamiddagen. Noteer volgende datums : <b>18 april</b> en <b>13 juni</b> om 14.00 u.<br>
-<br>
-De Bingo-namiddag gaat door op <b>25 april</b> om 14.00 u.<br>
+Van harte welkom op onze spelnamiddagen. Noteer volgende datum : <b>13 juni</b> om 14.00 u.<br>
 <br>
 Deze gezellige bijeenkomsten vinden plaats in het OC-Martinus in de Hulstraat te Asper.<br>
 Graag inschrijven bij Ann Bergez: Haagstraat 70, {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:0477661859">0477 66 18 59</a> of {{<icon class="fa fa-envelope">}}&nbsp;<a href="annbergez@gmail.com">annbergez@gmail.com</a><br>

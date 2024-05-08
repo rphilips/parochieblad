@@ -11,36 +11,6 @@ header_menu: true
 <br>
 <br>
 
-##### Donderdag 2 mei 2024  
-<dl><dt>&nbsp;</dt><dd>H. Athanasius, bisschop en kerkleraar<br></dd><dt><b>08.00 u. Eke:</b></dt><dd>*GEEN eucharistieviering*</dd>
-<dt><b>10.00 u. Gavere:</b></dt><dd>Uitvaart Michel Detollenaere</dd>
-</dl>
-
-##### Vrijdag 3 mei 2024  
-<dl><dt>&nbsp;</dt><dd>HH. Filippus en Jacobus, apostelen<br></dd><dt><b>08.00 u. Eke:</b></dt><dd>*GEEN eucharistieviering*</dd>
-<dt><b>10.00 u. Gavere:</b></dt><dd>Uitvaart Lydia D'Heuvaert</dd>
-</dl>
-
-##### Zaterdag 4 mei 2024  
-<dl><dt><b>10.00 u. Eke:</b></dt><dd>Eerste Communie<br>Lectoren: Kinderen</dd>
-<dt><b>15.00 u. Asper:</b></dt><dd>Eerste Communie<br>Lectoren: Kinderen</dd>
-<dt><b>18.00 u. Eke:</b></dt><dd>E.H. Pastoor Adrien D'Hooghe</dd>
-</dl>
-
-##### Zondag 5 mei 2024  
-<dl><dt>&nbsp;</dt><dd>6e Zondag van Pasen<br></dd><dt><b>09.00 u. Gavere:</b></dt><dd>Eerste Communie<br>Lectoren: Kinderen</dd>
-<dt><b>10.30 u. Nazareth:</b></dt><dd>H. Pater Pio<br>Jgt. |Adrienne Schietse en familie|<br><i>Lector: Martin Dhaenens</i></dd>
-</dl>
-
-##### Maandag 6 mei 2024  
-<dl><dt><b>08.00 u. Eke:</b></dt><dd>V.M.</dd>
-</dl>
-
-##### Dinsdag 7 mei 2024  
-<dl><dt><b>19.00 u. Asper:</b></dt><dd>Kruisdagviering (OC Sint-Martinus)</dd>
-<dt><b>20.00 u. Nazareth:</b></dt><dd>Kruisdagviering (Hoeve Royakkers Kortrijksesteenweg 12)</dd>
-</dl>
-
 ##### Donderdag 9 mei 2024  
 <dl><dt>&nbsp;</dt><dd>Hemelvaart van de Heer<br></dd><dt><b>09.00 u. Eke:</b></dt><dd>Vormsel</dd>
 <dt><b>09.00 u. Gavere:</b></dt><dd>Hoogdagviering<br><i>Lector: Conny Maes</i></dd>
@@ -49,6 +19,7 @@ header_menu: true
 
 ##### Vrijdag 10 mei 2024  
 <dl><dt>&nbsp;</dt><dd>H. Damiaan de Veuster, priester<br></dd><dt><b>08.00 u. Eke:</b></dt><dd>Overledenen</dd>
+<dt><b>10.00 u. Nazareth:</b></dt><dd>Begrafenis Mieke Ghyselinck</dd>
 </dl>
 
 ##### Zaterdag 11 mei 2024  
@@ -58,8 +29,33 @@ header_menu: true
 </dl>
 
 ##### Zondag 12 mei 2024  
-<dl><dt>&nbsp;</dt><dd>7e Zondag van Pasen<br></dd><dt><b>09.00 u. Gavere:</b></dt><dd>Vormsel<br>Lectoren: Vormelingen</dd>
+<dl><dt>&nbsp;</dt><dd>7e Zondag van Pasen<br>Mediazondag - Omhaling voor kerkelijke communicatiemiddelen<br></dd><dt><b>09.00 u. Gavere:</b></dt><dd>Vormsel<br>Lectoren: Vormelingen</dd>
 <dt><b>10.30 u. Nazareth:</b></dt><dd>Jgt. |André D'Oosterlinck, echtg. Beatrijs De Reu|<br><i>Lector: Prosper De Lepeleire</i></dd>
+</dl>
+
+##### Maandag 13 mei 2024  
+<dl><dt>&nbsp;</dt><dd>Onze-Lieve-Vrouw van Fátima<br></dd><dt><b>08.00 u. Eke:</b></dt><dd>V.M.</dd>
+</dl>
+
+##### Dinsdag 14 mei 2024  
+<dl><dt>&nbsp;</dt><dd>H. Mattias, apostel<br></dd><dt><b>08.00 u. Eke:</b></dt><dd>Overleden ouders en zus</dd>
+</dl>
+
+##### Donderdag 16 mei 2024  
+<dl><dt><b>08.00 u. Eke:</b></dt><dd>Eucharistie</dd>
+</dl>
+
+##### Vrijdag 17 mei 2024  
+<dl><dt><b>08.00 u. Eke:</b></dt><dd>Bijzondere intentie</dd>
+</dl>
+
+##### Zaterdag 18 mei 2024  
+<dl><dt>&nbsp;</dt><dd>H. Johannes I, paus en martelaar<br></dd><dt><b>18.00 u. Eke:</b></dt><dd>Etienne Clemmen en echtg. Martha Corijn en overl. ouders, schoonouders en familie<br>Sylvain Matthys, echtg. Yvonne De Smet, ouders, schoonouders en familie</dd>
+</dl>
+
+##### Zondag 19 mei 2024  
+<dl><dt>&nbsp;</dt><dd>Pinksteren<br></dd><dt><b>09.00 u. Gavere:</b></dt><dd>Hoogdagviering<br>Jaargetijde voor Pastoor Eddy Le Beer<br>Eeuwigdurend voor P. De Vreese (3)<br><i>Lector: Dries Biesemans</i></dd>
+<dt><b>10.30 u. Nazareth:</b></dt><dd>Eucharistie<br><i>Lector: Jo Buysse</i></dd>
 </dl>
 <br>
 <br>

@@ -11,52 +11,11 @@ header_menu: true
 
 
 
-#### OVERLIJDEN
+#### NAZARETH: EERSTE COMMUNIE EN VORMSEL
 <br>
-We namen in de kerk afscheid van:<br>
+<figure><img src="images/pb-vir.jpg" alt=" Versiering van de kerk van Nazareth © Rita Van Oost" style="max-height: 500px; max-width: 500px;" /><figcaption> Versiering van de kerk van Nazareth © Rita Van Oost</figcaption></figure><br>
 <br>
-<i>Mieke Ghyselinck</i>, 48 j., Nazareth<br>
-<br>
-<br>
-<br>
-
-
-
-
-
-#### VIERINGEN VAN DE KOMENDE WEKEN
-<br>
-DONDERDAG <b>9 mei</b> - O.-L.-H. HEMELVAART<br>
-- Eke: Vormselviering om 9 uur<br>
-- Gavere: hoogdagviering om 9 uur<br>
-- Nazareth: eerste communie om 10.30 uur<br>
-<br>
-ZATERDAG <b>11 mei</b><br>
-- Eke: 18 uur eucharistie<br>
-<br>
-VORMSELS<br>
-- Eke: donderdag <b>9 mei</b> om 9 uur<br>
-Vormheer: Vic. Gen. Joris Polfliet<br>
-- Asper: zaterdag <b>11 mei</b> om 14.30 uur<br>
-Vormheer: E.H. Tony De Jans<br>
-- Nazareth: zaterdag <b>11 mei</b> om 17 uur<br>
-Vormheer: E.H. Tony De Jans<br>
-- Gavere: zondag <b>12 mei</b> om 9 uur<br>
-Vormheer: Bisschop Lode Van Hecke<br>
-<br>
-ZATERDAG <b>18 mei</b><br>
-- Eke: 18 uur eucharistie<br>
-<br>
-ZONDAG <b>19 mei</b> - PINKSTEREN<br>
-- Gavere: hoogdagviering om 9 uur<br>
-- Nazareth: hoogdagviering om 10.30 uur<br>
-<br>
-ZATERDAG <b>25 mei</b><br>
-- Eke: 18 uur eucharistie<br>
-<br>
-ZONDAG <b>26 mei</b> - DRIEVULDIGHEIDSZONDAG<br>
-- Gavere: hoogdagviering om 9 uur<br>
-- Nazareth: hoogdagviering om 10.30 uur<br>
+Ter gelegenheid van de Eerste Communie op OLH Hemelvaart en de zaterdag daarop het H. Vormsel hebben de bloemenmeisjes onze OLV Geboortekerk te Nazareth terug kleurig versierd.<br>
 <br>
 <br>
 <br>
@@ -65,115 +24,28 @@ ZONDAG <b>26 mei</b> - DRIEVULDIGHEIDSZONDAG<br>
 
 
 
-#### GROOT-GAVERE: EERSTE COMMUNIE - EEN DAG OM MEE TE DRAGEN, EEN LEVEN LANG
+#### VORMSELCATECHESE SINT AMANDUS EKE
 <br>
-<figure><img src="images/pb-de.jpg" alt=" Eerste communie Asper © C. Piens" style="max-height: 500px; max-width: 500px;" /><figcaption> Eerste communie Asper © C. Piens</figcaption></figure><br>
+<figure><img src="images/pb-hos.jpg" alt=" Gevormden Eke © Luc Van Nimmegeers" style="max-height: 500px; max-width: 500px;" /><figcaption> Gevormden Eke © Luc Van Nimmegeers</figcaption></figure><br>
 <br>
-<figure><img src="images/pb-an.jpg" alt=" Eerste communie Gavere © C. Piens" style="max-height: 500px; max-width: 500px;" /><figcaption> Eerste communie Gavere © C. Piens</figcaption></figure><br>
+Op donderdag <b>9 mei</b> ontvingen 12 jongeren het vormselsacrament.<br>
 <br>
-Alleen maar stralende gezichtjes en fiere mama's, papa's, oma's en opa's. De communicantjes, uitgedost in hun mooiste kleren, hebben het meer dan goed gedaan. Hun kinderhartjes waren klaar om Jezus voor het eerst te ontvangen. De goed ingeoefende tekstjes, liederen en de mooi versierde kerken in het kader van het thema "Ik ben een zonnetje" maakten het geheel af. Niet alleen de kinderen maar de catechisten en leerkrachten verdienen zeker ook een grote pluim want zonder hen was al dit moois niet mogelijk. Proficiat en hopelijk zien we jullie spoedig terug.<br>
+Aan Maja, Elena, Mathis, Wout, Warre, Daan, Sizar, Noor, Henri, Amelie, Izaura, Gemma.<br>
 <br>
+Wij bidden dat de Geest die je ontvangen hebt je niet meer met rust laat,<br>
+maar je blijft bezielen. Zodat je - stap voor stap - verder gaat op de ingeslagen weg,<br>
+hoe moeilijk die soms ook mag zijn.<br>
 <br>
+Je kreeg van God handen om te helpen, ogen om te begrijpen, verstand om klaar te zien en een hart om mee te voelen ...<br>
+dat alles om de top te bereiken en deze wereld te vullen met vriendschap, vreugde, vrede, goedheid, geduld, zachtmoedigheid en ingetogenheid.<br>
 <br>
-
-
-
-
-
-#### ZONDAG 12 MEI - MOEDERDAG
+Moge God je helpen om als echte christen te leven.<br>
 <br>
-<figure><img src="images/pb-si.jpg" alt=" Moederdag © Kerknet" style="max-height: 500px; max-width: 500px;" /><figcaption> Moederdag © Kerknet</figcaption></figure><br>
+Van harte proficiat met je Vormsel.<br>
 <br>
-<i>"Omdat God niet overal kon zijn zorgde Hij ervoor dat er moeders waren"</i>.<br>
+Vanwege het catecheseteam:<br>
 <br>
-Zij zijn altijd in de weer om zichzelf weg te cijferen, om te luisteren, te bemoedigen. In die zorgende, troostende en helpende handen, in alle kleine dingen des levens zijn zij, net zoals Maria, een toonbeeld van Gods liefde.<br>
-Proficiat aan alle mama's en vrouwen met een moederhart.<br>
-<br>
-<br>
-<br>
-
-
-
-
-
-#### PINKSTEREN - ZONDAG 19 MEI
-<br>
-<figure><img src="images/pb-ops.jpg" alt=" Pinksteren © Historianet.nl" style="max-height: 500px; max-width: 500px;" /><figcaption> Pinksteren © Historianet.nl</figcaption></figure><br>
-<br>
-Nadat op Pasen de boodschap dat Jezus verrezen is wordt gevierd en nadat dit geloof na veertig dagen wordt bekrachtigd met de Hemelvaart (Jezus leeft bij God, maar terzelfdertijd nog steeds met ons), vieren christenen 10 dagen na Hemelvaart Pinksteren. Het grote feest waarop wereldwijd wordt herdacht dat Christus zijn beloofde Geest (de derde Persoon van de Drie-eenheid) aan zijn leerlingen heeft geschonken. De leerlingen trokken daarop de wereld in om de boodschap van Jezus verder uit te dragen. Pinksteren kan daarmee ook worden beschouwd als het geboortefeest van de Kerk. Moge hetzelfde vuur dat Hem en zijn leerlingen bezielde ook ons in vuur en vlam zetten.<br>
-<br>
-Een Zalige Hoogdag<br>
-Pastoor Guy en het parochieteam<br>
-<br>
-<b>Pinkstergedachte</b><br>
-<br>
-<i>De Geest van God</i><br>
-<i>is geen spookbeeld of hersenschim.</i><br>
-<i>Hij is onder ons aanwezig,</i><br>
-<i>voelbaar en tastbaar.</i><br>
-<i>Hij spreekt soms uit de blik in onze ogen.</i><br>
-<i>Je ziet hem in de mensen</i><br>
-<i>die verdraagzaam zijn</i><br>
-<i>en respectvol omgaan met elkaar.</i><br>
-<i>Je voelt hem in dat liefdevolle gebaar</i><br>
-<i>of die hartelijke handdruk.</i><br>
-<i>De Geest van God</i><br>
-<i>is de scheppende kracht</i><br>
-<i>die bruggen slaat over de diepste kloven,</i><br>
-<i>die mensen bij elkaar brengt</i><br>
-<i>en conflicten ombuigt</i><br>
-<i>in begrip en verzoening.</i><br>
-<i>Het is de energie die bergen kan verzetten</i><br>
-<i>en mensen boven hun kleinheid uittilt</i><br>
-<i>- de levensadem van God -</i><br>
-<i>die mensen bezielt en in beweging zet.</i><br>
-<br>
-<br>
-<br>
-
-
-
-
-
-#### HERDENKING PASTOOR EDDY LE BEER
-<br>
-Pinksterzondag <b>19 mei</b> - 9 uur kerk Gavere<br>
-<br>
-<figure><img src="images/pb-us.jpg" alt=" Eddy Le Beer © Kerknet" style="max-height: 500px; max-width: 500px;" /><figcaption> Eddy Le Beer © Kerknet</figcaption></figure><br>
-<br>
-Vorig jaar, <b>18 mei 2023</b> op Hemelvaartsdag, overleed pastoor Eddy Le Beer. Gelovend in de verrijzenis leeft hij nu verder bij zijn hemelse Vader, de Bron van nieuw leven. Uit eerbied en respect voor zijn jarenlange dienstbaarheid wil de geloofsgemeenschap, 1 jaar na zijn overlijden, deze uitzonderlijke mens in herinnering brengen en hem in gebed en zang dank betonen voor wat hij voor ons betekend heeft.<br>
-<br>
-De herdenkingsviering gaat door op Pinksterzondag <b>19 mei</b> om 9 uur in "zijn" kerk van Gavere waar hij gedurende veel jaren voorganger is geweest en lief en leed gedeeld heeft met zijn medeparochianen. Moge hij in vrede rusten bij God en al zijn dierbaren.<br>
-<br>
-Ieder daartoe van harte uitgenodigd.<br>
-<br>
-<br>
-<br>
-
-
-
-
-
-#### VORMSEL: ONTVANG HET ZEGEL VAN DE HEILIGE GEEST, DE GAVE GODS
-<br>
-<figure><img src="images/pb-ne.jpg" alt=" Vormsel © Federatie Kana" style="max-height: 500px; max-width: 500px;" /><figcaption> Vormsel © Federatie Kana</figcaption></figure><br>
-<br>
-- Eke: donderdag <b>9 mei</b> om 09.00 u. - Vormheer: Vic. Gen. Joris Polfliet<br>
-- Asper: zaterdag <b>11 mei</b> om 14.30 u. - Vormheer: E.H. Tony De Jans<br>
-- Nazareth: zaterdag <b>11 mei</b> om 17.00 u. - Vormheer: E.H. Tony De Jans<br>
-- Gavere: zondag <b>12 mei</b> om 09.00 u. - Vormheer: Bisschop Lode Van Hecke<br>
-<br>
-In het weekend van <b>11 mei</b> mei tekenen E.H. Tony De Jans (in Asper) en Bisschop Lode Van Hecke (in Gavere) onze kandidaat-vormelingen met het zegel van de Heilige Geest. Het sacrament van het vormsel is een belangrijke stap in de geloofsgroei van jongeren en iets waar je in alle vrijheid voor kiest. Met het vormsel hernieuwen de vormelingen de doopbeloften en wordt van hen verwacht dat ze zich verbonden weten met de geloofsgemeenschap en bereid zijn het geloof daadwerkelijk te beleven. Een grote opdracht die een heuse voorbereiding vraagt. Als basisinitiatie in de beleving van het geloof volgen de jongeren een aantal maanden vormselcatechese. Zo kunnen zij ervaren dat het evangelie het leven van mensen rijker kan maken. Het authentieke geloofsgetuigenis van onze catechisten Chris, Christiane, Liesbeth en Rita en van andere gelovigen zal voor hen de leidraad zijn bij het thuiskomen in de drie grote dimensies van de gelovig leven nl. de dienst aan de wereld, de liturgie en de verkondiging en verdieping van het geloof.<br>
-<br>
-Deze basisinitiatie kan voor sommige jongeren een aanzet zijn om de gave van het geloof stap voor stap een plaats te geven in hun leven. Voor anderen zal dat niet het geval zijn. Dat betekent niet dat wij als kerkgemeenschap en als catechisten mislukt zijn. Wij hebben een dienst bewezen aan het levensverhaal van jonge mensen en blijven geloven dat Gods Woord ook in hun leven vruchten zal doen ontspruiten.<br>
-<br>
-<b>Vormelingen Asper</b><br>
-<br>
-Attah Saow Lucky Al Yeboah, Boddaert Mona, Cockroft Alicia, De Vrieze Charlotte, De Zutter Seppe, Dierick Féline, Hoste Ilany, Pijpaert Emma, Van Caneghem Naut, Van De Velde Olivia, Van Durme Miel, Vereecken Jorit, Wandels Diego<br>
-<br>
-<b>Vormelingen Gavere</b><br>
-<br>
-Callebaut Lander, Christiaen Arno, De Clercq Sem, De Brabander Jamie, De Keukeleire Ylana, De Keyzer Gyan, De Meyer Remi, De Regge Matteo, De Schepper Mauro, De Vrieze Emile, De Vrieze Melanie, Desplenter Cyriel, Dhondt Ruben, Fernandez Dhaemer, Sasha Leandro, Geenens Keano, Kemper Oskar, Lammens Arthur, Machal Olivia, Rasschaert Julie, Renneboog Robbe, Ronca Tine, Schalck Laura, Schollier Senne, Teerlinck Nikola, Van den Berghe Bo, Van Gansbeke Stan, Van Meirhaeghe Hanne-Lotte, Van Severen Elisa, Van Syngel Olivier, Vande Putte Finn, Vandenmeersschaut Feline, Vandewalle Hugo Frans, Velghe Gabriël, Verloove Juliette, Wauters Kobe, Wauters Ilisa<br>
+Veerle, Ria, Marleen en Hilde<br>
 <br>
 <br>
 <br>
@@ -219,16 +91,6 @@ Er kwam verval op deze samenkomsten tot buurtbewoners eind jaren '70 deze tradit
 Ook dit jaar willen we opnieuw met velen samenkomen aan onze wijkkapelletjes. We nodigen alle buurtbewoners en ook alle parochianen uit voor een kort gebedsmoment. Het begint er telkens om 20.00 uur.<br>
 De planning voor dit jaar is als volgt:<br>
 <br>
-Vrijdag <b>10 mei</b>: kapel Eeckhoutsdreef<br>
-<br>
-Maandag <b>13 mei</b>: kapel Kasteelstraat<br>
-<br>
-Dinsdag <b>14 mei</b>: kapel Nieuwlandstraat<br>
-<br>
-Woensdag <b>15 mei</b>: kapel Steinstraat<br>
-<br>
-Woensdag <b>15 mei</b>: kapel Warandestraat<br>
-<br>
 Vrijdag <b>17 mei</b>: kapel Ten Edestraat<br>
 <br>
 Dinsdag <b>21 mei</b>: kapel Huisepontweg<br>
@@ -273,16 +135,15 @@ Mochten er nog Wijkkapelletjes zijn die graag een gebedsmoment wensen neem gerus
 
 
 
-#### SINT AMANDUS EKE: VORMSELVIERING
+#### ONTMOETING MET BISSCHOP LODE
 <br>
-Donderdag <b>9 mei</b> om 09.00 u. ontvangen 12 jongens en meisjes het H.Vormsel in de Sint Amanduskerk in Eke. In deze viering zullen zij hun doopbeloften hernieuwen. Ze ontvangen het Heilig Chrisma uit de handen van de Vormheer, Vicaris-generaal Joris Polfliet, gezonden door onze bisschop Lode.<br>
+<figure><img src="images/pb-sub.jpg" alt=" ontmoeting met bisschop Lode © Christine Piens" style="max-height: 500px; max-width: 500px;" /><figcaption> ontmoeting met bisschop Lode © Christine Piens</figcaption></figure><br>
 <br>
-We wensen deze vormelingen een mooie toekomst als jong christenen waarin ze zich<br>
-geroepen voelen om te leven naar het voorbeeld van Jezus.<br>
+Na de vormselviering heeft Bisschop Lode tijd vrijgemaakt om in een gemoedelijke en ontspannen sfeer te luisteren hoe in onze nieuwe parochie in gedachten, woorden en daden gewerkt wordt om de gaven van de Geest aanwezig te brengen tot opbouw van een levende gemeenschap rond de figuur van Christus. Dat dit vandaag niet zo vanzelfsprekend is, daarvan zijn we ons bewust maar met respect, begrip en luisterbereidheid is er zoveel mogelijk om aan kerkopbouw te doen.<br>
+Om een warme gemeenschap op te bouwen is er ook nood aan een plaats waar mensen kunnen samenkomen om zuurstof en inspiratie te vinden. En daartoe is het kerkgebouw, Gods huis, een rustige inspirerende, sacrale tempel met ruimte voor gebed en verstilling. In deze context is de rol van de kerkbesturen en het centraal kerkbestuur heel belangrijk. Ervoor zorgen dat de liturgie op een eerbiedwaardige wijze kan doorgaan is een van hun taken maar eveneens dragen zij verantwoordelijkheid in het behoeden van de materieel en immaterieel erfgoed.<br>
 <br>
-De Clercq Maja, De Mulder Wout, Decock Warre, Doolaege Henri, Green Reinoso Gemma,<br>
-Herteleer Daan, Ilias Sizar, Van Cleemput Izaura, Van Glabeke Mathis, Van Overmeeren<br>
-Elena, Van Praet Noor, Van Ryckeghem Amelie.<br>
+Dank je wel Bisschop Lode voor uw eenvoud en toegankelijkheid, uw luisterbereidheid en toekomstvisie op kerk en maatschappij. De Kerk van vandaag zal niet meer de Kerk van morgen zijn. Daar moeten we ons bewust van zijn maar blijf geloven dat Gods wegen ondoorgrondelijk zijn en Hij ons verder leidt, dat geeft vertrouwen om samen door te gaan.<br>
+Deze fijne ontmoeting werd beklonken met een etentje want samen eten is een sociaal smeermiddel dat leidt tot verbondenheid wederzijds respect en waardering.<br>
 <br>
 <br>
 <br>
@@ -291,19 +152,156 @@ Elena, Van Praet Noor, Van Ryckeghem Amelie.<br>
 
 
 
-#### VORMSELCATEHESE EKE: INZAMELACTIE VOOR VZW DE TINTEN
+#### GROOT-GAVERE: HET VORMSEL, EEN FEEST!
 <br>
-de vrijwilligers in De Tinten, ondersteunen mensen zonder wettig verblijf en daklozen.<br>
-Op <b>9 mei</b> ontvangen wij het H.Vormsel in de Sint Amandus kerk in Eke.<br>
-Op deze vreugdevolle dag willen we ook aan de mensen denken die het niet zo gemakkelijk<br>
-hebben in onze maatschappij.<br>
+<figure><img src="images/pb-mox.jpg" alt=" Vormsel te Gavere © Christine Piens" style="max-height: 500px; max-width: 500px;" /><figcaption> Vormsel te Gavere © Christine Piens</figcaption></figure><br>
+<figure><img src="images/pb-aro.jpg" alt=" Vormsel te Asper © Christine Piens" style="max-height: 500px; max-width: 500px;" /><figcaption> Vormsel te Asper © Christine Piens</figcaption></figure><br>
 <br>
-Een warme oproep naar ieder van jullie !<br>
+Zaterdag 11 en zondag <b>12 mei</b> waren feestelijke dagen voor onze vormelingen en hun familie. Het was fijn om in het midden van de belangstelling te staan maar als gevormde houdt het daar niet op. Als christen leven gaat niet zomaar, daarvoor heb je geloof nodig dat God je leven richting geeft. E.H. Tony De Jans en Bisschop Lode benadrukten dat het vormselsacrament een belangrijke stap is in de geloofsgroei van deze jonge mensen. Als teken van Gods nabijheid tekenden zij hen met het Zegel van de Heilige Geest, de gave Gods. Dat geschenk van God werd voor deze jongeren duidelijk aan de hand van twee gebaren. Eerst de handoplegging: God wil hen beschermen en leiden. En daarna de zalving met het chrisma: God wil in elk van deze jongeren Zijn Geest laten doordringen zodat die Geest werkzaam in hen kan worden. Hij is een tochtgenoot, een kracht, een zekerheid dat ze er nooit alleen voor staan.<br>
 <br>
-We doen een inzamelingsactie voor De Tinten in Gent. We verzamelen toiletartikelen :<br>
-zeep, douchegel, shampoo, tandenborstels en tandpasta, scheerschuim en scheergerief,<br>
-maandverband, pampers voor de allerkleinsten.<br>
-Namens de vormelingen en catechisten,<br>
+De feestelijk versierde kerken waren figuurlijk tot de nok gevuld met familie en vrienden en zij allemaal waren er getuige van dat deze jongeren het goed hebben gedaan. De catechisten (Chris, Christiane, Liesbeth en Rita) hebben deze vormelingen tijdens de catechesemomenten ingewijd in het leven als christen. Zij hebben meegeschreven aan het levensverhaal van deze jonge mensen. De basisinitiatie die ze aanreikten kan voor sommigen een aanzet zijn om de gave van het geloof stap voor stap een plaats te geven in hun leven.<br>
+<br>
+<br>
+<br>
+
+
+
+
+
+#### PINKSTEREN - ZONDAG 19 MEI
+<br>
+<figure><img src="images/pb-vae.jpg" alt=" Pinksteren © Historianet.nl" style="max-height: 500px; max-width: 500px;" /><figcaption> Pinksteren © Historianet.nl</figcaption></figure><br>
+<br>
+Nadat op Pasen de boodschap dat Jezus verrezen is wordt gevierd en nadat dit geloof na veertig dagen wordt bekrachtigd met de Hemelvaart (Jezus leeft bij God, maar terzelfdertijd nog steeds met ons), vieren christenen 10 dagen na Hemelvaart Pinksteren. Het grote feest waarop wereldwijd wordt herdacht dat Christus zijn beloofde Geest (de derde Persoon van de Drie-eenheid) aan zijn leerlingen heeft geschonken. De leerlingen trokken daarop de wereld in om de boodschap van Jezus verder uit te dragen. Pinksteren kan daarmee ook worden beschouwd als het geboortefeest van de Kerk. Moge hetzelfde vuur dat Hem en zijn leerlingen bezielde ook ons in vuur en vlam zetten.<br>
+<br>
+Een Zalige Hoogdag<br>
+Pastoor Guy en het parochieteam<br>
+<br>
+<b>Pinkstergedachte</b><br>
+<br>
+<i>De Heilige Geest</i><br>
+<i>is God die in ons woont</i><br>
+<i>die ons bezielt in de kern van ons bestaan</i><br>
+<i>die ons aanspreekt met zijn eigen naam</i><br>
+<i>"Ik ben er voor U".</i><br>
+<br>
+<i>De Heilige Geest</i><br>
+<i>is God die in ons leeft</i><br>
+<i>als wij Hem laten leven;</i><br>
+<i>is God die in ons liefde is</i><br>
+<i>als wij ons laten beminnen;</i><br>
+<i>is God die onze vrede is</i><br>
+<i>als wij Hem toelaten.</i><br>
+<br>
+<i>Hij waait in ons</i><br>
+<i>als adem van leven,</i><br>
+<i>Hij stuwt ons voort</i><br>
+<i>om er te zijn voor anderen,</i><br>
+<i>opdat alles wat wij doen</i><br>
+<i>zijn liefde uitademt.</i><br>
+<br>
+<i>Hij brandt in ons als een vuur</i><br>
+<i>en maakt ons geestdriftig</i><br>
+<i>voor de zaak van Jezus Christus: </i><br>
+<i>om te bouwen aan een gemeenschap</i><br>
+<i>die hemel op aarde brengt.</i><br>
+<i>De heilige Geest</i><br>
+<i>is God die in ons woont</i><br>
+<i>in ons spreekt, ons bezielt en ons voortstuwt</i><br>
+<i>vanuit die ene zekerheid: </i><br>
+<i>Je staat nooit alleen.</i><br>
+<br>
+<br>
+<br>
+
+
+
+
+
+#### HERDENKING PASTOOR EDDY LE BEER
+<br>
+<figure><img src="images/pb-tui.jpg" alt=" Eddy Le Beer © Kerknet" style="max-height: 500px; max-width: 500px;" /><figcaption> Eddy Le Beer © Kerknet</figcaption></figure><br>
+<br>
+Pinksterzondag <b>19 mei</b> - 9 uur kerk Gavere<br>
+<br>
+Vorig jaar, <b>18 mei 2023</b> op Hemelvaartsdag, overleed pastoor Eddy Le Beer. Gelovend in de verrijzenis leeft hij nu verder bij zijn hemelse Vader, de Bron van nieuw leven. Uit eerbied en respect voor zijn jarenlange dienstbaarheid wil de geloofsgemeenschap, 1 jaar na zijn overlijden, deze uitzonderlijke mens in herinnering brengen en hem in gebed en zang dank betonen voor wat hij voor ons betekend heeft.<br>
+<br>
+De herdenkingsviering gaat door op Pinksterzondag <b>19 mei</b> om 9 uur in "zijn" kerk van Gavere waar hij gedurende veel jaren voorganger is geweest en lief en leed gedeeld heeft met zijn medeparochianen. Moge hij in vrede rusten bij God en al zijn dierbaren.<br>
+<br>
+Ieder daartoe van harte uitgenodigd.<br>
+<br>
+<br>
+<br>
+
+
+
+
+
+#### HOOGFEEST VAN DE HEILIGE DRIE-EENHEID
+<br>
+<figure><img src="images/pb-una.jpg" alt=" Heilige Drie-eenheid © Onze Lieve Vrouw ter Nood in Heiloo" style="max-height: 500px; max-width: 500px;" /><figcaption> Heilige Drie-eenheid © Onze Lieve Vrouw ter Nood in Heiloo</figcaption></figure><br>
+<br>
+In de Rooms-Katholieke Kerk wordt op de eerste zondag na Pinksteren het hoogfeest van de Heilige Drie-eenheid gevierd: God in drie personen: de Vader, de Zoon en de Heilige Geest. We vieren God als Schepper, verlosser en Helper. God is de Vader die van ons houdt en bezorgd is om ons, Hij is de Zoon die ons voordoet hoe we moeten leven, Hij is de Geest die ons bezielt en enthousiast maakt om zelf iets goeds van de wereld te maken. Dat beeld van de Drie-Ene God is moeilijk voorstelbaar, maar eigenlijk belijden wij telkens we een kruisteken maken dat wij in de Drie-Ene God geloven. We belijden dat de Vader, de Zoon en de Heilige Geest één zijn en met elkaar verbonden zijn.<br>
+<br>
+In de naam van de Vader, die ons het leven geeft, die antwoordt op onze vragen en ons vrij laat.<br>
+In de naam van de Zoon, die in de wereld komt, het mensenleven deelt, onze broeder wil zijn, en ons voorgaat.<br>
+In de naam van de Geest, die onze harten verwarmt, ons denken verlicht, richting geeft aan ons handelen, en ons krachtig maakt.<br>
+<br>
+<b>Bezinning</b><br>
+<br>
+<i>Met God op stap gaan</i><br>
+<i>naar je medemensen toe,</i><br>
+<i>is Vader zijn.</i><br>
+<i>Je zal hevig naar hen verlangen</i><br>
+<i>en hen liefhebben</i><br>
+<i>zoals een echte vader houdt van zijn kind.</i><br>
+<i>Je zal hen kansen geven,</i><br>
+<i>hen ernstig nemen</i><br>
+<i>en geloven in diegenen</i><br>
+<i>met wie je werkt.</i><br>
+<br>
+<i>Op stap gaan is ook Zoon zijn.</i><br>
+<i>Je gedragen voelen</i><br>
+<i>en gestuwd door een innige liefde</i><br>
+<i>die je helpt loskomen en bevrijden</i><br>
+<i>uit wat mensen tegenhoudt</i><br>
+<i>om voluit te leven.</i><br>
+<i>Zo kan je jezelf aanvaarden</i><br>
+<i>en ook ieder ander met wie je samen bent.</i><br>
+<br>
+<i>Op stap gaan is Geest, ruimte, zijn.</i><br>
+<i>Je niet op jezelf richten</i><br>
+<i>of op een heel beperkt doel,</i><br>
+<i>maar verder kijken.</i><br>
+<i>Samen eerlijke horizonten zoeken</i><br>
+<i>naar helende eenheid toe.</i><br>
+<br>
+<br>
+<br>
+
+
+
+
+
+#### GEBED TOT MARIA
+<br>
+<i>Weesgegroet Maria,</i><br>
+<i>moeder van God,</i><br>
+<i>moeder van de Kerk en van alle mensen,</i><br>
+<i>wil voor ons een gids en voorbeeld zijn.</i><br>
+<i>Bevestig ons in het geloof</i><br>
+<i>dat God ook vandaag</i><br>
+<i>arme en kleine mensen bevrijdt</i><br>
+<i>en ze blij en groot maakt.</i><br>
+<i>Bid met ons mee</i><br>
+<i>om de gave van Gods Geest</i><br>
+<i>in goede en kwade dagen.</i><br>
+<i>Zeg ons elke dag opnieuw : </i><br>
+<i>"Doe maar wat Hij u zeggen zal".</i><br>
+<i>Dan zullen wij naar Jezus' woord en leven</i><br>
+<i>God beminnen,</i><br>
+<i>de naaste liefhebben</i><br>
+<i>en dienstbaar zijn aan Kerk en wereld. Amen.</i><br>
 <br>
 <br>
 <br>

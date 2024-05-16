@@ -11,36 +11,6 @@ header_menu: true
 <br>
 <br>
 
-##### Donderdag 9 mei 2024  
-<dl><dt>&nbsp;</dt><dd>Hemelvaart van de Heer<br></dd><dt><b>09.00 u. Eke:</b></dt><dd>Vormsel</dd>
-<dt><b>09.00 u. Gavere:</b></dt><dd>Hoogdagviering<br><i>Lector: Conny Maes</i></dd>
-<dt><b>10.30 u. Nazareth:</b></dt><dd>Eerste Communie</dd>
-</dl>
-
-##### Vrijdag 10 mei 2024  
-<dl><dt>&nbsp;</dt><dd>H. Damiaan de Veuster, priester<br></dd><dt><b>08.00 u. Eke:</b></dt><dd>Overledenen</dd>
-<dt><b>10.00 u. Nazareth:</b></dt><dd>Begrafenis Mieke Ghyselinck</dd>
-</dl>
-
-##### Zaterdag 11 mei 2024  
-<dl><dt><b>14.30 u. Asper:</b></dt><dd>Vormsel<br>Lectoren: Vormelingen</dd>
-<dt><b>17.00 u. Nazareth:</b></dt><dd>Vormsel</dd>
-<dt><b>18.00 u. Eke:</b></dt><dd>Georges Van de Voorde en echtg. Martha Rasschaert en zonen Robert en André</dd>
-</dl>
-
-##### Zondag 12 mei 2024  
-<dl><dt>&nbsp;</dt><dd>7e Zondag van Pasen<br>Mediazondag - Omhaling voor kerkelijke communicatiemiddelen<br></dd><dt><b>09.00 u. Gavere:</b></dt><dd>Vormsel<br>Lectoren: Vormelingen</dd>
-<dt><b>10.30 u. Nazareth:</b></dt><dd>Jgt. |André D'Oosterlinck, echtg. Beatrijs De Reu|<br><i>Lector: Prosper De Lepeleire</i></dd>
-</dl>
-
-##### Maandag 13 mei 2024  
-<dl><dt>&nbsp;</dt><dd>Onze-Lieve-Vrouw van Fátima<br></dd><dt><b>08.00 u. Eke:</b></dt><dd>V.M.</dd>
-</dl>
-
-##### Dinsdag 14 mei 2024  
-<dl><dt>&nbsp;</dt><dd>H. Mattias, apostel<br></dd><dt><b>08.00 u. Eke:</b></dt><dd>Overleden ouders en zus</dd>
-</dl>
-
 ##### Donderdag 16 mei 2024  
 <dl><dt><b>08.00 u. Eke:</b></dt><dd>Eucharistie</dd>
 </dl>
@@ -56,6 +26,31 @@ header_menu: true
 ##### Zondag 19 mei 2024  
 <dl><dt>&nbsp;</dt><dd>Pinksteren<br></dd><dt><b>09.00 u. Gavere:</b></dt><dd>Hoogdagviering<br>Jaargetijde voor Pastoor Eddy Le Beer<br>Eeuwigdurend voor P. De Vreese (3)<br><i>Lector: Dries Biesemans</i></dd>
 <dt><b>10.30 u. Nazareth:</b></dt><dd>Eucharistie<br><i>Lector: Jo Buysse</i></dd>
+</dl>
+
+##### Maandag 20 mei 2024  
+<dl><dt>&nbsp;</dt><dd>Maria, Moeder van de Kerk<br></dd><dt><b>08.00 u. Eke:</b></dt><dd>*GEEN eucharistieviering*</dd>
+</dl>
+
+##### Dinsdag 21 mei 2024  
+<dl><dt>&nbsp;</dt><dd>HH. Christophorus Magellaen, priester, en gezellen, martelaren<br></dd><dt><b>08.00 u. Eke:</b></dt><dd>Euc</dd>
+</dl>
+
+##### Donderdag 23 mei 2024  
+<dl><dt><b>08.00 u. Eke:</b></dt><dd>*GEEN eucharistieviering*</dd>
+</dl>
+
+##### Vrijdag 24 mei 2024  
+<dl><dt><b>08.00 u. Eke:</b></dt><dd>*GEEN eucharistieviering*</dd>
+</dl>
+
+##### Zaterdag 25 mei 2024  
+<dl><dt>&nbsp;</dt><dd>H. Beda de eerbiedwaardige, priester en kerkleraar<br>H. Gregorius VII, paus<br>H. Maria Magdalena de' Pazzi, maagd<br>Maria op zaterdag<br></dd><dt><b>18.00 u. Eke:</b></dt><dd>H. Pater Pio<br>Jules Vandekerckhove - fam. Bracke - De Preester</dd>
+</dl>
+
+##### Zondag 26 mei 2024  
+<dl><dt>&nbsp;</dt><dd>Heilige Drie-Eenheid<br></dd><dt><b>09.00 u. Gavere:</b></dt><dd>Voor Aimé Dervaux en echtgenote Gabriëlla De Schamphelaere<br>Mis uit dank (BUDCW)<br><i>Lector: Luc De Coninck</i></dd>
+<dt><b>10.30 u. Nazareth:</b></dt><dd>|Jacques Vertriest|<br><i>Lector: Annemie De Gussem</i></dd>
 </dl>
 <br>
 <br>

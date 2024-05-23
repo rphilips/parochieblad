@@ -11,31 +11,6 @@ header_menu: true
 <br>
 <br>
 
-##### Donderdag 16 mei 2024  
-<dl><dt><b>08.00 u. Eke:</b></dt><dd>Eucharistie</dd>
-</dl>
-
-##### Vrijdag 17 mei 2024  
-<dl><dt><b>08.00 u. Eke:</b></dt><dd>Bijzondere intentie</dd>
-</dl>
-
-##### Zaterdag 18 mei 2024  
-<dl><dt>&nbsp;</dt><dd>H. Johannes I, paus en martelaar<br></dd><dt><b>18.00 u. Eke:</b></dt><dd>Etienne Clemmen en echtg. Martha Corijn en overl. ouders, schoonouders en familie<br>Sylvain Matthys, echtg. Yvonne De Smet, ouders, schoonouders en familie</dd>
-</dl>
-
-##### Zondag 19 mei 2024  
-<dl><dt>&nbsp;</dt><dd>Pinksteren<br></dd><dt><b>09.00 u. Gavere:</b></dt><dd>Hoogdagviering<br>Jaargetijde voor Pastoor Eddy Le Beer<br>Eeuwigdurend voor P. De Vreese (3)<br><i>Lector: Dries Biesemans</i></dd>
-<dt><b>10.30 u. Nazareth:</b></dt><dd>Eucharistie<br><i>Lector: Jo Buysse</i></dd>
-</dl>
-
-##### Maandag 20 mei 2024  
-<dl><dt>&nbsp;</dt><dd>Maria, Moeder van de Kerk<br></dd><dt><b>08.00 u. Eke:</b></dt><dd>*GEEN eucharistieviering*</dd>
-</dl>
-
-##### Dinsdag 21 mei 2024  
-<dl><dt>&nbsp;</dt><dd>HH. Christophorus Magellaen, priester, en gezellen, martelaren<br></dd><dt><b>08.00 u. Eke:</b></dt><dd>Euc</dd>
-</dl>
-
 ##### Donderdag 23 mei 2024  
 <dl><dt><b>08.00 u. Eke:</b></dt><dd>*GEEN eucharistieviering*</dd>
 </dl>
@@ -50,7 +25,34 @@ header_menu: true
 
 ##### Zondag 26 mei 2024  
 <dl><dt>&nbsp;</dt><dd>Heilige Drie-Eenheid<br></dd><dt><b>09.00 u. Gavere:</b></dt><dd>Voor Aimé Dervaux en echtgenote Gabriëlla De Schamphelaere<br>Mis uit dank (BUDCW)<br><i>Lector: Luc De Coninck</i></dd>
-<dt><b>10.30 u. Nazareth:</b></dt><dd>|Jacques Vertriest|<br><i>Lector: Annemie De Gussem</i></dd>
+<dt><b>10.30 u. Nazareth:</b></dt><dd>Voor Kervin de Volkaersbeke<br><i>Lector: Annemie De Gussem</i></dd>
+<dt><b>14.30 u. Nazareth:</b></dt><dd>Namis voor |Jacques Vertriest|</dd>
+</dl>
+
+##### Maandag 27 mei 2024  
+<dl><dt>&nbsp;</dt><dd>H. Augustinus van Canterbury, bisschop<br></dd><dt><b>08.00 u. Eke:</b></dt><dd>*GEEN eucharistieviering*</dd>
+</dl>
+
+##### Dinsdag 28 mei 2024  
+<dl><dt><b>08.00 u. Eke:</b></dt><dd>*GEEN eucharistieviering*</dd>
+</dl>
+
+##### Donderdag 30 mei 2024  
+<dl><dt><b>08.00 u. Eke:</b></dt><dd>*GEEN eucharistieviering*</dd>
+</dl>
+
+##### Vrijdag 31 mei 2024  
+<dl><dt>&nbsp;</dt><dd>Maria Visitatie<br></dd><dt><b>08.00 u. Eke:</b></dt><dd>*GEEN eucharistieviering*</dd>
+</dl>
+
+##### Zaterdag 1 juni 2024  
+<dl><dt>&nbsp;</dt><dd>H. Justinus, martelaar<br></dd><dt><b>11.30 u. Gavere:</b></dt><dd>Huwelijk Yan Danneels en Anke Van de Vijver</dd>
+<dt><b>18.00 u. Eke:</b></dt><dd>Jgt. Lieve Vermeulen<br>Overledenen van de families Vermeulen - Balcaen</dd>
+</dl>
+
+##### Zondag 2 juni 2024  
+<dl><dt>&nbsp;</dt><dd>Allerheiligst Sacrament van het Lichaam en Bloed van Christus<br></dd><dt><b>09.00 u. Gavere:</b></dt><dd>Eeuwigdurend voor Maria De Muynck (3)<br><i>Lector: Isabelle Tuypens</i></dd>
+<dt><b>10.30 u. Nazareth:</b></dt><dd>Stichtingen (7/15)<br><i>Lector: Marc Perseyn</i></dd>
 </dl>
 <br>
 <br>

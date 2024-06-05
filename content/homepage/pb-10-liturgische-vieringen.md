@@ -11,32 +11,6 @@ header_menu: true
 <br>
 <br>
 
-##### Donderdag 30 mei 2024  
-<dl><dt><b>08.00 u. Eke:</b></dt><dd>*GEEN eucharistieviering*</dd>
-</dl>
-
-##### Vrijdag 31 mei 2024  
-<dl><dt>&nbsp;</dt><dd>Maria Visitatie<br></dd><dt><b>08.00 u. Eke:</b></dt><dd>*GEEN eucharistieviering*</dd>
-</dl>
-
-##### Zaterdag 1 juni 2024  
-<dl><dt>&nbsp;</dt><dd>H. Justinus, martelaar<br></dd><dt><b>11.30 u. Gavere:</b></dt><dd>Huwelijk Yan Danneels en Anke Van de Vijver</dd>
-<dt><b>18.00 u. Eke:</b></dt><dd>Jgt. Lieve Vermeulen<br>Overledenen van de families Vermeulen - Balcaen</dd>
-</dl>
-
-##### Zondag 2 juni 2024  
-<dl><dt>&nbsp;</dt><dd>Allerheiligst Sacrament van het Lichaam en Bloed van Christus<br></dd><dt><b>09.00 u. Gavere:</b></dt><dd>Eeuwigdurend voor Maria De Muynck (3)<br><i>Lector: Isabelle Tuypens</i></dd>
-<dt><b>10.30 u. Nazareth:</b></dt><dd>Stichtingen (7/15)<br><i>Lector: Jo Buysse</i></dd>
-</dl>
-
-##### Maandag 3 juni 2024  
-<dl><dt>&nbsp;</dt><dd>HH. Carolus Lwanga en gezellen, martelaren<br></dd><dt><b>08.00 u. Eke:</b></dt><dd>V.M.</dd>
-</dl>
-
-##### Dinsdag 4 juni 2024  
-<dl><dt><b>08.00 u. Eke:</b></dt><dd>Overleden ouders en zus</dd>
-</dl>
-
 ##### Donderdag 6 juni 2024  
 <dl><dt>&nbsp;</dt><dd>H. Norbertus, bisschop<br></dd><dt><b>08.00 u. Eke:</b></dt><dd>Bijzondere intentie</dd>
 </dl>
@@ -52,7 +26,32 @@ header_menu: true
 
 ##### Zondag 9 juni 2024  
 <dl><dt>&nbsp;</dt><dd>10e Zondag door het jaar<br></dd><dt><b>09.00 u. Gavere:</b></dt><dd>Eucharistie<br><i>Lector: Martin Peleman</i></dd>
-<dt><b>10.30 u. Nazareth:</b></dt><dd>Eucharistie<br><i>Lector: Marijke Dhondt</i></dd>
+<dt><b>10.30 u. Nazareth:</b></dt><dd>Overledenen<br><i>Lector: Marijke Dhondt</i></dd>
+</dl>
+
+##### Maandag 10 juni 2024  
+<dl><dt>&nbsp;</dt><dd>Z. Edward Poppe, priester<br></dd><dt><b>08.00 u. Eke:</b></dt><dd>V.M.</dd>
+</dl>
+
+##### Dinsdag 11 juni 2024  
+<dl><dt>&nbsp;</dt><dd>H. Barnabas, apostel<br></dd><dt><b>08.00 u. Eke:</b></dt><dd>Overleden ouders en zus</dd>
+</dl>
+
+##### Donderdag 13 juni 2024  
+<dl><dt>&nbsp;</dt><dd>H. Antonius van Padua, priester en kerkleraar<br></dd><dt><b>08.00 u. Eke:</b></dt><dd>Eucharistie</dd>
+</dl>
+
+##### Vrijdag 14 juni 2024  
+<dl><dt><b>08.00 u. Eke:</b></dt><dd>Een bijzondere intentie</dd>
+</dl>
+
+##### Zaterdag 15 juni 2024  
+<dl><dt>&nbsp;</dt><dd>Maria op zaterdag<br></dd><dt><b>18.00 u. Eke:</b></dt><dd>Jgt. Rita De Bel, echtg. Frans Vanquathem en overleden familie</dd>
+</dl>
+
+##### Zondag 16 juni 2024  
+<dl><dt>&nbsp;</dt><dd>11e Zondag door het jaar<br></dd><dt><b>09.00 u. Gavere:</b></dt><dd>Jaargetijde voor Albert Van Lancker echtgenoot van Odette Bauters<br>Eeuwigdurend familie Sorgeloos (3)<br><i>Lector: Chris Jungbluth</i></dd>
+<dt><b>10.30 u. Nazareth:</b></dt><dd>Voor Maria De Ketelaere<br>voor René Bracke, echtgenoot van Rosa Van Ooteghem en overleden familie<br><i>Lector: Geert De Jans</i></dd>
 </dl>
 <br>
 <br>

@@ -21,7 +21,7 @@ header_menu: true
 
 ##### Zaterdag 8 juni 2024  
 <dl><dt>&nbsp;</dt><dd>Onbevlekt Hart van Maria<br></dd><dt><b>13.30 u. Gavere:</b></dt><dd>Huwelijk Michaël Kint en Charlotte De Smet</dd>
-<dt><b>18.00 u. Eke:</b></dt><dd>Eucharistie</dd>
+<dt><b>18.00 u. Eke:</b></dt><dd>Eucharistie<br><i>Lector: Kathy Wellems</i></dd>
 </dl>
 
 ##### Zondag 9 juni 2024  
@@ -46,7 +46,7 @@ header_menu: true
 </dl>
 
 ##### Zaterdag 15 juni 2024  
-<dl><dt>&nbsp;</dt><dd>Maria op zaterdag<br></dd><dt><b>18.00 u. Eke:</b></dt><dd>Jgt. Rita De Bel, echtg. Frans Vanquathem en overleden familie</dd>
+<dl><dt>&nbsp;</dt><dd>Maria op zaterdag<br></dd><dt><b>18.00 u. Eke:</b></dt><dd>Jgt. Rita De Bel, echtg. Frans Vanquathem en overleden familie<br><i>Lector: Ingrid Clemmen</i></dd>
 </dl>
 
 ##### Zondag 16 juni 2024  

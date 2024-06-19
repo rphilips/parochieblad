@@ -11,39 +11,32 @@ header_menu: true
 
 
 
-#### ONTVINGEN HET SACRAMENT VAN HET HUWELIJK:
+#### VORMSELCATECHESE ST.AMANDUS - EKE
 <br>
-Yan Daneels en Anke Van De Vijver<br>
-Michaël Kint en Charlotte De Smet<br>
+<figure><img src="images/pb-an.jpg" alt=" Vormsel... JA OF NEE? © Hilde Vanmeirhaeghe" style="max-height: 500px; max-width: 500px;" /><figcaption> Vormsel... JA OF NEE? © Hilde Vanmeirhaeghe</figcaption></figure><br>
 <br>
+<b>Wil je in 2025 je vormsel doen?</b><br>
 <br>
+Wil je het vormseltraject volgen op de Sint Amandus parochie in Eke?<br>
+Het sacrament van het vormsel is een belangrijk gebeuren in je leven.<br>
+Praat erover met je ouders. Beslis mee en kies er zelf voor.<br>
+Het vormsel is 'geen verplichting' maar een vrije keuze die je maakt .<br>
+Hier staan enkele vraagjes die je misschien kunnen helpen om te kiezen:<br>
 <br>
-
-
-
-
-
-#### OVERLIJDEN
+Vormsel... JA OF NEE?<br>
+Ben je gedoopt in de kerk?<br>
+Volg je op school katholieke godsdienst?<br>
+Wil je groeien in geloof?<br>
+Ben je bereid om naar de catechese te komen en naar de eucharistie?<br>
+Heb je JA geantwoord op deze vraagjes?<br>
 <br>
-We namen in de kerk afscheid van:<br>
+Op de contactavond krijg je dan meer uitleg over het programma en de kans om je in te schrijven. Deze gaat door op<br>
+op woensdag <b>4 september 2024</b><br>
+om 18.30 u. in de Sint Amandus kerk in Eke.<br>
 <br>
-<br>
-<i>Hugo Dries</i>, 83 jaar, echtgenoot van Godelieve De Greef uit Dikkelvenne<br>
-<br>
-<br>
-<br>
-
-
-
-
-
-#### DOOPSEL
-<br>
-Hebben het doopselsacrament ontvangen:<br>
-<br>
-{1: namen}.<br>
-<br>
-<i>Alice Oellibrandt</i>, dochtertje van Philippe en An Sofie Versypt<br>
+Meer info en je aanmelden via:<br>
+De verantwoordelijke vormselcatechese Vanmeirhaeghe Hilde:<br>
+gsm nr. {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:0497856710">0497 85 67 10</a> of via mail {{<icon class="fa fa-envelope">}}&nbsp;<a href="hvanmeirhaeghe@skynet.be">hvanmeirhaeghe@skynet.be</a><br>
 <br>
 <br>
 <br>
@@ -52,31 +45,44 @@ Hebben het doopselsacrament ontvangen:<br>
 
 
 
-#### BEDEVAART SAMANA NAZARETH
+#### SINT MARTINUS OMMEGANG TE ASPER
 <br>
-<figure><img src="images/pb-si1.jpg" alt=" Bedevaart Samana Nazareth (1) © Marc Perseyn" style="max-height: 500px; max-width: 500px;" /><figcaption> Bedevaart Samana Nazareth (1) © Marc Perseyn</figcaption></figure><br>
-<figure><img src="images/pb-si2.jpg" alt=" Bedevaart Samana Nazareth (2) © Marc Perseyn" style="max-height: 500px; max-width: 500px;" /><figcaption> Bedevaart Samana Nazareth (2) © Marc Perseyn</figcaption></figure><br>
+<figure><img src="images/pb-ter.jpg" alt=" Sint-Martinusbedevaartommegang © Beschermcomité Sint-Martinusbedevaartommegang Asper" style="max-height: 500px; max-width: 500px;" /><figcaption> Sint-Martinusbedevaartommegang © Beschermcomité Sint-Martinusbedevaartommegang Asper</figcaption></figure><br>
 <br>
-Zaterdag <b>1 juni</b> gingen er een 30 tal mensen van Samana Nazareth op bedevaart naar de Onze Lieve Vrouw van de Ginste in Oostrozebeke.<br>
+Op 6 & <b>7 juli</b> vieren wij Sint-Martinus, patroon van de parochie Asper<br>
 <br>
-Daar staat ook een mooie Lourdesgrot. We kregen een mooi gebedsmoment in de kerk onder de leiding van de diaken Robert Lammertijn die de Maria-liederen zong op een gitaar. Nadien konden er verschillende kaarsen aangestoken voor alle gevraagde intenties. Na het gebedsmoment was er nog een bezoek aan de grot. De innerlijke mens werd versterkt in Bistro" De Grot" met koffie en brésiliennetaart. Het was een gezellig moment in de kerk en in de Bistro.<br>
+Op <b>6 juli 2024</b> om 07.00 u. vertrekt de eeuwenoude Sint-Martinusbedevaartommegang<br>
+aan de kerk van Asper . In de volksmond wordt dit de grote ommegang genoemd.<br>
+We stappen zo'n  5 km langs de grensstraten van Asper om rond 08.00 u. de Sint-Martinuskapel<br>
+in de Pontweg  (Stationswijk)  te bereiken. Zie je op tegen een stevige ochtendwandeling?<br>
+Dan kan je  aansluiten bij de bedevaartsmis  Na de mis trakteren we met een koek en een drankje.  Rond 09.00 u. keren we via de  Bernstraat terug naar de kerk van Asper (5 km) om  rond 10.00 u. de bedevaart af te sluiten.<br>
 <br>
-<i>Onze-Lieve-Vrouw van De Ginste,</i><br>
-<i>nog nooit is gehoord</i><br>
-<i>dat iemand die tot U</i><br>
-<i>zijn toevlucht nam</i><br>
-<i>werd verlaten.</i><br>
-<i>Ik die onderweg ben</i><br>
-<i>met mijn zorgen,</i><br>
-<i>bid met mij dat ik een</i><br>
-<i>eind met jou kan meegaan,</i><br>
-<i>om de weg van Jezus te volgen.</i><br>
-<i>Wijs mijn gebeden niet af,</i><br>
-<i>maar neem ze aan</i><br>
-<i>en wil mij verhoren,</i><br>
-<i>O lieve Maagd Maria.</i><br>
+Kom ook op zondag <b>7 juli</b> rond 16.00 u. in de dorpskern en vooral aan de kerk om de kermissfeer op te snuiven. Maak de passage en de zegening van paarden, ruiters en koetsen mee ter gelegenheid van de Feestommegang van Sint-Martinus!<br>
 <br>
-<i>AMEN.</i><br>
+<br>
+<br>
+
+
+
+
+
+#### EKE-LANDUIT: UITNODIGING JAARLIJKSE OPENLUCHTVIERING
+<br>
+<figure><img src="images/pb-de.jpg" alt=" Jaarlijkse openluchtviering te Eke-Landuit © Feestcomité Eke-Landuit" style="max-height: 500px; max-width: 500px;" /><figcaption> Jaarlijkse openluchtviering te Eke-Landuit © Feestcomité Eke-Landuit</figcaption></figure><br>
+<br>
+Kapel St.-Anna Landuitstraat Eke<br>
+<br>
+Hartelijk welkom op de jaarlijkse eucharistieviering op zondag <b>28 juli 2024</b> om 18 uur ter gelegenheid van de kermis in de wijk.<br>
+<br>
+We herdenken onze doden. De viering wordt opgeluisterd door het Seeveringakoor.<br>
+<br>
+Er is zitgelegenheid voor iedereen.<br>
+<br>
+Wie aanwezig is, helpt deze mooie traditie in ere houden.<br>
+<br>
+Tot dan,<br>
+<br>
+Het Feestcomite<br>
 <br>
 <br>
 <br>
@@ -91,23 +97,19 @@ Daar staat ook een mooie Lourdesgrot. We kregen een mooi gebedsmoment in de kerk
 <br>
 <b>Wat betekent dit voor misintenties en mededelingen? Tegen wanneer moeten die uiterlijk doorgegeven worden aan de redactie?</b><br>
 <br>
-Een kort overzichtje.<br>
-<br>
-Nummer 24 (dit nummer) en 25 (volgende week) verschijnen nog zoals gewoonlijk.<br>
-<br>
 <b>!!!! Nummer 26 verschijningsdatum 26 juni 2024</b><br>
 bevat de intenties en mededelingen van <b>29 juni 2024</b> tot en met <b>19 juli 2024</b><br>
 meedelen aan de redactie uiterlijk vrijdag <b>21 juni 2024</b><br>
 <br>
-Nummer 27 en 28 verschijnen niet<br>
+<b>!!! Nummer 27 en 28 verschijnen niet</b><br>
 <br>
 <b>!!! Nummer 29 verschijningsdatum 17 juli 2024</b><br>
 bevat de intenties en mededelingen van <b>20 juli 2024</b> tot en met <b>9 augustus 2024</b><br>
 meedelen aan de redactie uiterlijk <b>27 juni 2024</b><br>
 <br>
-Nummer 30 en 31 verschijnen niet<br>
+<b>!!! Nummer 30 en 31 verschijnen niet</b><br>
 <br>
-Nummer 32- verschijningsdatum <b>7 augustus</b> is terug volgens de gewone regeling<br>
+<b>!!! Nummer 32- verschijningsdatum 7 augustus terug volgens de gewone regeling</b><br>
 <br>
 <b>HOU ZEKER REKENING MET DEZE WIJZIGING!</b><br>
 <br>
@@ -118,9 +120,27 @@ Nummer 32- verschijningsdatum <b>7 augustus</b> is terug volgens de gewone regel
 
 
 
+#### VAKANTIE = ANDERS LEVEN MET GOD ALS REISGENOOT
+<br>
+<figure><img src="images/pb-vis.jpg" alt=" Vakantie = anders leven © Kerknet" style="max-height: 500px; max-width: 500px;" /><figcaption> Vakantie = anders leven © Kerknet</figcaption></figure><br>
+<br>
+Vakantie is niet zomaar luieren, niets doen. Het is eerder "anders" leven. Wie het hele jaar gewerkt heeft, zal er deugd aan hebben om op zijn of haar manier te genieten. s'Avonds een fietstochtje maken omringd worden door de natuur, een ontspannend boek lezen of juist dat boek dat al lang onder het stof ligt kan wonderen doen. Wie in de stad woont zal met de kinderen meetrekken naar de vele speelpleintjes. Grootouders krijgen bezoek van hun kleinkinderen die ze eindelijk weer kunnen verwennen. Volwassenen en jongeren zetten zich vrijwillig in. Een stop onderweg aan een kabbelende rivier of bij een kapelletje. Bij regenweer is er kans voor een museumbezoek. Jongeren trekken met hun begeleiders op kamp en genieten van het spelen en het buiten leven. Vaak worden er op reis nieuwe dingen ontdekt. En wat misschien nog het meest fijn is in de vakantie is dat mama en papa samen met de kinderen tijd hebben voor elkaar. Rustig, op ieders ritme.<br>
+<br>
+Maar laten we vooral God ademen in de vakantie, laten we anders leven met God als reisgenoot. Of je er nu op uit trekt of thuis blijft, even afstand nemen van alle vaste verplichtingen en drukte doet je goed. Rust en stilte laat je het Goddelijke van het leven ervaren. Kunnen we nog verwonderd zijn om Gods schepping, kunnen we met verbazing kijken naar het vallen van de nacht, kunnen we nog tijd verdoen aan de rand van een beek, ...? Als dat zo is kijk en ervaar dan; je hart zal rust vinden en je laten kijken verder van jezelf. Dan zullen kleine en gewone dingen je nog kunnen raken. Je zal openbloeien en misschien gaan luisteren naar God achter dit alles. Je hoeft het daarom niet ver te zoeken. Je zal Hem vinden in de stilte van een kerkgebouw of bij elkaar, in Zijn woord dat me mogen horen, in het lezen van bezinnend boek, in een mooie zonsondergang, in een zachte bries, ... Het is inspirerend als we de adem van Gods Geest mogen voelen in een geluk dat alles omvat.<br>
+<br>
+Aan alle lezers een Zalige vakantietijd gewenst.<br>
+Vanwege pastoor Guy en het parochieteam<br>
+<br>
+<br>
+<br>
+
+
+
+
+
 #### DAG VAN DE MANTELZORG - 23 JUNI
 <br>
-<figure><img src="images/pb-ira.jpg" alt=" Dag van de mantelzorg © steunpunt mantelzorg" style="max-height: 500px; max-width: 500px;" /><figcaption> Dag van de mantelzorg © steunpunt mantelzorg</figcaption></figure><br>
+<figure><img src="images/pb-us.jpg" alt=" Dag van de mantelzorg © steunpunt mantelzorg" style="max-height: 500px; max-width: 500px;" /><figcaption> Dag van de mantelzorg © steunpunt mantelzorg</figcaption></figure><br>
 <br>
 Wist je dat 1 op 5 Vlamingen zorgt voor een persoon met een ziekte, handicap of een andere zorgbehoefte? En wist je dat het niet alleen volwassenen of oudere mensen zijn die zorgen voor hun naaste, maar dat ook kinderen en jongeren op dit moment kosteloos, vol overgave en met zelfopoffering voor iemand zorgen?<br>
 <br>
@@ -135,48 +155,11 @@ Dank je wel mantelzorger... je verdient wel honderd pluimen want wat je doet is 
 
 
 
-#### WORDT CARLO ACUTIS DE EERSTE HEILIGE VAN DEZE EEUW?
+#### 24 JUNI: GEBOORTE VAN JOHANNES DE DOPER
 <br>
-<b>Een heiligverklaring of canonisatie is een handeling van de hoogste kerkelijke autoriteit waardoor een gestorven persoon de status van heilige krijgt. In de regel gaat aan een heiligverklaring een kerkrechtelijk proces vooraf, waarin is vastgesteld dat de betreffende persoon gedurende zijn aardse leven een geloofsheld was en er bij gelovigen een verering voor die overleden persoon bestaat.</b><br>
+<figure><img src="images/pb-aro.jpg" alt=" Geboorte Johannes De Doper © Kerknet" style="max-height: 500px; max-width: 500px;" /><figcaption> Geboorte Johannes De Doper © Kerknet</figcaption></figure><br>
 <br>
-Voor zowel een zaligverklaring en een heiligverklaring is telkens een door de paus erkend wonder nodig. Carlo Acutis werd zaligverklaard op basis van de wonderlijke genezing van een ernstig zieke Braziliaanse jongen. Het wonder dat nodig was voor zijn heiligverklaring is in 2022 in het Italiaanse Florence gebeurd. Een 21-jarige studente uit Costa Rica raakte daar bij een fietsongeluk zwaargewond aan haar hoofd.<br>
-<br>
-<b>Wie was Carlo Acutis?</b><br>
-<br>
-<figure><img src="images/pb-hi.jpg" alt=" Carlo Acutis © Wikipedia" style="max-height: 500px; max-width: 500px;" /><figcaption> Carlo Acutis © Wikipedia</figcaption></figure><br>
-<br>
-Op <b>12 oktober 2006</b> stierf op 15-jarige leeftijd Carlo Acutis. De eerste zaligverklaarde millenial (= iemand die geboren is tussen 1981 en 1995). Op <b>10 oktober 2020</b>, werd hij zaligverklaard.<br>
-<br>
-Carlo Acutis wordt op <b>3 mei 1991</b> in Londen geboren in een welstellende Italiaanse familie. Niet lang na de geboorte van hun zoon vestigen ze zich in Milaan.<br>
-<br>
-Vanaf zijn vierde was Carlo in de ban van alles wat religie betrof', vertelt zijn moeder.<br>
-Het is de Poolse kinderoppas van het gezin, Beata, zelf diepgelovig, die Carlo's religieuze gevoeligheid ontdekt, hem zijn eerste gebedjes leert, met hem voor het eerst naar de eucharistie gaat en hem verder stimuleert.  Beata herinnert zich hoe ze ooit werd uitgelachen omdat ze een rozenkrans rond haar hals droeg. Carlo, op dat moment drie jaar oud, vertelde haar dat ze zich niets moest aantrekken van de opmerkingen, en dat haar halsketting de mooiste van de hele wereld was. 'De rozenkrans is de snelweg naar de hemel.' Die uitspraak zou zijn motto worden. 'Jezus is een persoon die dichtbij is, en bereikbaar voor iedereen', stelt Carlo.<br>
-<br>
-Na zijn Vormsel gaat Carlo les volgen aan de jezuïetenschool in Milaan. Op 13-jarige leeftijd wordt hij assistent-catechist, en webmaster van de websites van zijn parochie en van zijn school. Carlo blijkt immers meer dan gewone aanleg te hebben voor computers en informatica.<br>
-<br>
-Leerkrachten van toen getuigen dat hij populair is op school en zich met overtuiging mengt in discussies over geloof en abortus. Hij bekommert zich om klasgenoten wier ouders gaan scheiden en bij meer dan één gelegenheid verdedigt hij mensen met een beperking die worden bespot. Meisjes benadert hij met een opvallende hoffelijkheid; hij maant hen aan niet lichtzinnig om te gaan met hun lichaam - hun 'tempel van God'.<br>
-<br>
-2006 wordt zijn laatste levensjaar. Begin oktober wordt Carlo ziek. Op zondag <b>8 oktober</b> valt de vreselijke diagnose: acute leukemie, een agressieve kanker die bloed en beenmerg aantast. Hij wordt opgenomen in het ziekenhuis, hij heeft nog maar enkele dagen te leven. Amper twee dagen later vraagt Carlo om de laatste sacramenten.<br>
-Op woensdag belandt Carlo in een coma waaruit hij niet meer zal ontwaken. Op donderdag <b>12 oktober 2006</b>, amper vier dagen na de diagnose, valt zijn hart stil. 'Ik zou graag naar huis gaan', zegt hij in een van zijn laatste heldere momenten tot zijn moeder, 'maar ik weet dat ik dit ziekenhuis niet levend zal verlaten. Maar ik zal je tekenen geven dat ik bij God ben.'<br>
-<br>
-Dag op dag vier jaar na zijn dood bevalt zijn moeder, op 44-jarige leeftijd, van een tweeling: Carlo's tweelingsbroer en -zus.<br>
-<br>
-Tijdens de Wereldjongerendagen in Rio, in 2013, raakt Carlo Acutis bij de aanwezige jongeren bekend als de 'cyberapostel'. Carlo krijgt de titel van 'Dienaar van God', een eerste etappe op weg naar zalig- of heiligverklaring.<br>
-<br>
-Het proces voor de zaligverklaring van Carlo Acutis is op dat moment al vergevorderd. Eind 2019 geeft de Medische Raad van de Congregatie voor Heiligenzaken een positief advies over een wonder in Brazilië. Daarbij genas een kind van een pancreasafwijking nadat zijn moeder een noveen had gebeden waarin ze om de voorspraak van Acutis vroeg. Na onderzoek bevestigt paus Franciscus de authenticiteit van het wonder in een decreet op <b>21 februari 2020</b>, waardoor de zaligverklaring van Acutis mogelijk wordt. Op <b>10 oktober 2020</b> in de basiliek van Sint-Franciscus van Assisi, waar Carlo intussen begraven is, wordt de jongen zaligverklaard.<br>
-<br>
-<figure><img src="images/pb-vae.jpg" alt=" Graftombe Carlo Acutis © Catholic New Agency" style="max-height: 500px; max-width: 500px;" /><figcaption> Graftombe Carlo Acutis © Catholic New Agency</figcaption></figure><br>
-<br>
-Ter gelegenheid van de zaligverklaring wordt het graf van Carlo Acutis in oktober 2020 geopend en kan zijn opgebaarde lichaam worden bezocht. Het gebalsemde lichaam is gekleed in een sweater, jeans en sneakers. Op zijn gezicht is een bijzonder realistisch siliconenmasker aangebracht. In 19 dagen tijd passeren 41.000 pelgrims langs de geopende kist om Carlo te groeten en om te bidden. De bedoeling is dat het lichaam van Carlo in de toekomst permanent zichtbaar is in de Santa Maria Maggiokerk in Assisi.<br>
-<br>
-Door zijn zaligverklaring raakt het levensverhaal van Carlo Acutis wereldwijd verspreid.<br>
-<br>
-Bron: Piet De Loof<br>
-<br>
-<b>Paus erkent in een decreet van 23 mei 2024 het tweede wonder dat wordt toegeschreven aan de voorspraak van de zalige Carlo Acutus.</b><br>
-<br>
-In dit decreet keurde paus Franciscus de wonderbaarlijke genezing goed van een 21jarig meisje uit Costa Rica die bijna dood was nadat ze een ernstige hoofdwonde opliep bij een fietsongeluk in Firenze in 2022.<br>
-De erkenning van het tweede wonder maakt het mogelijk dat Acutis heilig verklaard kan worden tijdens het jubileumjaar 2025 van de Katholieke Kerk.<br>
+Op deze dag herdenkt de Rooms-Katholieke kerk de geboorte van Johannes de Doper. Volgens het evangelie van Lucas was hij de zoon van de priester Zacharias en Elisabeth, de nicht van Jezus' moeder Maria: Johannes de Doper was ten tijde van Jezus een boeteprediker in de woestijn van Juda. Hij doopte mensen met water om hen van zonden te reinigen. Hij was de eerste mens die Jezus aanwees als de Messias, de langverwachte redder van het volk van Israël. Daarom wordt hij de Voorloper van Christus genoemd. Johannes werd onthoofd op last van Herodes Antipas die hij van overspel met Herodias (een bekende vrouw uit de familie van de Herodianen) had beschuldigd. Herodes voelde zich beledigd en liet Johannes gevangen nemen. Hij had hem eigenlijk willen laten doden, maar hij durfde dat niet, bang dat het volk dan in opstand zou komen. Toen de dochter van Herodias op een dag de koning door haar verleidelijke dans had vermaakt, vroeg Herodes Antipas hoe hij haar zou kunnen belonen. Door haar moeder opgestookt, zei ze: "Geef mij hier op een schotel het hoofd van Johannes de Doper". De koning werd bedroefd, maar vanwege zijn eed en omwille van zijn gasten gaf hij het bevel om het haar te geven. En hij liet Johannes in de gevangenis onthoofden. Zijn hoofd werd op een schotel gebracht en aan het meisje gegeven, en zij bracht het naar haar moeder. Zijn leerlingen kwamen het lijk halen en ze begroeven het, en ze gingen Jezus op de hoogte stellen. Toen Jezus dat hoorde, week Hij met een boot uit naar een eenzame plaats om alleen te zijn (Mt 14: 8-13).<br>
 <br>
 <br>
 <br>
@@ -185,28 +168,18 @@ De erkenning van het tweede wonder maakt het mogelijk dat Acutis heilig verklaar
 
 
 
-#### WAT IS HET VERSCHIL TUSSEN KERK, KAPEL, KATHEDRAAL EN BASILIEK?
+#### 29 JUNI - FEEST VAN DE APOSTELEN PETRUS EN PAULUS
 <br>
-1. Kerk - met hoofdletter - duidt in de christelijke traditie allereerst op de geloofsgemeenschap.<br>
-kerk - met kleine letter - is het gewijde gebouw waar deze gemeenschap samenkomt voor de eucharistie. De godslamp brandt er altijd bij het tabernakel waar het Heilig Sacrament (geconsacreerde hostie) bewaard wordt.<br>
+<b>Wie waren zij?</b><br>
 <br>
-2. kapel - wist je dat het woord voor een klein gebedshuis, kapel dus, verwijst naar de mantel van Sint Maarten, bisschop van Tours (4de eeuw)? Mantel is cappa in het Latijn, verkleinwoord:  capella. De heilige gaf zijn halve mantel weg aan een arme en het werd een relikwie. De ruimte waarin de mantel werd bewaard, nam de naam over. Kapellen ontstonden vanaf de 7de eeuw. Meestal zijn het kleine gebedshuizen. Ze hebben geen eigen pastoor of vast publiek. Een kapel kan ook een onderdeel zijn van een kerk (zijkapel), kasteel (hofkapel), klooster enzovoort.<br>
+<figure><img src="images/pb-ops.jpg" alt=" Petrus - Sint-Baafskathedraal Gent © Christine Piens" style="max-height: 500px; max-width: 500px;" /><figcaption> Petrus - Sint-Baafskathedraal Gent © Christine Piens</figcaption></figure><br>
 <br>
-3. kathedraal - komt van het Latijnse cathedra, dat 'zetel' betekent. In een kathedraal staat de bisschopszetel. Hier is de bisschop de vaste voorganger in de eucharistie. Het klinkt dan ook (bijna) logisch dat België 9 kathedralen heeft: 1 voor elk van de 8 bisdommen (maar 2 voor het aartsbisdom, namelijk in Mechelen en Brussel).<br>
-Een kathedraal kan tegelijk ook basiliek zijn. Dan spreken we van een kathedrale basiliek.<br>
-In sommige landen wordt het woord Dom gebruikt voor een kathedraal (vb. Dom van Keulen).<br>
+<b>PETRUS</b> was een van de twaalf apostelen en heette oorspronkelijk Simon. Hij was de broer van Andreas en visser van beroep. Geboren in Betsaïda woonde hij ten tijde van zijn ontmoeting met Jezus in Kafarnaüm. Hij was gehuwd.<br>
+Met Jacobus en Johannes behoorde hij tot de drie bevoorrechte leerlingen die getuigen mochten zijn van Jezus' glorie (de opwekking van Jaïrus' dochtertje, de gedaanteverandering op de berg Thabor) en van zijn vernedering in de hof van Olijven. Petrus verloochende daar Jezus tot driemaal toe. Toch gaf de verrezen Heer hem de opdracht zijn schapen te weiden. Hij kreeg daarmee de functie van "Rots" toegezegd waarop de gelovige gemeenschap moet gefundeerd zijn. Uit de Handelingen van de Apostelen blijkt ook duidelijk dat hij de leiding van de vroege kerk op zich nam. Net als Paulus verbleef Petrus in Rome. Hij stierf er de marteldood, volgens de overlevering de kruisdood tijdens de vervolging door keizer Nero (64-67 na Christus).<br>
 <br>
-<figure><img src="images/pb-oro.jpg" alt=" Sint-Baafskathedraal Gent © wikipedia" style="max-height: 500px; max-width: 500px;" /><figcaption> Sint-Baafskathedraal Gent © wikipedia</figcaption></figure><br>
+<figure><img src="images/pb-vix.jpg" alt=" Paulus - Sint-Baafskathedraal Gent © Christine Piens" style="max-height: 500px; max-width: 500px;" /><figcaption> Paulus - Sint-Baafskathedraal Gent © Christine Piens</figcaption></figure><br>
 <br>
-<figure><img src="images/pb-ibi.jpg" alt=" Sint-Baafskathedraal Gent interieur © wikipedia" style="max-height: 500px; max-width: 500px;" /><figcaption> Sint-Baafskathedraal Gent interieur © wikipedia</figcaption></figure><br>
-<br>
-<figure><img src="images/pb-sub.jpg" alt=" Bisschopshuis Gent © wikipedia" style="max-height: 500px; max-width: 500px;" /><figcaption> Bisschopshuis Gent © wikipedia</figcaption></figure><br>
-<br>
-4. basiliek - komt van het Latijnse basilica, dat op zijn beurt uit het Grieks komt en oorspronkelijk 'koninklijk gebouw' betekent. Een kerk kan verheven worden tot basiliek vanwege een belangrijk relikwie of omdat het een belangrijke bedevaartsplek is. Een basiliek mag bepaalde eretekens dragen zoals de vlag van Vaticaanstad (geel-wit) met de gekruiste sleutels van Petrus of het tintinnabulum met conopeum (klokje met parasol).<br>
-<br>
-<figure><img src="images/pb-at.jpg" alt=" Conopeum © Godsdienstonderwijs Thomas" style="max-height: 500px; max-width: 500px;" /><figcaption> Conopeum © Godsdienstonderwijs Thomas</figcaption></figure><br>
-<br>
-Bron: Lieve Wouters<br>
+<b>PAULUS</b> wiens Joodse naam Saul was, werd in Tarsus (Zuid-Oost Turkije) geboren. Paulus heeft aanvankelijk het christendom hartgrondig verfoeid en vervolgd. Maar op weg naar Damascus voelde hij zich door de genade van God gegrepen; daar verscheen hem, zoals hij het later zou uitdrukken, de Heer, die hem riep tot het geloof en het apostelschap onder "heidenvolken". Deze belangrijke ommekeer had plaats enkele jaren na de dood van Jezus. Paulus ondernam drie grote missiereizen. Kort voor het jaar 50 nam hij ook deel aan het apostelconcilie van Jeruzalem, waar Paulus' zending onder de heidenen officieel werd erkend. Omstreeks Pinksteren in het jaar 56 werd hij te Jeruzalem door de Romeinen gearresteerd en twee jaar te Caesarea gevangen gehouden. Na een beroep op de keizer werd hij naar Rome overgebracht waar hij nog twee jaar in gevangenschap doorbracht en onder keizer Nero de marteldood stierf.<br>
 <br>
 <br>
 <br>

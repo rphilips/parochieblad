@@ -13,13 +13,6 @@ header_menu: true
 
 #### FEMMA ASPER
 <br>
-<b>Yoga</b> : Elke dinsdag t.e.m. <b>18 juni</b>. Aanvang om 19.30 u.<br>
-<br>
-<b>Haken : Granny Squares</b> : Gemakkelijke en leuke haaktechniek<br>
-Woensdag <b>19 juni 2024</b>.<br>
-Wat breng je mee? - pen, potlood, schaar - Minimum 4 verschillende kleuren garen met bijpassende haaknaald.<br>
-Info + inschrijving bij Steffi Beyaert op {{<icon class="fa fa-envelope">}}&nbsp;<a href="steffi.beyaert@hotmail.com">steffi.beyaert@hotmail.com</a> of op {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:0472386777">0472 38 67 77</a><br>
-<br>
 <b>Bloemschikken</b><br>
 Data volgende lessen: <b>20 juni</b> (zomercreatie), <b>10 oktober</b> (herfst) en <b>12 december 2024</b> (kerst) telkens om 19.30 u.<br>
 <br>
@@ -60,6 +53,21 @@ Op vrijdag <b>21 juni</b> om 19.30 u. in het OC Martinus , Hulstraat, Asper<br>
 We leren cocktails maken en drinken die uiteraard ook uit samen met een hapje en dit in een feestelijk kader met muziek en ambiance. Prijs EUR 30<br>
 Inschrijven vóór <b>7 juni</b> bij Stephanie Vermassen op {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:0471673517">0471 67 35 17</a> of via {{<icon class="fa fa-envelope">}}&nbsp;<a href="fam.declercq@telenet.be.">fam.declercq@telenet.be.</a> Stort EUR 30 op <b>{{<icon class="fa fa-piggy-bank">}}&nbsp;BE07 7374 4201 1966</b> van Ferm Asper met vermelding van je naam + cocktailavond Ferm.<br>
 <br>
+<b>Wekelijkse fietstochten in juli en augustus</b><br>
+<br>
+Vanaf woensdag <b>3 juli</b> t.e.m. <b>31 juli</b> om 19.30 u.<br>
+Vanaf woensdag <b>7 augustus</b> t.e.m. <b>21 augustus</b> om 19.00 u.<br>
+We starten steeds aan de groene zone in de Sint-Janslaan (naast nr 74) in Asper<br>
+<br>
+<b>Daguitstap met de fiets op donderdag 29 augustus</b><br>
+<br>
+We doen een bedrijfsbezoek bij AAROVA te Oudenaarde, waar we verwelkomd worden met een tas koffie; na de rondleiding wordt ons een lunch (soep en hoofgerecht) aangeboden. Vervolgens fietsen we verder en maken nog een koffiestop.<br>
+Vertrek: om 09.00 u. stipt op het Carlos Dierickxplein te Asper<br>
+Prijs: EUR 35,00 inclusief bezoek, koffie en lunch<br>
+<br>
+Inschrijven voor <b>19 augustus</b> bij Christiane Loontjens op {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:0479469650">0479 46 96 50</a> of via {{<icon class="fa fa-envelope">}}&nbsp;<a href="loontjens.chris@telenet.be">loontjens.chris@telenet.be</a><br>
+Betalen : op rekening van Ferm Asper <b>{{<icon class="fa fa-piggy-bank">}}&nbsp;BE07 7374 4201 1966</b> met vermelding van de namen van de ingeschrevenen. Inschrijvingen zijn pas geldig mits ontvangst van betaling.<br>
+<br>
 <br>
 <br>
 
@@ -83,14 +91,14 @@ We maken van dichtbij mee hoe deze unieke lekkernijen worden gecreëerd. We vern
 
 #### LDC DEN OEVER - GAVERE
 <br>
-<b>Donderdag 13 juni</b> om 10.00 u.: Bewegen op muziek<br>
-<b>Donderdag 13 juni</b> om 14.00 u.: Granny squares haken<br>
-<b>Maandag 17 juni</b> om 14.00 u.: Kaarten i.s.m. OKRA<br>
-<b>Dinsdag 18 juni</b> om 10.00 u.: Yoga<br>
-<b>Dinsdag 18 juni</b> om 14.00 u.: Lijndansen, Portrettekenen, Spelletjesnamiddag<br>
 <b>Woensdag 19 juni</b> om 08.30 u.: Zomers ontbijt<br>
 <b>Woensdag 19 juni</b> om 14.00 u.: Diamond painting<br>
 <b>Donderdag 20 juni</b> om 10.00 u.: Bewegen op muziek<br>
+<b>Dinsdag 25 juni</b> om 10.00 u.: Yoga<br>
+<b>Dinsdag 25 juni</b> om 14.00 u.: Lijndansen, portrettekenen, spelletjesnamiddag<br>
+<b>Woensdag 26 juni</b> om 14.00 u.: Bingo<br>
+<b>Donderdag 27 juni</b> om 10.00 u.: Bewegen op muziek<br>
+<b>Donderdag 27 juni</b> om 14.00 u.: Bonte baknamiddag : mikado<br>
 <br>
 <br>
 <br>
@@ -103,10 +111,13 @@ We maken van dichtbij mee hoe deze unieke lekkernijen worden gecreëerd. We vern
 <br>
 <b>OKRA-TREFPUNT EKE nodigt uit...</b><br>
 <br>
-<b>Donderdag 13 juni</b> om 14.00 u. in CC De Brouwerij: Lijndans en rummikub<br>
 <b>Woensdag 19 juni</b> om 14.00 u. in CC De Brouwerij: Kaarten<br>
 <b>Donderdag 20 juni</b> om 09.30 u. in CC De Brouwerij: Lijndans<br>
 <b>Donderdag 20 juni</b> om 13.45 u. vertrek aan de kerk: Wandelen en fietsen<br>
+<b>Maandag 24 juni</b> om 13.30 u. in CC De Brouwerij: Crea-atelier<br>
+<b>Dinsdag 25 juni</b> om 14.00 u. in Sporthal Nazareth: Petanque<br>
+<b>Woensdag 26 juni</b> om 14.00 u. in CC De Brouwerij: Schaken, een kennismaking<br>
+<b>Donderdag 27 juni</b> om 14.00 u. in CC De Brouwerij: Lijndans en rummikub<br>
 <br>
 meer info? Willy {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:093856535">09 385 65 35</a><br>
 <br>
@@ -119,14 +130,17 @@ meer info? Willy {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:093856535">09�
 
 #### OKRA TREFPUNT NAZARETH
 <br>
-Activiteiten van mei en juni 2024<br>
+Activiteiten van juni, juli en augustus 2024<br>
 <br>
-<b>Donderdag 13 juni</b> om 08.30 u. op parking achter de sporthal: Dagfietstocht OKRA Nazareth<br>
-<b>Dinsdag 18 juni</b> om 14.00 u. aan de Sporthal: Petanque<br>
 <b>Donderdag 20 juni</b> om 14.00 u. in cc Het Centrum: Lijndansen<br>
 <b>Vrijdag 21 juni</b> om 09.15 u. op parking achter de sporthal: Dagfietstocht Ouderenraad<br>
+<b>Dinsdag 25 juni</b> in cc Het Centrum: Kaarten, rummikub, crea<br>
 <br>
-!!! Voor meer info: tel. {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:093855371">09 385 53 71</a><br>
+<br>
+<br>
+Lijndansen om 14.00 u. in CC Het Centrum<br>
+<br>
+!!! Voor meer info: GSM {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:0484719871">0484 71 98 71</a><br>
 E - MAIL : {{<icon class="fa fa-envelope">}}&nbsp;<a href="okra.nazareth@gmail.com">okra.nazareth@gmail.com</a> WEB : okra-nazareth.be<br>
 <br>
 <br>
@@ -154,20 +168,6 @@ Na afloop krijg je nog een fijne attentie mee.<br>
 <br>
 Deze activiteit is gratis, maar inschrijving is wel verplicht!<br>
 Schrijf je in vóór <b>13 juni</b> door een mailtje te sturen naar {{<icon class="fa fa-envelope">}}&nbsp;<a href="sociaalhuis@gavere.be">sociaalhuis@gavere.be</a> of telefonisch op het nummer {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:093892950">09 389 29 50</a>.<br>
-<br>
-<br>
-<br>
-
-
-
-
-
-#### SAMANA NAZARETH
-<br>
-<b>Dinsdag 18 juni</b> om 14.00 u. In CC Het Centrum: Crea<br>
-<br>
-<br>
-<br>
 <br>
 <br>
 <br>

@@ -11,31 +11,6 @@ header_menu: true
 <br>
 <br>
 
-##### Donderdag 13 juni 2024  
-<dl><dt>&nbsp;</dt><dd>H. Antonius van Padua, priester en kerkleraar<br></dd><dt><b>08.00 u. Eke:</b></dt><dd>Eucharistie</dd>
-</dl>
-
-##### Vrijdag 14 juni 2024  
-<dl><dt><b>08.00 u. Eke:</b></dt><dd>Een bijzondere intentie</dd>
-</dl>
-
-##### Zaterdag 15 juni 2024  
-<dl><dt>&nbsp;</dt><dd>Maria op zaterdag<br></dd><dt><b>18.00 u. Eke:</b></dt><dd>Jgt. Rita De Bel, echtg. Frans Vanquathem en overleden familie<br>|Cyriel De Vriendt-Verschelden en familie|<br><i>Lector: Ingrid Clemmen</i></dd>
-</dl>
-
-##### Zondag 16 juni 2024  
-<dl><dt>&nbsp;</dt><dd>11e Zondag door het jaar<br></dd><dt><b>09.00 u. Gavere:</b></dt><dd>Jaargetijde voor Albert Van Lancker echtgenoot van Odette Bauters<br>Eeuwigdurend familie Sorgeloos (3)<br><i>Lector: Chris Jungbluth</i></dd>
-<dt><b>10.30 u. Nazareth:</b></dt><dd>Voor Maria De Ketelaere<br>voor René Bracke, echtgenoot van Rosa Van Ooteghem en overleden familie<br><i>Lector: Geert De Jans</i></dd>
-</dl>
-
-##### Maandag 17 juni 2024  
-<dl><dt><b>08.00 u. Eke:</b></dt><dd>Overledenen</dd>
-</dl>
-
-##### Dinsdag 18 juni 2024  
-<dl><dt><b>08.00 u. Eke:</b></dt><dd>Overleden ouders en zus</dd>
-</dl>
-
 ##### Donderdag 20 juni 2024  
 <dl><dt><b>08.00 u. Eke:</b></dt><dd>Overledenen</dd>
 </dl>
@@ -51,6 +26,31 @@ header_menu: true
 ##### Zondag 23 juni 2024  
 <dl><dt>&nbsp;</dt><dd>12e Zondag door het jaar<br></dd><dt><b>09.00 u. Gavere:</b></dt><dd>Voor eigen intenties<br><i>Lector: Karel Hubau</i></dd>
 <dt><b>10.30 u. Nazareth:</b></dt><dd>Overleden zoon en broer<br><i>Lector: Patrick Decock</i></dd>
+</dl>
+
+##### Maandag 24 juni 2024  
+<dl><dt>&nbsp;</dt><dd>Geboorte van de H. Johannes de Doper<br></dd><dt><b>08.00 u. Eke:</b></dt><dd>V.M.</dd>
+</dl>
+
+##### Dinsdag 25 juni 2024  
+<dl><dt><b>08.00 u. Eke:</b></dt><dd>Overleden ouders en zus</dd>
+</dl>
+
+##### Donderdag 27 juni 2024  
+<dl><dt>&nbsp;</dt><dd>H. Cyrillus van Alexandrië, bisschop en kerkvader<br></dd><dt><b>08.35 u. Nazareth:</b></dt><dd>Gebedsdienst in de kerk te Nazareth bij het afsluiten van het schooljaar</dd>
+</dl>
+
+##### Vrijdag 28 juni 2024  
+<dl><dt>&nbsp;</dt><dd>H. Irenaeus van Lyon, bisschop, martelaar en kerkvader<br></dd><dt><b>08.00 u. Eke:</b></dt><dd>Geen intentie</dd>
+</dl>
+
+##### Zaterdag 29 juni 2024  
+<dl><dt>&nbsp;</dt><dd>HH. Petrus en Paulus, apostelen<br></dd><dt><b>18.00 u. Eke:</b></dt><dd>Leontine Claus en overl. familie<br>Georges Moreels en echtg. Martha De Maerteleire en dochter Lydia Moreels<br><i>Lector: Hilde Vanmeirhaeghe</i></dd>
+</dl>
+
+##### Zondag 30 juni 2024  
+<dl><dt>&nbsp;</dt><dd>13e Zondag door het jaar<br></dd><dt><b>09.00 u. Gavere:</b></dt><dd>Voor eigen intenties<br><i>Lector: Martine Van Der Haegen</i></dd>
+<dt><b>10.30 u. Nazareth:</b></dt><dd>Stichtingen (8/15)<br><i>Lector: Patrick Van Hecke</i></dd>
 </dl>
 <br>
 <br>

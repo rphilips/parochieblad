@@ -11,6 +11,46 @@ header_menu: true
 
 
 
+#### DOOPSEL
+<br>
+Hebben het doopselsacrament ontvangen:<br>
+<br>
+<i>Mila Rita Vermeulen</i><br>
+<i>Noor Geens</i><br>
+<i>Cyriel en Oscar De Jaeger</i><br>
+<br>
+<br>
+<br>
+
+
+
+
+
+#### VORMSELCATECHESE PAROCHIE O.L.V. GEBOORTE NAZARETH
+<br>
+<b>Inschrijving voor het vormsel in 2025.</b><br>
+<br>
+Graag nodigen wij de ouders uit naar het inschrijfmoment op donderdag <b>12 september 2024</b> om 19.30 u. in de kerk te Nazareth.<br>
+<br>
+Op deze avond zal u meer uitleg krijgen over onze manier van werken en de planning. U kan uw kind dan ook, desgewenst, inschrijven.<br>
+<br>
+Voorwaarden voor het vormsel in 2025 zijn, geboren in 2013 en gedoopt zijn. Wonend op het grondgebied van de parochie Nazareth, of de lessen volgen in één van de drie lagere scholen op onze parochie.<br>
+<br>
+Verdere vragen en/of info voor inschrijving van je dochter/zoon, kan je bekomen via email naar {{<icon class="fa fa-envelope">}}&nbsp;<a href="catechese.nazareth@gmail.com">catechese.nazareth@gmail.com</a><br>
+<br>
+Of neem gerust contact met de vormselploeg:<br>
+<br>
+Ann De Vuyst - Gsm. {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:0470388649">0470 38 86 49</a><br>
+<br>
+Francine De Geyter - Gsm. {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:0476826093">0476 82 60 93</a><br>
+<br>
+<br>
+<br>
+
+
+
+
+
 #### VORMSELCATECHESE ST.AMANDUS - EKE
 <br>
 <figure><img src="images/pb-an.jpg" alt=" Vormsel... JA OF NEE? © Hilde Vanmeirhaeghe" style="max-height: 500px; max-width: 500px;" /><figcaption> Vormsel... JA OF NEE? © Hilde Vanmeirhaeghe</figcaption></figure><br>
@@ -49,7 +89,7 @@ gsm nr. {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:0497856710">0497 85 6
 <br>
 <figure><img src="images/pb-ter.jpg" alt=" Sint-Martinusbedevaartommegang © Beschermcomité Sint-Martinusbedevaartommegang Asper" style="max-height: 500px; max-width: 500px;" /><figcaption> Sint-Martinusbedevaartommegang © Beschermcomité Sint-Martinusbedevaartommegang Asper</figcaption></figure><br>
 <br>
-Op 6 & <b>7 juli</b> vieren wij Sint-Martinus, patroon van de parochie Asper<br>
+Op <b>6 & 7 juli</b> vieren wij Sint-Martinus, patroon van de parochie Asper<br>
 <br>
 Op <b>6 juli 2024</b> om 07.00 u. vertrekt de eeuwenoude Sint-Martinusbedevaartommegang<br>
 aan de kerk van Asper . In de volksmond wordt dit de grote ommegang genoemd.<br>
@@ -58,6 +98,63 @@ in de Pontweg  (Stationswijk)  te bereiken. Zie je op tegen een stevige ochten
 Dan kan je  aansluiten bij de bedevaartsmis  Na de mis trakteren we met een koek en een drankje.  Rond 09.00 u. keren we via de  Bernstraat terug naar de kerk van Asper (5 km) om  rond 10.00 u. de bedevaart af te sluiten.<br>
 <br>
 Kom ook op zondag <b>7 juli</b> rond 16.00 u. in de dorpskern en vooral aan de kerk om de kermissfeer op te snuiven. Maak de passage en de zegening van paarden, ruiters en koetsen mee ter gelegenheid van de Feestommegang van Sint-Martinus!<br>
+<br>
+<br>
+<br>
+
+
+
+
+
+#### 19 JUNI 2024 - DEKENALE ZOMERAVOND OP HET DOMEIN BORGWAL IN VURSTE
+<br>
+<figure><img src="images/pb-tui.jpg" alt=" Domein Borgwal © F. Neirinck" style="max-height: 500px; max-width: 500px;" /><figcaption> Domein Borgwal © F. Neirinck</figcaption></figure><br>
+<br>
+Het dekenaat Deinze telt vijf parochies : Deinze, Aalter, Zulte, Gavere-Eke-Nazareth en De Pinte-Latem. Afgevaardigden uit de parochieploegen van deze 5 parochies vormen samen de dekenale ploeg, die o.l.v. de deken het beleid voor het dekenaat uitstippelt.<br>
+<br>
+Op het einde van elk werkjaar komen alle parochieploegleden van de 5 parochies samen op een ontspannende dekenale zomeravond, volgens een beurtrol in één van de 5 parochies. Een uitstekende gelegenheid voor een leerrijk bezoek aan een bezienswaardigheid, een gezamenlijk gebedsmoment en een uitgebreid ontmoetingsmoment, waarbij de parochieploegleden bij een hapje en een drankje elkaar beter leren kennen.<br>
+<br>
+Dit jaar was het op woensdag <b>19 juni</b> de beurt aan de parochie in Gavere-Eke-Nazareth. De ongeveer 40 parochieploegleden werden er uitgenodigd voor een bezoek aan het prachtige domein "De Borgwal" in Vurste. Alle info over deze unieke plek vindt u op de website : {{<icon class="fa fa-external-link">}}&nbsp;<a href="https://www.ebergiste.be/contact/hoofdlocatie-borgwal/" taeget=_blank>https://www.ebergiste.be/contact/hoofdlocatie-borgwal/</a><br>
+<br>
+<figure><img src="images/pb-edo.jpg" alt=" Gids Domein Borgwal © F. Neirinck" style="max-height: 500px; max-width: 500px;" /><figcaption> Gids Domein Borgwal © F. Neirinck</figcaption></figure><br>
+<br>
+Het was een (tot dan zeldzame) mooie zomeravond toen de gids onze groep op sleeptouw nam voor een uitgebreide en boeiende rondleiding in het 18 ha grote domein. Voor de meesten was het een echte openbaring om kennis te maken met het prachtig stuk natuur rond het Kasteel Borgwal.<br>
+<br>
+<figure><img src="images/pb-sed.jpg" alt=" Gebedsmoment © F. Neirinck" style="max-height: 500px; max-width: 500px;" /><figcaption> Gebedsmoment © F. Neirinck</figcaption></figure><br>
+<br>
+Midden die indrukwekkend mooie natuur had de parochieploeg van de parochie in Gavere-Eke-Nazareth gezorgd voor een inspirerende gebedsdienst.<br>
+<br>
+<figure><img src="images/pb-neo.jpg" alt=" Toespraak pastoor Piet © F. Neirinck" style="max-height: 500px; max-width: 500px;" /><figcaption> Toespraak pastoor Piet © F. Neirinck</figcaption></figure><br>
+<br>
+Na de verkwikkende tocht door het domein was het tijd voor het ruime ontmoetingsmoment, dat ingezet werd door een mooi dankwoord van pastoor Piet Herregodts (Parochie in De Pinte-Latem) aan het adres van Rudy Van Acker, die als deken van het dekenaat Deinze opgevolgd wordt door Patrick Derde.<br>
+<br>
+En Patrick schonk Rudy in naam van de Parochie in Aalter een dekentje.<br>
+<br>
+<figure><img src="images/pb-sui.jpg" alt=" Dekentje cadeau Aalter © F. Neirinck" style="max-height: 500px; max-width: 500px;" /><figcaption> Dekentje cadeau Aalter © F. Neirinck</figcaption></figure><br>
+<br>
+Maar ook de andere vier parochies lieten zich niet onbetuigd en overstelpten Rudy met heerlijke geschenkjes, zoals hier op de foto chocolade uit Zulte.<br>
+<br>
+<figure><img src="images/pb-cur.jpg" alt=" Cadeaus van alle parochies © F. Neirinck" style="max-height: 500px; max-width: 500px;" /><figcaption> Cadeaus van alle parochies © F. Neirinck</figcaption></figure><br>
+<br>
+Op deze manier werd het dekenaal werkjaar besloten, met de wens voor een deugddoende vakantie en daarna opnieuw iedereen met nieuw enthousiasme aan de slag, elk op zijn of haar plaats in ons dekenaat Deinze.<br>
+Verslag: F. Neirinck<br>
+<br>
+<br>
+<br>
+
+
+
+
+
+#### VIERING OP HET CHRISTIANA-DOMEIN DIKKELVENNE
+<br>
+<figure><img src="images/pb-duo1.jpg" alt=" Christiana-viering © Chris JungBluth" style="max-height: 500px; max-width: 500px;" /><figcaption> Christiana-viering © Chris JungBluth</figcaption></figure><br>
+<figure><img src="images/pb-duo2.jpg" alt=" Christiana-viering © Chris JungBluth" style="max-height: 500px; max-width: 500px;" /><figcaption> Christiana-viering © Chris JungBluth</figcaption></figure><br>
+<br>
+Naar jaarlijkse gewoonte is er op zondag <b>28 juli</b> om 15.00 u. de Christiana-viering in open lucht op het Christiana-domein te Dikkelvenne. De viering wordt muzikaal omlijst door Conny en Saskia van Klanklichaam. Dit jaar gedenken we bij deze FERM troostplek in het bijzonder de overledenen van het voorbije jaar, FERMleden en diaken Paul Geerinck.<br>
+Iedereen van harte welkom om mee te vieren.<br>
+<br>
+Weetje : Vanaf april tot oktober wordt de kapel op de eerste zondag van de maand van 14.00 u. tot 17.00 u. opengesteld voor het publiek, met vrijwillige gidsen Frank Roegiest en Paul Deprez. Daarbuiten gebeuren ook gidsbeurten en begeleide wandelingen voor school, en voor belangstellenden en groepen.<br>
 <br>
 <br>
 <br>
@@ -95,23 +192,16 @@ Het Feestcomite<br>
 <br>
 <figure><img src="images/pb-hos.jpg" alt=" Vakantie © het Nieuwsblad" style="max-height: 500px; max-width: 500px;" /><figcaption> Vakantie © het Nieuwsblad</figcaption></figure><br>
 <br>
-<b>Wat betekent dit voor misintenties en mededelingen? Tegen wanneer moeten die uiterlijk doorgegeven worden aan de redactie?</b><br>
+!!!! Nummer 26 dat u nu in handen heeft bevat de intenties en de mededelingen van <b>27 juni</b> tot en met <b>21 juli</b>.<br>
 <br>
-<b>!!!! Nummer 26 verschijningsdatum 26 juni 2024</b><br>
-bevat de intenties en mededelingen van <b>29 juni 2024</b> tot en met <b>19 juli 2024</b><br>
-meedelen aan de redactie uiterlijk vrijdag <b>21 juni 2024</b><br>
+!!! Nummer 27 en 28 verschijnen niet<br>
 <br>
-<b>!!! Nummer 27 en 28 verschijnen niet</b><br>
+!!! Nummer 29 verschijnt op <b>17 juli 2024</b><br>
+bevat de intenties en mededelingen tot en met <b>9 augustus 2024</b><br>
 <br>
-<b>!!! Nummer 29 verschijningsdatum 17 juli 2024</b><br>
-bevat de intenties en mededelingen van <b>20 juli 2024</b> tot en met <b>9 augustus 2024</b><br>
-meedelen aan de redactie uiterlijk <b>27 juni 2024</b><br>
+!!! Nummer 30 en 31 verschijnen niet<br>
 <br>
-<b>!!! Nummer 30 en 31 verschijnen niet</b><br>
-<br>
-<b>!!! Nummer 32- verschijningsdatum 7 augustus terug volgens de gewone regeling</b><br>
-<br>
-<b>HOU ZEKER REKENING MET DEZE WIJZIGING!</b><br>
+!!! Nummer 32- verschijningsdatum <b>7 augustus</b> terug volgens de gewone regeling<br>
 <br>
 <br>
 <br>
@@ -120,16 +210,9 @@ meedelen aan de redactie uiterlijk <b>27 juni 2024</b><br>
 
 
 
-#### VAKANTIE = ANDERS LEVEN MET GOD ALS REISGENOOT
+#### IN DE OMHALING IN GAVERE: DRIE PAASEITJES...
 <br>
-<figure><img src="images/pb-vis.jpg" alt=" Vakantie = anders leven © Kerknet" style="max-height: 500px; max-width: 500px;" /><figcaption> Vakantie = anders leven © Kerknet</figcaption></figure><br>
-<br>
-Vakantie is niet zomaar luieren, niets doen. Het is eerder "anders" leven. Wie het hele jaar gewerkt heeft, zal er deugd aan hebben om op zijn of haar manier te genieten. s'Avonds een fietstochtje maken omringd worden door de natuur, een ontspannend boek lezen of juist dat boek dat al lang onder het stof ligt kan wonderen doen. Wie in de stad woont zal met de kinderen meetrekken naar de vele speelpleintjes. Grootouders krijgen bezoek van hun kleinkinderen die ze eindelijk weer kunnen verwennen. Volwassenen en jongeren zetten zich vrijwillig in. Een stop onderweg aan een kabbelende rivier of bij een kapelletje. Bij regenweer is er kans voor een museumbezoek. Jongeren trekken met hun begeleiders op kamp en genieten van het spelen en het buiten leven. Vaak worden er op reis nieuwe dingen ontdekt. En wat misschien nog het meest fijn is in de vakantie is dat mama en papa samen met de kinderen tijd hebben voor elkaar. Rustig, op ieders ritme.<br>
-<br>
-Maar laten we vooral God ademen in de vakantie, laten we anders leven met God als reisgenoot. Of je er nu op uit trekt of thuis blijft, even afstand nemen van alle vaste verplichtingen en drukte doet je goed. Rust en stilte laat je het Goddelijke van het leven ervaren. Kunnen we nog verwonderd zijn om Gods schepping, kunnen we met verbazing kijken naar het vallen van de nacht, kunnen we nog tijd verdoen aan de rand van een beek, ...? Als dat zo is kijk en ervaar dan; je hart zal rust vinden en je laten kijken verder van jezelf. Dan zullen kleine en gewone dingen je nog kunnen raken. Je zal openbloeien en misschien gaan luisteren naar God achter dit alles. Je hoeft het daarom niet ver te zoeken. Je zal Hem vinden in de stilte van een kerkgebouw of bij elkaar, in Zijn woord dat me mogen horen, in het lezen van bezinnend boek, in een mooie zonsondergang, in een zachte bries, ... Het is inspirerend als we de adem van Gods Geest mogen voelen in een geluk dat alles omvat.<br>
-<br>
-Aan alle lezers een Zalige vakantietijd gewenst.<br>
-Vanwege pastoor Guy en het parochieteam<br>
+<figure><img src="images/pb-ne.jpg" alt=" Omhaling Gavere © Guy Claus" style="max-height: 500px; max-width: 500px;" /><figcaption> Omhaling Gavere © Guy Claus</figcaption></figure><br>
 <br>
 <br>
 <br>
@@ -138,48 +221,40 @@ Vanwege pastoor Guy en het parochieteam<br>
 
 
 
-#### DAG VAN DE MANTELZORG - 23 JUNI
+#### HET IS WEER VAKANTIETIJD!
 <br>
-<figure><img src="images/pb-us.jpg" alt=" Dag van de mantelzorg © steunpunt mantelzorg" style="max-height: 500px; max-width: 500px;" /><figcaption> Dag van de mantelzorg © steunpunt mantelzorg</figcaption></figure><br>
+<figure><img src="images/pb-via.jpg" alt=" Fijne vakantie © Kerknet" style="max-height: 500px; max-width: 500px;" /><figcaption> Fijne vakantie © Kerknet</figcaption></figure><br>
 <br>
-Wist je dat 1 op 5 Vlamingen zorgt voor een persoon met een ziekte, handicap of een andere zorgbehoefte? En wist je dat het niet alleen volwassenen of oudere mensen zijn die zorgen voor hun naaste, maar dat ook kinderen en jongeren op dit moment kosteloos, vol overgave en met zelfopoffering voor iemand zorgen?<br>
+Juli en augustus, DE vakantiemaanden bij uitstek. Zeker voor mensen met schoolplichtige kinderen. De spanning rond examenuitslagen is geluwd. Voor de enen is alles goed afgelopen, voor anderen wacht er nog wat werk met vakantieopdrachten of herkansingen. Ook volwassenen hebben toegeleefd naar het moment. Sommigen dromen er van uren op het strand te kunnen liggen of van het verkennen van onbekende streken. Of wordt de vakantieperiode dan toch maar gebruikt om de noodzakelijke werken aan huis en tuin eindelijk uit te voeren?<br>
 <br>
-Het is een dag waarop er extra aandacht is voor de 2 miljoen Vlamingen die mantelzorger zijn. Een dag om de term mantelzorg te verhelderen en stil te staan bij de vaak onzichtbare en onmisbare krachten van de zorg. Het is een dag waar we de onmetelijke waarde van mantelzorgers in de verf zetten. Want de enorme inzet en toewijding waarmee mantelzorgers zorg verlenen is meer dan bewonderingswaardig. Hun engagement is namelijk niet vanzelfsprekend.<br>
+Zijn er in het evangelie ook sporen te vinden dat Jezus op vakantie ging? Vond Hij dat zijn volgelingen ook op vakantie moesten gaan of was Hij er misschien wel helemaal tegen? Inderdaad, Jezus heeft niet letterlijk gesproken over het wel of niet op vakantie gaan. Wat niet verwonderlijk was. Het woord zelf bestond nog niet. In het evangelie volgens Marcus (6,30-32) beschrijft de evangelist dat de apostelen na een zending terug bij Jezus komen en dat ze Hem alles vertellen wat ze gedaan hadden en hoe ze onderricht gegeven hadden. Waarop Jezus antwoordde: "Ga nu maar naar een eenzame plaats om alleen te zijn en wat uit te rusten". De houding van Jezus wijst er op dat Hij zeer goed beseft dat na een ernstige inspanning ook recuperatie moet volgen. Als we het evangelieverhaal verder lezen zien we dat er van die rust ditmaal niet veel in huis komt. Vele mensen die Jezus en zijn apostelen gehoord hadden bleven hen volgen. Ze wisten waar ze gingen uitrusten met als gevolg dat de berghelling al vol met volk zat toen zij er aan kwamen . Tweeduizend jaar geleden waren er geen "broodjeszaken". De mensen echter hadden honger. En daar deed, volgens Marcus, Jezus zijn eerste broodvermenigvuldiging. Mensen die toen, te voet, op weg gingen hadden dikwijls mondvoorraad bij. Zou het kunnen zijn dat Jezus de mensen zo ver heeft gekregen dat wie brood bij had het deelde met de anderen? Uit het verslag van Marcus blijkt duidelijk dat Jezus heel goed beseft hoe belangrijk het is om je in het leven helemaal in te zetten, te werken, het beste van jezelf te geven (thuis, in familie, in je beroep, in vrijwilligerswerk en noem maar op) maar ook regelmatig jezelf rust te gunnen. Zonder rust, zonder voldoende eten en drinken begeef je het vroeg of laat. Het is geen toeval dat er in onze hectische wereld van vandaag zoveel gesproken en geschreven wordt over "burn-out" en "depressie". Machines draaien vierentwintig uur per dag, 365 dagen per jaar, maar mensen zijn geen machines. Zondagsrust is een begrip dat de wereld uit moet. Een zondag moet ook geld op brengen. Ja, zonder geld kan een mens niet leven, maar met alleen maar geld ook niet. En dan zijn er mensen die er onder door gaan. Hun lichaam en geest zijn zo vermoeid dat ze niet zien dat de stoplichten op rood staan. En op een dag zitten ze dan vast. Elke mens is het aan zichzelf en aan de wereld verplicht om voldoende te rusten en zorg te dragen voor zijn lichaam. Vanuit die momenten kan je er dan weer ten volle tegenaan gaan.<br>
+En zo blijkt het nog maar eens dat de boodschap van het evangelie nog bijlange niet ouderwets en voorbijgestreefd is. Ook al wilden de Heer en zijn apostelen zeker die boodschap uitdragen naar de ganse wereld, toch gunden ze zichzelf wel op tijd wat rust. Bij het op vakantie gaan denken velen meestal aan op reis gaan en weg gaan, en dat kan het ook zijn maar zo hoeft het ook niet te zijn. Ga eens weg uit de drukte van iedere dag en kijk ook eens waar je mee bezig bent. Loskomen uit vast geroeste gewoonten kan al wonderen doen.<br>
 <br>
-Dank je wel mantelzorger... je verdient wel honderd pluimen want wat je doet is echt bijzonder.<br>
+Op een beetje afstand van de drukte kun je ook inzien wat echt belangrijk is. Een echt zalige vakantie is het als je zelf voelt dat je naar de wortels van het leven hebt gekeken, dat je een beter mens bent geworden zodat je vanuit die rust, stilte en bezinning weer verder kan.<br>
 <br>
+<b>VAKANTIE... TIJD OM MENS TE ZIJN</b><br>
 <br>
+<i>Mens, neem even de tijd,</i><br>
+<i>heel even maar,</i><br>
+<i>om je naaste te zien,</i><br>
+<i>om hem of haar te ontmoeten</i><br>
+<i>op je levensweg,</i><br>
+<i>om in stilte</i><br>
+<i>Gods schepping te bewonderen,</i><br>
+<i>om te genieten,</i><br>
+<i>om dankbaar te zijn,</i><br>
+<i>om te denken</i><br>
+<i>dat elke nieuwe dag</i><br>
+<i>een gave uit Gods hand is.</i><br>
 <br>
-
-
-
-
-
-#### 24 JUNI: GEBOORTE VAN JOHANNES DE DOPER
-<br>
-<figure><img src="images/pb-aro.jpg" alt=" Geboorte Johannes De Doper © Kerknet" style="max-height: 500px; max-width: 500px;" /><figcaption> Geboorte Johannes De Doper © Kerknet</figcaption></figure><br>
-<br>
-Op deze dag herdenkt de Rooms-Katholieke kerk de geboorte van Johannes de Doper. Volgens het evangelie van Lucas was hij de zoon van de priester Zacharias en Elisabeth, de nicht van Jezus' moeder Maria: Johannes de Doper was ten tijde van Jezus een boeteprediker in de woestijn van Juda. Hij doopte mensen met water om hen van zonden te reinigen. Hij was de eerste mens die Jezus aanwees als de Messias, de langverwachte redder van het volk van Israël. Daarom wordt hij de Voorloper van Christus genoemd. Johannes werd onthoofd op last van Herodes Antipas die hij van overspel met Herodias (een bekende vrouw uit de familie van de Herodianen) had beschuldigd. Herodes voelde zich beledigd en liet Johannes gevangen nemen. Hij had hem eigenlijk willen laten doden, maar hij durfde dat niet, bang dat het volk dan in opstand zou komen. Toen de dochter van Herodias op een dag de koning door haar verleidelijke dans had vermaakt, vroeg Herodes Antipas hoe hij haar zou kunnen belonen. Door haar moeder opgestookt, zei ze: "Geef mij hier op een schotel het hoofd van Johannes de Doper". De koning werd bedroefd, maar vanwege zijn eed en omwille van zijn gasten gaf hij het bevel om het haar te geven. En hij liet Johannes in de gevangenis onthoofden. Zijn hoofd werd op een schotel gebracht en aan het meisje gegeven, en zij bracht het naar haar moeder. Zijn leerlingen kwamen het lijk halen en ze begroeven het, en ze gingen Jezus op de hoogte stellen. Toen Jezus dat hoorde, week Hij met een boot uit naar een eenzame plaats om alleen te zijn (Mt 14: 8-13).<br>
-<br>
-<br>
-<br>
-
-
-
-
-
-#### 29 JUNI - FEEST VAN DE APOSTELEN PETRUS EN PAULUS
-<br>
-<b>Wie waren zij?</b><br>
-<br>
-<figure><img src="images/pb-ops.jpg" alt=" Petrus - Sint-Baafskathedraal Gent © Christine Piens" style="max-height: 500px; max-width: 500px;" /><figcaption> Petrus - Sint-Baafskathedraal Gent © Christine Piens</figcaption></figure><br>
-<br>
-<b>PETRUS</b> was een van de twaalf apostelen en heette oorspronkelijk Simon. Hij was de broer van Andreas en visser van beroep. Geboren in Betsaïda woonde hij ten tijde van zijn ontmoeting met Jezus in Kafarnaüm. Hij was gehuwd.<br>
-Met Jacobus en Johannes behoorde hij tot de drie bevoorrechte leerlingen die getuigen mochten zijn van Jezus' glorie (de opwekking van Jaïrus' dochtertje, de gedaanteverandering op de berg Thabor) en van zijn vernedering in de hof van Olijven. Petrus verloochende daar Jezus tot driemaal toe. Toch gaf de verrezen Heer hem de opdracht zijn schapen te weiden. Hij kreeg daarmee de functie van "Rots" toegezegd waarop de gelovige gemeenschap moet gefundeerd zijn. Uit de Handelingen van de Apostelen blijkt ook duidelijk dat hij de leiding van de vroege kerk op zich nam. Net als Paulus verbleef Petrus in Rome. Hij stierf er de marteldood, volgens de overlevering de kruisdood tijdens de vervolging door keizer Nero (64-67 na Christus).<br>
-<br>
-<figure><img src="images/pb-vix.jpg" alt=" Paulus - Sint-Baafskathedraal Gent © Christine Piens" style="max-height: 500px; max-width: 500px;" /><figcaption> Paulus - Sint-Baafskathedraal Gent © Christine Piens</figcaption></figure><br>
-<br>
-<b>PAULUS</b> wiens Joodse naam Saul was, werd in Tarsus (Zuid-Oost Turkije) geboren. Paulus heeft aanvankelijk het christendom hartgrondig verfoeid en vervolgd. Maar op weg naar Damascus voelde hij zich door de genade van God gegrepen; daar verscheen hem, zoals hij het later zou uitdrukken, de Heer, die hem riep tot het geloof en het apostelschap onder "heidenvolken". Deze belangrijke ommekeer had plaats enkele jaren na de dood van Jezus. Paulus ondernam drie grote missiereizen. Kort voor het jaar 50 nam hij ook deel aan het apostelconcilie van Jeruzalem, waar Paulus' zending onder de heidenen officieel werd erkend. Omstreeks Pinksteren in het jaar 56 werd hij te Jeruzalem door de Romeinen gearresteerd en twee jaar te Caesarea gevangen gehouden. Na een beroep op de keizer werd hij naar Rome overgebracht waar hij nog twee jaar in gevangenschap doorbracht en onder keizer Nero de marteldood stierf.<br>
+<i>Mens, neem even de tijd,</i><br>
+<i>heel even maar,</i><br>
+<i>om te kijken</i><br>
+<i>waar je kunt helpen.</i><br>
+<i>En neem ook de tijd</i><br>
+<i>om gelukkig te zijn met elkaar,</i><br>
+<i>door uit jezelf te treden</i><br>
+<i>en ruimte te geven aan een ander.</i><br>
 <br>
 <br>
 <br>

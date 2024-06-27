@@ -75,30 +75,23 @@ Betalen : op rekening van Ferm Asper <b>{{<icon class="fa fa-piggy-bank">}}&nbsp
 
 
 
-#### FERM DIKKELVENNE
-<br>
-Op donderdagvoormiddag <b>20 juni 2024</b> om 09.30 u. bezoeken we <b>Breydel</b> in Gavere.<br>
-We worden er verwelkomd door de gids met koffie(thee/water) en laten ons inspireren door het veelzijdige en boeiende verhaal achter Breydel. Tijdens dit drie uur durende bedrijfsbezoek maken we kennis met het hele productieproces.<br>
-<br>
-We maken van dichtbij mee hoe deze unieke lekkernijen worden gecreëerd. We vernemen hoe het bedrijf zich inzet voor duurzaamheid en over hun sociaal engagement. Afsluiten wordt gedaan met een uitgebreide degustatie van de Breydelproducten, een streekbier of alternatief, en we ontvangen er een korting bon t.w.v. EUR 4 Op deze unieke activiteit is iedereen welkom. De prijs bedraagt 13 EUR voor FERM leden en hun gezel, niet FERM leden betalen 16 EUR. Inschrijven is verplicht en dit tot en met dinsdag <b>12 juni 2024</b> bij Nadine De schinkel {{<icon class="fa fa-envelope">}}&nbsp;<a href="nadinedeschinkel@outlook.com">nadinedeschinkel@outlook.com</a>> of tel {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:093280018">09 328 00 18</a> Inschrijving is definitief na ontvangst van jullie betaling via overschrijving op rekeningnummer <b>{{<icon class="fa fa-piggy-bank">}}&nbsp;BE49 8913 7412 5471</b> - van Ferm Dikkelvenne<br>
-<br>
-<br>
-<br>
-
-
-
-
-
 #### LDC DEN OEVER - GAVERE
 <br>
-<b>Woensdag 19 juni</b> om 08.30 u.: Zomers ontbijt<br>
-<b>Woensdag 19 juni</b> om 14.00 u.: Diamond painting<br>
-<b>Donderdag 20 juni</b> om 10.00 u.: Bewegen op muziek<br>
-<b>Dinsdag 25 juni</b> om 10.00 u.: Yoga<br>
-<b>Dinsdag 25 juni</b> om 14.00 u.: Lijndansen, portrettekenen, spelletjesnamiddag<br>
 <b>Woensdag 26 juni</b> om 14.00 u.: Bingo<br>
 <b>Donderdag 27 juni</b> om 10.00 u.: Bewegen op muziek<br>
 <b>Donderdag 27 juni</b> om 14.00 u.: Bonte baknamiddag : mikado<br>
+<br>
+<b>Dinsdag 2 juli</b> om 14.00 u.: Lijndansen, portrettekenen en spelletjesnamiddag<br>
+<b>Woensdag 3 juli</b> om 14.00 u.: UNO-namiddag<br>
+<b>Donderdag 4 juli</b> om 14.00 u.: Samen breien- Granny square haken<br>
+<b>Maandag 8 juli</b> om 14.00 u.: IJsjesnamiddag voor mantelzorgers<br>
+<b>Dinsdag 9 juli</b> om 14.00 u.: Lijndansen, Portrettekenen, spelletjesnamiddag<br>
+<b>Woensdag 10 juli</b> om 14.00 u.: Vragen staat vrijdag<br>
+<b>Donderdag 11 juli</b> om 14.00 u.: Bingo<br>
+<b>Maandag 15 juli</b> om 14.00 u.: Coupe aardbei<br>
+<b>Dinsdag 16 juli</b> om 14.00 u.: Lijndansen, portretttekenen, spelletjesnamiddag<br>
+<b>Woensdag 17 juli</b> om 08.30 u.: Ontbijt<br>
+<b>Donderdag 18 juli</b> om 14.00 u.: Fietstocht<br>
 <br>
 <br>
 <br>
@@ -111,14 +104,23 @@ We maken van dichtbij mee hoe deze unieke lekkernijen worden gecreëerd. We vern
 <br>
 <b>OKRA-TREFPUNT EKE nodigt uit...</b><br>
 <br>
-<b>Woensdag 19 juni</b> om 14.00 u. in CC De Brouwerij: Kaarten<br>
-<b>Donderdag 20 juni</b> om 09.30 u. in CC De Brouwerij: Lijndans<br>
-<b>Donderdag 20 juni</b> om 13.45 u. vertrek aan de kerk: Wandelen en fietsen<br>
-<b>Maandag 24 juni</b> om 13.30 u. in CC De Brouwerij: Crea-atelier<br>
-<b>Dinsdag 25 juni</b> om 14.00 u. in Sporthal Nazareth: Petanque<br>
-<b>Woensdag 26 juni</b> om 14.00 u. in CC De Brouwerij: Schaken, een kennismaking<br>
 <b>Donderdag 27 juni</b> om 14.00 u. in CC De Brouwerij: Lijndans en rummikub<br>
+<b>Vrijdag 28 juni</b> om 08.00 u. vertrek aan de kerk: Daguitstap Heuvelland<br>
 <br>
+<b>Maandag 1 juli</b> om 14.00 u. in CC De Brouwerij: Schaakinitiatie 1<br>
+<b>Woensdag 3 juli</b> om 14.00 u. in CC De Brouwerij: Kaarten<br>
+<b>Donderdag 4 juli</b> om 09.30 u. in CC De Brouwerij: Lijndans<br>
+<b>Donderdag 4 juli</b> om 13.45 u. vertrek aan de kerk: Wandelen en fietsen<br>
+<b>Maandag 8 juli</b> om 13.30 u. in CC De Brouwerij: Crea-atelier<br>
+<b>Dinsdag 9 juli</b> om 14.00 u. in Sporthal Nazareth: Petanque<br>
+<b>Donderdag 11 juli</b> om 14.00 u. in CC De Brouwerij: Lijndans en rummikub<br>
+<b>Maandag 15 juli</b> om 14.00 u. in CC De Brouwerij: Schaakinitiatie vervolg (2)<br>
+<b>Woensdag 17 juli</b> om 14.00 u. in CC De Brouwerij: Kaarten<br>
+<b>Donderdag 18 juli</b> om 09.30 u. in CC De Brouwerij: Lijndans<br>
+<b>Donderdag 18 juli</b> om 13.45 u. vertrek aan de kerk: Wandelen en fietsen<br>
+<br>
+<br>
+Wil je erbij zijn? Je bent welkom!<br>
 meer info? Willy {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:093856535">09 385 65 35</a><br>
 <br>
 <br>
@@ -132,10 +134,15 @@ meer info? Willy {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:093856535">09�
 <br>
 Activiteiten van juni, juli en augustus 2024<br>
 <br>
-<b>Donderdag 20 juni</b> om 14.00 u. in cc Het Centrum: Lijndansen<br>
-<b>Vrijdag 21 juni</b> om 09.15 u. op parking achter de sporthal: Dagfietstocht Ouderenraad<br>
-<b>Dinsdag 25 juni</b> in cc Het Centrum: Kaarten, rummikub, crea<br>
-<br>
+<b>Maandag 1 juli</b> om 09.30 u. in kleine zaal cc Het Centrum: Bestuursvergadering<br>
+<b>Dinsdag 2 juli</b> om 14.00 u. aan de Sporthal: Petanque<br>
+<b>Woensdag 3 juli</b> om 08.00 u. parking achter de sporthal: Verrassingsreis<br>
+<b>Donderdag 4 juli</b> om 14.00 u. in CC Het Centrum: Lijndansen<br>
+<b>Maandag 8 juli</b> om 13.30 u. aan cc Het Centrum: Wandelen<br>
+<b>Dinsdag 9 juli</b> om 14.00 u. in CC Het Centrum: Kaarten, rummikub<br>
+<b>Donderdag 11 juli</b> om 14.00 u. in CC Het Centrum: Fietsen<br>
+<b>Dinsdag 16 juli</b> om 14.00 u. aan de Sporthal: Petanque<br>
+<b>Donderdag 18 juli</b> om 14.00 u. in CC Het Centrum: Lijndansen<br>
 <br>
 <br>
 Lijndansen om 14.00 u. in CC Het Centrum<br>
@@ -150,24 +157,11 @@ E - MAIL : {{<icon class="fa fa-envelope">}}&nbsp;<a href="okra.nazareth@gmail.c
 
 
 
-#### SAMANA ASPER
+#### SAMANA NAZARETH
 <br>
-Van harte welkom op onze spelnamiddagen. Noteer volgende datum : <b>13 juni</b> om 14.00 u.<br>
+<b>Dinsdag 9 juli</b> om 14.00 u. In CC Het Centrum: Crea<br>
 <br>
-Deze gezellige bijeenkomsten vinden plaats in het OC-Martinus in de Hulstraat te Asper.<br>
-Graag inschrijven bij Ann Bergez: Haagstraat 70, {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:0477661859">0477 66 18 59</a> of {{<icon class="fa fa-envelope">}}&nbsp;<a href="annbergez@gmail.com">annbergez@gmail.com</a><br>
 <br>
-<b>Dag van de mantelzorger</b><br>
-<br>
-Ben jij mantelzorger?<br>
-Of je nu voor een familielid, vriend of gewoon een buur zorgt, jouw inzet verdient erkenning!<br>
-<br>
-Kom dus zeker ontspannen en genieten tijdens de Dag van de Mantelzorger op donderdag <b>20 juni</b> om 14 uur in OC Martinus, Hulstraat 27, Asper.<br>
-Vertelster Hilde Rogge vult de namiddag met mooie nostalgische verhalen, terwijl jij je met cava, koffie en taart laat verwennen.<br>
-Na afloop krijg je nog een fijne attentie mee.<br>
-<br>
-Deze activiteit is gratis, maar inschrijving is wel verplicht!<br>
-Schrijf je in vóór <b>13 juni</b> door een mailtje te sturen naar {{<icon class="fa fa-envelope">}}&nbsp;<a href="sociaalhuis@gavere.be">sociaalhuis@gavere.be</a> of telefonisch op het nummer {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:093892950">09 389 29 50</a>.<br>
 <br>
 <br>
 <br>

@@ -15,21 +15,9 @@ header_menu: true
 <br>
 Hebben het doopselsacrament ontvangen:<br>
 <br>
-<i>Anna Vercruysse</i>, dochtertje van Karel en Ellen Martens<br>
-<i>Elise Van de Vijver</i>, dochtertje van Koen en Angelique Schurgens<br>
-<br>
-<br>
-<br>
-
-
-
-
-
-#### OVERLIJDEN
-<br>
-We namen in de kerk afscheid van:<br>
-<br>
-<i>Cyriel Van Hoorde</i>, 80 j., echtg. Delphine Rydant<br>
+<i>Mila Rita Vermeulen</i><br>
+<i>Noor Geens</i><br>
+<i>Cyriel en Oscar De Jaeger</i><br>
 <br>
 <br>
 <br>
@@ -97,6 +85,67 @@ gsm nr. {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:0497856710">0497 85 6
 
 
 
+#### SINT MARTINUS OMMEGANG TE ASPER
+<br>
+<figure><img src="images/pb-ter.jpg" alt=" Sint-Martinusbedevaartommegang © Beschermcomité Sint-Martinusbedevaartommegang Asper" style="max-height: 500px; max-width: 500px;" /><figcaption> Sint-Martinusbedevaartommegang © Beschermcomité Sint-Martinusbedevaartommegang Asper</figcaption></figure><br>
+<br>
+Op <b>6 & 7 juli</b> vieren wij Sint-Martinus, patroon van de parochie Asper<br>
+<br>
+Op <b>6 juli 2024</b> om 07.00 u. vertrekt de eeuwenoude Sint-Martinusbedevaartommegang<br>
+aan de kerk van Asper . In de volksmond wordt dit de grote ommegang genoemd.<br>
+We stappen zo'n  5 km langs de grensstraten van Asper om rond 08.00 u. de Sint-Martinuskapel<br>
+in de Pontweg  (Stationswijk)  te bereiken. Zie je op tegen een stevige ochtendwandeling?<br>
+Dan kan je  aansluiten bij de bedevaartsmis  Na de mis trakteren we met een koek en een drankje.  Rond 09.00 u. keren we via de  Bernstraat terug naar de kerk van Asper (5 km) om  rond 10.00 u. de bedevaart af te sluiten.<br>
+<br>
+Kom ook op zondag <b>7 juli</b> rond 16.00 u. in de dorpskern en vooral aan de kerk om de kermissfeer op te snuiven. Maak de passage en de zegening van paarden, ruiters en koetsen mee ter gelegenheid van de Feestommegang van Sint-Martinus!<br>
+<br>
+<br>
+<br>
+
+
+
+
+
+#### 19 JUNI 2024 - DEKENALE ZOMERAVOND OP HET DOMEIN BORGWAL IN VURSTE
+<br>
+<figure><img src="images/pb-tui.jpg" alt=" Domein Borgwal © F. Neirinck" style="max-height: 500px; max-width: 500px;" /><figcaption> Domein Borgwal © F. Neirinck</figcaption></figure><br>
+<br>
+Het dekenaat Deinze telt vijf parochies : Deinze, Aalter, Zulte, Gavere-Eke-Nazareth en De Pinte-Latem. Afgevaardigden uit de parochieploegen van deze 5 parochies vormen samen de dekenale ploeg, die o.l.v. de deken het beleid voor het dekenaat uitstippelt.<br>
+<br>
+Op het einde van elk werkjaar komen alle parochieploegleden van de 5 parochies samen op een ontspannende dekenale zomeravond, volgens een beurtrol in één van de 5 parochies. Een uitstekende gelegenheid voor een leerrijk bezoek aan een bezienswaardigheid, een gezamenlijk gebedsmoment en een uitgebreid ontmoetingsmoment, waarbij de parochieploegleden bij een hapje en een drankje elkaar beter leren kennen.<br>
+<br>
+Dit jaar was het op woensdag <b>19 juni</b> de beurt aan de parochie in Gavere-Eke-Nazareth. De ongeveer 40 parochieploegleden werden er uitgenodigd voor een bezoek aan het prachtige domein "De Borgwal" in Vurste. Alle info over deze unieke plek vindt u op de website : {{<icon class="fa fa-external-link">}}&nbsp;<a href="https://www.ebergiste.be/contact/hoofdlocatie-borgwal/" taeget=_blank>https://www.ebergiste.be/contact/hoofdlocatie-borgwal/</a><br>
+<br>
+<figure><img src="images/pb-edo.jpg" alt=" Gids Domein Borgwal © F. Neirinck" style="max-height: 500px; max-width: 500px;" /><figcaption> Gids Domein Borgwal © F. Neirinck</figcaption></figure><br>
+<br>
+Het was een (tot dan zeldzame) mooie zomeravond toen de gids onze groep op sleeptouw nam voor een uitgebreide en boeiende rondleiding in het 18 ha grote domein. Voor de meesten was het een echte openbaring om kennis te maken met het prachtig stuk natuur rond het Kasteel Borgwal.<br>
+<br>
+<figure><img src="images/pb-sed.jpg" alt=" Gebedsmoment © F. Neirinck" style="max-height: 500px; max-width: 500px;" /><figcaption> Gebedsmoment © F. Neirinck</figcaption></figure><br>
+<br>
+Midden die indrukwekkend mooie natuur had de parochieploeg van de parochie in Gavere-Eke-Nazareth gezorgd voor een inspirerende gebedsdienst.<br>
+<br>
+<figure><img src="images/pb-neo.jpg" alt=" Toespraak pastoor Piet © F. Neirinck" style="max-height: 500px; max-width: 500px;" /><figcaption> Toespraak pastoor Piet © F. Neirinck</figcaption></figure><br>
+<br>
+Na de verkwikkende tocht door het domein was het tijd voor het ruime ontmoetingsmoment, dat ingezet werd door een mooi dankwoord van pastoor Piet Herregodts (Parochie in De Pinte-Latem) aan het adres van Rudy Van Acker, die als deken van het dekenaat Deinze opgevolgd wordt door Patrick Derde.<br>
+<br>
+En Patrick schonk Rudy in naam van de Parochie in Aalter een dekentje.<br>
+<br>
+<figure><img src="images/pb-sui.jpg" alt=" Dekentje cadeau Aalter © F. Neirinck" style="max-height: 500px; max-width: 500px;" /><figcaption> Dekentje cadeau Aalter © F. Neirinck</figcaption></figure><br>
+<br>
+Maar ook de andere vier parochies lieten zich niet onbetuigd en overstelpten Rudy met heerlijke geschenkjes, zoals hier op de foto chocolade uit Zulte.<br>
+<br>
+<figure><img src="images/pb-cur.jpg" alt=" Cadeaus van alle parochies © F. Neirinck" style="max-height: 500px; max-width: 500px;" /><figcaption> Cadeaus van alle parochies © F. Neirinck</figcaption></figure><br>
+<br>
+Op deze manier werd het dekenaal werkjaar besloten, met de wens voor een deugddoende vakantie en daarna opnieuw iedereen met nieuw enthousiasme aan de slag, elk op zijn of haar plaats in ons dekenaat Deinze.<br>
+Verslag: F. Neirinck<br>
+<br>
+<br>
+<br>
+
+
+
+
+
 #### VIERING OP HET CHRISTIANA-DOMEIN DIKKELVENNE
 <br>
 <figure><img src="images/pb-duo1.jpg" alt=" Christiana-viering © Chris JungBluth" style="max-height: 500px; max-width: 500px;" /><figcaption> Christiana-viering © Chris JungBluth</figcaption></figure><br>
@@ -139,68 +188,20 @@ Het Feestcomite<br>
 
 
 
-#### WERELDDAG VOOR GROOTOUDERS EN SENIOREN - 28 JULI
+#### VAKANTIEREGELING DRUKPERS HALEWIJN
 <br>
-Thema: <i>Eenzaamheid (psalm 71 vers 9 "Wijs mij niet af op mijn oude dag"</i><br>
+<figure><img src="images/pb-hos.jpg" alt=" Vakantie © het Nieuwsblad" style="max-height: 500px; max-width: 500px;" /><figcaption> Vakantie © het Nieuwsblad</figcaption></figure><br>
 <br>
-De datum van deze werelddag is voor het eerst in 2021 gekozen op basis van de gedachtenis van de heiligen Joachim en Anna, de ouders van Maria en dus de grootouders van Jezus. Het gekozen thema wil ditmaal de aandacht vestigen op het feit dat eenzaamheid helaas het bittere lot is in het leven van veel ouderen, die zo vaak het slachtoffer zijn van de wegwerpcultuur.<br>
+!!!! Nummer 26 dat u nu in handen heeft bevat de intenties en de mededelingen van <b>27 juni</b> tot en met <b>21 juli</b>.<br>
 <br>
-<figure><img src="images/pb-at.jpg" alt=" Paus Franciscus zegent een vrouw t.g.v. Werelddag voor Grootouders en Senioren © Vatican Media/Dicastery for Communication" style="max-height: 500px; max-width: 500px;" /><figcaption> Paus Franciscus zegent een vrouw t.g.v. Werelddag voor Grootouders en Senioren © Vatican Media/Dicastery for Communication</figcaption></figure><br>
+!!! Nummer 27 en 28 verschijnen niet<br>
 <br>
-<b>Terugblik op je vriendschap met God</b><br>
-Omdat dit jaar een jaar is van gebed ter voorbereiding op het Jubeljaar 2025, heeft paus Franciscus als thema een gebed gekozen: psalm 71 (eerste 9 verzen). Het is een smeekgebed van een oudere die terugkijkt op het verhaal van zijn vriendschap met God.<br>
+!!! Nummer 29 verschijnt op <b>17 juli 2024</b><br>
+bevat de intenties en mededelingen tot en met <b>9 augustus 2024</b><br>
 <br>
-<i>Ik zoek mijn toevlucht bij U, HEER,</i><br>
-<i>beschaam mij nooit ofte nimmer.</i><br>
+!!! Nummer 30 en 31 verschijnen niet<br>
 <br>
-<i>Zowaar U rechtvaardig bent, verlos mij, bevrijd mij,</i><br>
-<i>leg uw oor te luisteren en maak mij vrij.</i><br>
-<br>
-<i>Wees de rots waarop ik woon,</i><br>
-<i>waar ik altijd heen kan gaan;</i><br>
-<i>zorg dat ik opnieuw word bevrijd,</i><br>
-<i>want mijn rots en mijn vesting bent U.</i><br>
-<br>
-<i>Bevrijd mij, mijn God, uit de hand van de boze,</i><br>
-<i>uit de greep van schurk en geweldenaar.</i><br>
-<br>
-<i>Ja, U, o Heer, bent mijn hoop,</i><br>
-<i>vanaf mijn jeugd mijn toevlucht, HEER.</i><br>
-<br>
-<i>Ik steun op U al van voor mijn geboorte,</i><br>
-<i>U bent mijn beschermer vanaf de moederschoot: </i><br>
-<i>voor U is mijn loflied voor altijd.</i><br>
-<br>
-<i>Was ik voor velen een heel veeg teken,</i><br>
-<i>U bent mijn schuilplaats, U bent mijn vesting.</i><br>
-<br>
-<i>Mijn mond is vervuld van een loflied op U,</i><br>
-<i>van het roemen op U heel de dag.</i><br>
-<br>
-<i>Wijs mij niet af op mijn oude dag,</i><br>
-<i>verlaat mij niet als mijn krachten bezwijken.</i><br>
-<br>
-<b>GEBED VAN GROOTOUDERS EN SENIOREN</b><br>
-<br>
-<i>Heer, ik dank U</i><br>
-<i>voor de zegen van een lang leven,</i><br>
-<i>want allen die hun toevlucht zoeken bij U,</i><br>
-<i>kunnen erop vertrouwen</i><br>
-<i>dat hun leven altijd vruchten draagt.</i><br>
-<i>Heer, schenk mij vergeving</i><br>
-<i>wanneer ik mij ontgoocheld neerleg bij de feiten,</i><br>
-<i>en verlaat mij niet</i><br>
-<i>wanneer mijn krachten afnemen.</i><br>
-<i>Leer mij hoopvol uitzien</i><br>
-<i>naar de toekomst die Gij mij schenkt,</i><br>
-<i>naar de zending die Gij mij toevertrouwt</i><br>
-<i>en laat mij U loven zonder eind.</i><br>
-<i>Laat mij uw revolutie van de tederheid vormgeven</i><br>
-<i>door liefdevol zorg te dragen voor mijn kleinkinderen</i><br>
-<i>en voor alle kinderen die bij U hun toevlucht zoeken.</i><br>
-<i>Heer, bescherm paus Franciscus</i><br>
-<i>en laat uw Kerk de wereld verlossen van eenzaamheid.</i><br>
-<i>Leid onze stappen op de weg van vrede. Amen</i><br>
+!!! Nummer 32- verschijningsdatum <b>7 augustus</b> terug volgens de gewone regeling<br>
 <br>
 <br>
 <br>
@@ -209,39 +210,51 @@ Omdat dit jaar een jaar is van gebed ter voorbereiding op het Jubeljaar 2025, he
 
 
 
-#### BEZINNING - VAKANTIE OM DANKBAAR VOOR TE ZIJN
+#### IN DE OMHALING IN GAVERE: DRIE PAASEITJES...
 <br>
-<figure><img src="images/pb-hi.jpg" alt=" Wees dankbaar © wikipedia" style="max-height: 500px; max-width: 500px;" /><figcaption> Wees dankbaar © wikipedia</figcaption></figure><br>
+<figure><img src="images/pb-ne.jpg" alt=" Omhaling Gavere © Guy Claus" style="max-height: 500px; max-width: 500px;" /><figcaption> Omhaling Gavere © Guy Claus</figcaption></figure><br>
 <br>
-<i>Doe ons dankbaar zijn, God,</i><br>
-<i>want vakantie mogen nemen is een gunst.</i><br>
-<i>Wij behoren tot de gelukkigen die daarin mogen delen.</i><br>
-<i>En we weten het, ons verlangen is soms veeleisend,</i><br>
-<i>onze grillen maken ons zelfs wispelturig</i><br>
-<i>wanneer de zon wegblijft of de regen ons humeur beïnvloedt.</i><br>
-<i>De wereld draait maar door en het leven gaat verder: </i><br>
-<i>kinderen sterven van honger, bossen gaan op in de vlammen</i><br>
-<i>en legers en rebellen raken met elkaar slaags.</i><br>
-<i>Vakantie is voor velen onbestaand,</i><br>
-<i>overleven is eerst aan de orde.</i><br>
-<i>Maak ons dankbaar bij het geluk van onze vakantiedagen,</i><br>
-<i>voor de overvloed aan zoveel geboden kansen.</i><br>
-<i>Laat ons af en toe eens stilvallen en ontdekken</i><br>
-<i>dat het zaad zijn kiemkracht bewaart en vruchten voortbrengt,</i><br>
-<i>dat na een donkere dag, de zon haar stralingskracht niet verliest.</i><br>
-<i>Doe ons met open handen iedereen tegemoet gaan</i><br>
-<i>die nood heeft aan een goed woord of een stimulans van hoop.</i><br>
-<i>Rust ons toe met veel levensenergie om het vol te houden</i><br>
-<i>wanneer de dagelijkse sleur ons dreigt te verslappen</i><br>
-<i>en de moed ontbreekt om door te gaan.</i><br>
-<i>Blijf Gij de inspirerende bron</i><br>
-<i>waar wij terecht kunnen en ons gedragen weten,</i><br>
-<i>en telkens opnieuw de veerkracht vinden</i><br>
-<i>om onze dankbaarheid te laten rusten</i><br>
-<i>in de open handen waarmee Gij ons toerust,</i><br>
-<i>elke dag, ook vandaag, altijd.</i><br>
-<i>Amen.</i><br>
-(naar M.D.H. in digitale gebedenbundel Don Bosco Vlaanderen 2005)<br>
+<br>
+<br>
+
+
+
+
+
+#### HET IS WEER VAKANTIETIJD!
+<br>
+<figure><img src="images/pb-via.jpg" alt=" Fijne vakantie © Kerknet" style="max-height: 500px; max-width: 500px;" /><figcaption> Fijne vakantie © Kerknet</figcaption></figure><br>
+<br>
+Juli en augustus, DE vakantiemaanden bij uitstek. Zeker voor mensen met schoolplichtige kinderen. De spanning rond examenuitslagen is geluwd. Voor de enen is alles goed afgelopen, voor anderen wacht er nog wat werk met vakantieopdrachten of herkansingen. Ook volwassenen hebben toegeleefd naar het moment. Sommigen dromen er van uren op het strand te kunnen liggen of van het verkennen van onbekende streken. Of wordt de vakantieperiode dan toch maar gebruikt om de noodzakelijke werken aan huis en tuin eindelijk uit te voeren?<br>
+<br>
+Zijn er in het evangelie ook sporen te vinden dat Jezus op vakantie ging? Vond Hij dat zijn volgelingen ook op vakantie moesten gaan of was Hij er misschien wel helemaal tegen? Inderdaad, Jezus heeft niet letterlijk gesproken over het wel of niet op vakantie gaan. Wat niet verwonderlijk was. Het woord zelf bestond nog niet. In het evangelie volgens Marcus (6,30-32) beschrijft de evangelist dat de apostelen na een zending terug bij Jezus komen en dat ze Hem alles vertellen wat ze gedaan hadden en hoe ze onderricht gegeven hadden. Waarop Jezus antwoordde: "Ga nu maar naar een eenzame plaats om alleen te zijn en wat uit te rusten". De houding van Jezus wijst er op dat Hij zeer goed beseft dat na een ernstige inspanning ook recuperatie moet volgen. Als we het evangelieverhaal verder lezen zien we dat er van die rust ditmaal niet veel in huis komt. Vele mensen die Jezus en zijn apostelen gehoord hadden bleven hen volgen. Ze wisten waar ze gingen uitrusten met als gevolg dat de berghelling al vol met volk zat toen zij er aan kwamen . Tweeduizend jaar geleden waren er geen "broodjeszaken". De mensen echter hadden honger. En daar deed, volgens Marcus, Jezus zijn eerste broodvermenigvuldiging. Mensen die toen, te voet, op weg gingen hadden dikwijls mondvoorraad bij. Zou het kunnen zijn dat Jezus de mensen zo ver heeft gekregen dat wie brood bij had het deelde met de anderen? Uit het verslag van Marcus blijkt duidelijk dat Jezus heel goed beseft hoe belangrijk het is om je in het leven helemaal in te zetten, te werken, het beste van jezelf te geven (thuis, in familie, in je beroep, in vrijwilligerswerk en noem maar op) maar ook regelmatig jezelf rust te gunnen. Zonder rust, zonder voldoende eten en drinken begeef je het vroeg of laat. Het is geen toeval dat er in onze hectische wereld van vandaag zoveel gesproken en geschreven wordt over "burn-out" en "depressie". Machines draaien vierentwintig uur per dag, 365 dagen per jaar, maar mensen zijn geen machines. Zondagsrust is een begrip dat de wereld uit moet. Een zondag moet ook geld op brengen. Ja, zonder geld kan een mens niet leven, maar met alleen maar geld ook niet. En dan zijn er mensen die er onder door gaan. Hun lichaam en geest zijn zo vermoeid dat ze niet zien dat de stoplichten op rood staan. En op een dag zitten ze dan vast. Elke mens is het aan zichzelf en aan de wereld verplicht om voldoende te rusten en zorg te dragen voor zijn lichaam. Vanuit die momenten kan je er dan weer ten volle tegenaan gaan.<br>
+En zo blijkt het nog maar eens dat de boodschap van het evangelie nog bijlange niet ouderwets en voorbijgestreefd is. Ook al wilden de Heer en zijn apostelen zeker die boodschap uitdragen naar de ganse wereld, toch gunden ze zichzelf wel op tijd wat rust. Bij het op vakantie gaan denken velen meestal aan op reis gaan en weg gaan, en dat kan het ook zijn maar zo hoeft het ook niet te zijn. Ga eens weg uit de drukte van iedere dag en kijk ook eens waar je mee bezig bent. Loskomen uit vast geroeste gewoonten kan al wonderen doen.<br>
+<br>
+Op een beetje afstand van de drukte kun je ook inzien wat echt belangrijk is. Een echt zalige vakantie is het als je zelf voelt dat je naar de wortels van het leven hebt gekeken, dat je een beter mens bent geworden zodat je vanuit die rust, stilte en bezinning weer verder kan.<br>
+<br>
+<b>VAKANTIE... TIJD OM MENS TE ZIJN</b><br>
+<br>
+<i>Mens, neem even de tijd,</i><br>
+<i>heel even maar,</i><br>
+<i>om je naaste te zien,</i><br>
+<i>om hem of haar te ontmoeten</i><br>
+<i>op je levensweg,</i><br>
+<i>om in stilte</i><br>
+<i>Gods schepping te bewonderen,</i><br>
+<i>om te genieten,</i><br>
+<i>om dankbaar te zijn,</i><br>
+<i>om te denken</i><br>
+<i>dat elke nieuwe dag</i><br>
+<i>een gave uit Gods hand is.</i><br>
+<br>
+<i>Mens, neem even de tijd,</i><br>
+<i>heel even maar,</i><br>
+<i>om te kijken</i><br>
+<i>waar je kunt helpen.</i><br>
+<i>En neem ook de tijd</i><br>
+<i>om gelukkig te zijn met elkaar,</i><br>
+<i>door uit jezelf te treden</i><br>
+<i>en ruimte te geven aan een ander.</i><br>
 <br>
 <br>
 <br>

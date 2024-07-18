@@ -28,16 +28,6 @@ Info en inschrijvingen bij Rita Petereyns op {{<icon class="fa fa-phone">}}&nbsp
 
 #### FERM ASPER
 <br>
-<b>Wandelen</b><br>
-<br>
-Wekelijkse wandeltocht (+5 km)<br>
-Namiddag<br>
-Wanneer? Elke dinsdag vanaf <b>7 mei</b> t.e.m. <b>25 juni</b> om 14.00 u.<br>
-Waar? Start bij ons bestuurslid Micheline - Burg. P. Ceuterickstraat 4, Asper<br>
-Avond<br>
-Wanneer? Elke donderdag vanaf <b>2 mei</b> t.e.m. <b>27 juni</b> om 19.30 u. (niet op <b>9 mei</b>)<br>
-Waar? Start aan de voorkant van de kerk te Asper<br>
-<br>
 <b>Twee-daagse fietsvakantie. vrijdag 23 en zaterdag 24 augustus</b><br>
 <br>
 We verkennen de omgeving rond Roeselare (programma volgt later)<br>
@@ -46,12 +36,6 @@ Bij interesse inschrijven voor <b>30 april</b> bij Micheline Vandecauter via {{<
 Zelf instaan voor fietstransport.<br>
 Betalen? Gelieve voor <b>30 april</b> een voorschot van EUR 50,00/persoon over te schrijven op de rekening van Ferm Asper <b>{{<icon class="fa fa-piggy-bank">}}&nbsp;BE07 7374 4201 1966</b> met vermelding "Roeselare" en van de na(a)m(en) van de ingeschrevene(n)<br>
 Opgelet: Inschrijvingen zijn pas geldig mits ontvangst van de betaling!<br>
-<br>
-<b>Cocktailworkshop</b><br>
-<br>
-Op vrijdag <b>21 juni</b> om 19.30 u. in het OC Martinus , Hulstraat, Asper<br>
-We leren cocktails maken en drinken die uiteraard ook uit samen met een hapje en dit in een feestelijk kader met muziek en ambiance. Prijs EUR 30<br>
-Inschrijven vóór <b>7 juni</b> bij Stephanie Vermassen op {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:0471673517">0471 67 35 17</a> of via {{<icon class="fa fa-envelope">}}&nbsp;<a href="fam.declercq@telenet.be.">fam.declercq@telenet.be.</a> Stort EUR 30 op <b>{{<icon class="fa fa-piggy-bank">}}&nbsp;BE07 7374 4201 1966</b> van Ferm Asper met vermelding van je naam + cocktailavond Ferm.<br>
 <br>
 <b>Wekelijkse fietstochten in juli en augustus</b><br>
 <br>
@@ -75,23 +59,60 @@ Betalen : op rekening van Ferm Asper <b>{{<icon class="fa fa-piggy-bank">}}&nbsp
 
 
 
+#### FERM SEMMERZAKE
+<br>
+<b>KRUIDENWANDELING met herborist Dorine op zaterdag 10 augustus 2024</b><br>
+<br>
+We starten aan de kerk van het pittoreske Dikkele om 14.00 u. en wandelen een lus rond het dorp om wilde kruiden te leren kennen.  We leren proeven, kijken, ruiken en observeren.  Dorine neemt ons mee in de wereld van de geneeskunst van vroegere tijden en brengt ons heel wat bij over de geneeskracht en de voedingswaarde van de kruiden.<br>
+We sluiten af met een kruidendrankje en een kruidig hapje.<br>
+<br>
+Info en inschrijven vóór maandag <b>5 augustus 2024</b> via {{<icon class="fa fa-envelope">}}&nbsp;<a href="fermsemmerzake@gmail.com">fermsemmerzake@gmail.com</a> of telefonisch {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:0499269983">0499 26 99 83</a> (Rita Nachtergaele).<br>
+Deelnameprijs : 15 EUR voor leden Ferm, niet leden betalen 20 EUR .<br>
+Er vlug bijzijn is de boodschap, het aantal deelnemers is beperkt.<br>
+<br>
+<br>
+<br>
+
+
+
+
+
+#### LANDELIJKE GILDE NAZARETH
+<br>
+Zaterdag <b>3 augustus 2024</b> bezoek <b>wijndomein Cruysem</b><br>
+<br>
+Op zaterdag <b>3 augustus 2024</b> nodigen wij jullie graag uit op onze zomeractiviteit.<br>
+We verzamelen om 10 uur op het domein in de Boeregemstraat 38 te Kruisem.<br>
+We krijgen daar eerst een rondleiding door de eigenares Kathy, gevolgd door een degustatie.<br>
+Tegen de middag genieten wij ter plaatse van broodjes en een drankje naar keuze.<br>
+Dit recente wijndomein, opgericht in 2017, is intussen 10 ha groot. De planten bestaan uit<br>
+chardonnay, pinot noir, pinot meunier en pinot blanc.<br>
+Er worden enkel mousserende wijnen gemaakt volgens de traditionele methode. Deze kunnen ter<br>
+plaatse gekocht worden. Intussen zijn heel wat gerenommeerde restaurants klant geworden.<br>
+We maken kennis met het volledige productieproces en bewonderen ook de ruime voorraad in de<br>
+kelder.<br>
+<br>
+Voor deze activiteit vragen wij om vooraf in te schrijven bij Peter De Bleecker tel {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:0484969007">0484 96 90 07</a><br>
+{{<icon class="fa fa-envelope">}}&nbsp;<a href="peter.debleecker@belgacom.net">peter.debleecker@belgacom.net</a> en dit tot uiterlijk <b>22 juli</b>.<br>
+Wij vragen een bijdrage alles inbegrepen voor deze activiteit van 25 EUR voor (gezins)leden en 30 EUR voor<br>
+niet leden. Uw inschrijving is bevestigd na overschrijving op rekening: <b>{{<icon class="fa fa-piggy-bank">}}&nbsp;BE86 7374 2100 0150</b> van<br>
+LG Nazareth.<br>
+<br>
+<br>
+<br>
+
+
+
+
+
 #### LDC DEN OEVER - GAVERE
 <br>
-<b>Woensdag 26 juni</b> om 14.00 u.: Bingo<br>
-<b>Donderdag 27 juni</b> om 10.00 u.: Bewegen op muziek<br>
-<b>Donderdag 27 juni</b> om 14.00 u.: Bonte baknamiddag : mikado<br>
+<b>Maandag 22 juli</b> om 11.30 u.: Frituur Den Oever<br>
+<b>Dinsdag 23 juli</b> om 14.00 u.: Lijndansen, Portrettekenen, Spelletjesnamiddag<br>
+<b>Woensdag 24 juli</b> om 14.00 u.: Diamond painting<br>
 <br>
-<b>Dinsdag 2 juli</b> om 14.00 u.: Lijndansen, portrettekenen en spelletjesnamiddag<br>
-<b>Woensdag 3 juli</b> om 14.00 u.: UNO-namiddag<br>
-<b>Donderdag 4 juli</b> om 14.00 u.: Samen breien- Granny square haken<br>
-<b>Maandag 8 juli</b> om 14.00 u.: IJsjesnamiddag voor mantelzorgers<br>
-<b>Dinsdag 9 juli</b> om 14.00 u.: Lijndansen, Portrettekenen, spelletjesnamiddag<br>
-<b>Woensdag 10 juli</b> om 14.00 u.: Vragen staat vrijdag<br>
-<b>Donderdag 11 juli</b> om 14.00 u.: Bingo<br>
-<b>Maandag 15 juli</b> om 14.00 u.: Coupe aardbei<br>
-<b>Dinsdag 16 juli</b> om 14.00 u.: Lijndansen, portretttekenen, spelletjesnamiddag<br>
-<b>Woensdag 17 juli</b> om 08.30 u.: Ontbijt<br>
-<b>Donderdag 18 juli</b> om 14.00 u.: Fietstocht<br>
+<b>Donderdag 1 augustus</b> om 14.00 u.: Samen breien en Granny squares haken<br>
+<b>Maandag 5 augustus</b> om 14.00 u.: Kaarten i.s.m. OKRA<br>
 <br>
 <br>
 <br>
@@ -104,21 +125,14 @@ Betalen : op rekening van Ferm Asper <b>{{<icon class="fa fa-piggy-bank">}}&nbsp
 <br>
 <b>OKRA-TREFPUNT EKE nodigt uit...</b><br>
 <br>
-<b>Donderdag 27 juni</b> om 14.00 u. in CC De Brouwerij: Lijndans en rummikub<br>
-<b>Vrijdag 28 juni</b> om 08.00 u. vertrek aan de kerk: Daguitstap Heuvelland<br>
+<b>Maandag 22 juli</b> om 13.30 u. in CC De Brouwerij: Crea-atelier<br>
+<b>Dinsdag 23 juli</b> om 14.00 u. in Sporthal Nazareth: Petanque<br>
+<b>Donderdag 25 juli</b> om 14.00 u. in CC De Brouwerij: Lijndans en rummikub<br>
+<b>Maandag 29 juli</b> om 14.00 u. in CC De Brouwerij: Schaakinitiatie vervolg (3)<br>
 <br>
-<b>Maandag 1 juli</b> om 14.00 u. in CC De Brouwerij: Schaakinitiatie 1<br>
-<b>Woensdag 3 juli</b> om 14.00 u. in CC De Brouwerij: Kaarten<br>
-<b>Donderdag 4 juli</b> om 09.30 u. in CC De Brouwerij: Lijndans<br>
-<b>Donderdag 4 juli</b> om 13.45 u. vertrek aan de kerk: Wandelen en fietsen<br>
-<b>Maandag 8 juli</b> om 13.30 u. in CC De Brouwerij: Crea-atelier<br>
-<b>Dinsdag 9 juli</b> om 14.00 u. in Sporthal Nazareth: Petanque<br>
-<b>Donderdag 11 juli</b> om 14.00 u. in CC De Brouwerij: Lijndans en rummikub<br>
-<b>Maandag 15 juli</b> om 14.00 u. in CC De Brouwerij: Schaakinitiatie vervolg (2)<br>
-<b>Woensdag 17 juli</b> om 14.00 u. in CC De Brouwerij: Kaarten<br>
-<b>Donderdag 18 juli</b> om 09.30 u. in CC De Brouwerij: Lijndans<br>
-<b>Donderdag 18 juli</b> om 13.45 u. vertrek aan de kerk: Wandelen en fietsen<br>
-<br>
+<b>Donderdag 1 augustus</b> om 13.45 u. vertrek aan de kerk: Wandelen en fietsen<br>
+<b>Maandag 5 augustus</b> om 13.30 u. in CC De Brouwerij: Crea-atelier<br>
+<b>Dinsdag 6 augustus</b> om 14.00 u. in Sporthal Nazareth: Petanque<br>
 <br>
 Wil je erbij zijn? Je bent welkom!<br>
 meer info? Willy {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:093856535">09 385 65 35</a><br>
@@ -134,34 +148,19 @@ meer info? Willy {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:093856535">09�
 <br>
 Activiteiten van juni, juli en augustus 2024<br>
 <br>
-<b>Maandag 1 juli</b> om 09.30 u. in kleine zaal cc Het Centrum: Bestuursvergadering<br>
-<b>Dinsdag 2 juli</b> om 14.00 u. aan de Sporthal: Petanque<br>
-<b>Woensdag 3 juli</b> om 08.00 u. parking achter de sporthal: Verrassingsreis<br>
-<b>Donderdag 4 juli</b> om 14.00 u. in CC Het Centrum: Lijndansen<br>
-<b>Maandag 8 juli</b> om 13.30 u. aan cc Het Centrum: Wandelen<br>
-<b>Dinsdag 9 juli</b> om 14.00 u. in CC Het Centrum: Kaarten, rummikub<br>
-<b>Donderdag 11 juli</b> om 14.00 u. in CC Het Centrum: Fietsen<br>
-<b>Dinsdag 16 juli</b> om 14.00 u. aan de Sporthal: Petanque<br>
-<b>Donderdag 18 juli</b> om 14.00 u. in CC Het Centrum: Lijndansen<br>
+<b>Dinsdag 23 juli</b> om 14.00 u. In CC Het Centrum: Kaartrn, rummikub, crea<br>
+<b>Donderdag 25 juli</b> om 14.00 u. in CC Het Centrum: Fietsen<br>
+<b>Dinsdag 30 juli</b> om 14.00 u. aan de Sporthal: Petanque<br>
 <br>
+<b>Donderdag 1 augustus</b> om 14.00 u. in CC Het Centrum: Lijndansen<br>
+<b>Maandag 5 augustus</b> aan CC Het Centrum: Wandelen<br>
+<b>Dinsdag 6 augustus</b> om 14.00 u. in CC Het Centrum: Kaarten, rummikub<br>
+<b>Donderdag 8 augustus</b> om 14.00 u. in CC Het Centrum: Fietsen<br>
 <br>
 Lijndansen om 14.00 u. in CC Het Centrum<br>
 <br>
 !!! Voor meer info: GSM {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:0484719871">0484 71 98 71</a><br>
 E - MAIL : {{<icon class="fa fa-envelope">}}&nbsp;<a href="okra.nazareth@gmail.com">okra.nazareth@gmail.com</a> WEB : okra-nazareth.be<br>
-<br>
-<br>
-<br>
-
-
-
-
-
-#### SAMANA NAZARETH
-<br>
-<b>Dinsdag 9 juli</b> om 14.00 u. In CC Het Centrum: Crea<br>
-<br>
-<br>
 <br>
 <br>
 <br>

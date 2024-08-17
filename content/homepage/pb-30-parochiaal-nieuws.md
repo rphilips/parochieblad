@@ -11,15 +11,11 @@ header_menu: true
 
 
 
-#### OVERLIJDEN
+#### GAVERE: COMMUNIE THUIS
 <br>
-We namen in de kerk afscheid van:<br>
+<figure><img src="images/pb-hi.jpg" alt=" Communie aan huis © Kerknet" style="max-height: 500px; max-width: 500px;" /><figcaption> Communie aan huis © Kerknet</figcaption></figure><br>
 <br>
-<i>Romain Poriau</i>, echtg. Nelly Walraeve, Gavere<br>
-<br>
-<i>Lode Vandekerckhove</i>, echtg. Ann Bourgeois, Eke<br>
-<br>
-<i>Antoon Desmet</i>, weduwnaar Agnes Thienpont, Gavere<br>
+Indien u zelf of iemand kent die door omstandigheden niet in de hoogdagviering van Onze-Lieve-Vrouw Hemelvaart kan aanwezig zijn en de communie thuis wenst te ontvangen, neem dan contact op met één van de parochiemedewerkers.<br>
 <br>
 <br>
 <br>
@@ -28,17 +24,14 @@ We namen in de kerk afscheid van:<br>
 
 
 
-#### DECREET TOT ONTTREKKING AAN DE EREDIENST VAN DE SINT-BAVOKERK VAN BAAIGEM
+#### SAMEN EUCHARISTIE VIEREN = KRACHT VAN VERBONDENHEID
 <br>
-<figure><img src="images/pb-ibi.jpg" alt=" Luchtfoto St.Bavokerk Baaigem © Jan Vanquaille" style="max-height: 500px; max-width: 500px;" /><figcaption> Luchtfoto St.Bavokerk Baaigem © Jan Vanquaille</figcaption></figure><br>
-<br>
-<figure><img src="images/pb-una.jpg" alt=" Sint-Bavokerk Baaigem © Wikipedia" style="max-height: 500px; max-width: 500px;" /><figcaption> Sint-Bavokerk Baaigem © Wikipedia</figcaption></figure><br>
-<br>
-Bisschop Lode Van Hecke heeft op <b>28 juni 2024</b> op vraag van de gemeenteraad en na advies van de priesterraad en het gunstig advies van de Kerkfabriek Baaigem het decreet ondertekend waardoor de Sint-Bavokerk van Baaigem onttrokken wordt aan de eredienst. Het beheer van het kerkgebouw wordt overgenomen door de gemeente Gavere. Het gebouw krijgt een nieuwe waardevolle herbestemming voor socio-culturele activiteiten.<br>
-<br>
-<figure><img src="images/pb-fas.jpg" alt=" Decreet onttrekking St.Bavokerk Baaigem -1 © Bisdom Gent" style="max-height: 500px; max-width: 500px;" /><figcaption> Decreet onttrekking St.Bavokerk Baaigem -1 © Bisdom Gent</figcaption></figure><br>
-<br>
-<figure><img src="images/pb-vis.jpg" alt=" Decreet onttrekking St.Bavokerk Baaigem -2 © Bisdom Gent" style="max-height: 500px; max-width: 500px;" /><figcaption> Decreet onttrekking St.Bavokerk Baaigem -2 © Bisdom Gent</figcaption></figure><br>
+In het evangelie van Matteüs lezen we in hoofdstuk 18 vers 20 "Waar twee of drie verenigd zijn in Mijn naam, daar ben Ik in hun midden". De tijd van overvolle kerken is voorbij, zeker op weekdagen. Wij zijn een "kleine kudde" geworden. Maar als christenen geloven we dat daar waar mensen samenkomen in gebed en in de eucharistie zij de kracht van verbondenheid ervaren gebeiteld in de Geest van Jezus Christus.<br>
+Niet alleen op zon- en feestdagen kunnen wij ons laten voeden door het Woord van de Schrift maar ook op weekdagen wordt u die mogelijkheid geboden.<br>
+In de weekkapel van de kerk in Eke is er ochtendeucharistie op maandag, dinsdag,<br>
+donderdag en vrijdag telkens om 8 uur.<br>
+Laten we elkaar ontmoeten in geloofsverbondenheid met de Heer.<br>
+Iedereen is welkom!<br>
 <br>
 <br>
 <br>
@@ -77,17 +70,6 @@ Dit feest wordt in de Katholieke Kerk jaarlijks gevierd op <b>15 augustus</b>. H
 
 
 
-#### COMMUNIE THUIS
-<br>
-Indien u zelf of iemand kent die door omstandigheden niet in de hoogdagviering van Onze-Lieve-Vrouw Hemelvaart kan aanwezig zijn en de communie thuis wenst te ontvangen, neem dan contact op met één van de parochiemedewerkers.<br>
-<br>
-<br>
-<br>
-
-
-
-
-
 #### MARIALE OMMEGANG NAZARETH
 <br>
 <figure><img src="images/pb-us.jpg" alt=" Affiche Ommegang © De Wilde-Peil" style="max-height: 500px; max-width: 500px;" /><figcaption> Affiche Ommegang © De Wilde-Peil</figcaption></figure><br>
@@ -99,6 +81,12 @@ De Werkgroep Mariale Ommegang kreeg deze erkenning in januari 2024 van de Vlaams
 <br>
 Tegelijkertijd aan de Ommegang vindt er in de kerk een gebedswake plaats. Mensen die niet meer zo goed te been zijn, of voor wie de afstand van ongeveer 4 km te lang is, kunnen dus gerust in de kerk hun Ommegang beleven.<br>
 <br>
+Wij nodigen u ook graag uit op de andere vieringen gedurende de 15-daagse van Onze Lieve Vrouw van Nazareth:<br>
+<br>
+<b>Zondag 15 september 2024 om 10.30 u.</b>: Solemniteit van Onze-Lieve-Vrouw en parochiale missiezondag met bijzondere collecte voor onze Nazarethse missionarissen.<br>
+<b>Maandag 16 september 2024 om 09.30 u.</b>: Kermismaandag met dienst voor onze overleden parochianen.<br>
+<b>Zondag 22 september 2024 om 10.30 u.</b>: Afsluiten van de 15-daagse t.e.v. Onze-Lieve-Vrouw van Nazareth<br>
+<br>
 <br>
 <br>
 
@@ -107,8 +95,6 @@ Tegelijkertijd aan de Ommegang vindt er in de kerk een gebedswake plaats. Mensen
 
 
 #### HEILIG JAAR OF JUBELJAAR: "PELGRIMS VAN HOOP"
-<br>
-<figure><img src="images/pb-ubi.jpg" alt=" Kaarsen WMO © Werkgroep Mariale Ommegang" style="max-height: 500px; max-width: 500px;" /><figcaption> Kaarsen WMO © Werkgroep Mariale Ommegang</figcaption></figure><br>
 <br>
 2024-2025 wordt een speciaal jaar voor onze Ommegang.<br>
 We willen mee aansluiten bij het Heilig Jaar of Jubeljaar dat Paus Franciscus uitgeroepen heeft met als thema 'PELGRIMS VAN HOOP' en dat start op <b>24 december 2024</b>.<br>
@@ -121,13 +107,25 @@ Wat mogen jullie o.a. al verwachten?<br>
 - Tweede helft van augustus 2025: Tentoonstelling in de kerk van Nazareth rond de geschiedenis van de Mariale Ommegang.<br>
 - Maandag <b>8 september 2025</b>: Mariale Ommegang.<br>
 - Zaterdagavond <b>13 september 2025</b>: Kaarskensprocessie.<br>
-- Een feestelijke nieuwe noveenkaars. Deze zal te koop zijn op de Ommegang van <b>8 september 2024</b> aan de hoofdingang van de kerk, op de koffietafel, en het ganse jaar via de Werkgroep Mariale Ommegang.<br>
-We verkopen deze kaars aan EUR 5 per stuk.<br>
-- Een klein kaarsje (4-uursbrander), speciaal ontworpen voor ons feestjaar.<br>
-Voor EUR 1 krijg je 1 kaarsje, voor EUR 5 krijg je 7 kaarsjes (ééntje voor elke dag van de week). Deze kaarsjes zullen te koop zijn op de Ommegang van <b>8 september</b> aan de hoofdingang van de kerk, op de koffietafel, en het ganse jaar via de Werkgroep Mariale Ommegang.<br>
 <br>
 Voor alle verdere vragen of voor meer informatie: {{<icon class="fa fa-envelope">}}&nbsp;<a href="werkgroepmarialeommegang@gmail.com">werkgroepmarialeommegang@gmail.com</a><br>
-Dit mailadres mag ook gebruikt worden om vanaf heden de nieuwe kaarsen te bestellen.<br>
+<br>
+<br>
+<br>
+
+
+
+
+
+#### KOFFIETAFEL NA DE OMMEGANG - OPGELET - LOCATIEWIJZIGING!!
+<br>
+<figure><img src="images/pb-sic.jpg" alt=" Koffietafel © Anoniem" style="max-height: 500px; max-width: 500px;" /><figcaption> Koffietafel © Anoniem</figcaption></figure><br>
+<br>
+Na de Ommegang biedt de Werkgroep Mariale Ommegang u opnieuw de mogelijkheid om samen te komen voor een gezellige babbel, een kopje koffie, een verfrissend drankje en een eclair.<br>
+<br>
+Opgelet: aangezien de grote zaal van CC Het Centrum dit jaar niet vrij was, mogen we de refter van de Vrije Basisschool gebruiken. De ingang is via de witte deur in de Drapstraat, rechts van het huis met nr. 12.<br>
+<br>
+Alle bedevaarders zijn van harte welkom!<br>
 <br>
 <br>
 <br>
@@ -141,24 +139,7 @@ Dit mailadres mag ook gebruikt worden om vanaf heden de nieuwe kaarsen te bestel
 Wie graag een affiche van de Ommegang aan zijn venster uithangt, zal deze vanaf ongeveer half augustus kunnen verkrijgen in de kerk van Nazareth. U kan ze vinden op het tafeltje aan de zij-ingang.<br>
 <br>
 Zijn de affiches allemaal weg, of geraakt u niet tot in de kerk?<br>
-Geef dan een seintje via ons mailadres: <b>{{<icon class="fa fa-envelope">}}&nbsp;<a href="werkgroepmarialeommegang@gmail.com">werkgroepmarialeommegang@gmail.com</a></b> of op {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:0471903801">0471 90 38 01</a> of {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:0475612062">0475 61 20 62</a>. Geef uw naam en adres door en wij bezorgen u een affiche.<br>
-<br>
-<br>
-<br>
-
-
-
-
-
-#### KOFFIETAFEL NA DE OMMEGANG - OPGELET - LOCATIEWIJZIGING!!
-<br>
-<figure><img src="images/pb-tam.jpg" alt=" Koffietafel © Werkgroep Mariale Ommegang" style="max-height: 500px; max-width: 500px;" /><figcaption> Koffietafel © Werkgroep Mariale Ommegang</figcaption></figure><br>
-<br>
-Na de Ommegang biedt de Werkgroep Mariale Ommegang u opnieuw de mogelijkheid om samen te komen voor een gezellige babbel, een kopje koffie, een verfrissend drankje en een gebakje.<br>
-<br>
-Opgelet: aangezien de grote zaal van CC Het Centrum dit jaar niet vrij was, mogen we de refter van de Vrije Basisschool gebruiken. De ingang is via de witte deur in de Drapstraat, rechts van het huis met nr. 12.<br>
-<br>
-Alle bedevaarders zijn van harte welkom!<br>
+Geef dan een seintje via ons mailadres: {{<icon class="fa fa-envelope">}}&nbsp;<a href="werkgroepmarialeommegang@gmail.com">werkgroepmarialeommegang@gmail.com</a> of op {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:0471903801">0471 90 38 01</a> of {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:0475612062">0475 61 20 62</a>. Geef uw naam en adres door en wij bezorgen u een affiche.<br>
 <br>
 <br>
 <br>
@@ -226,30 +207,35 @@ gsm nr. {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:0497856710">0497 85 6
 
 
 
-#### BEDEVAART SAMANA NAZARETH
+#### GAVERE: INSCHRIJVEN VOOR EERSTE COMMUNIE EN VORMSEL 2025
 <br>
-<figure><img src="images/pb-si1.jpg" alt=" Lourdesgrot Oostrozebeke © Marc perseyn" style="max-height: 500px; max-width: 500px;" /><figcaption> Lourdesgrot Oostrozebeke © Marc perseyn</figcaption></figure><br>
-<figure><img src="images/pb-si2.jpg" alt=" Samana Nazareth bedevaart naar Oostrozebeke © Marc perseyn" style="max-height: 500px; max-width: 500px;" /><figcaption> Samana Nazareth bedevaart naar Oostrozebeke © Marc perseyn</figcaption></figure><br>
+<figure><img src="images/pb-ne.jpg" alt=" Eerste communie en Vormsel © Kerknet" style="max-height: 500px; max-width: 500px;" /><figcaption> Eerste communie en Vormsel © Kerknet</figcaption></figure><br>
 <br>
-Zaterdag <b>1 juni</b> gingen er een 30 tal mensen van Samana Nazareth op bedevaart naar de Onze Lieve Vrouw van de Ginste in Oostrozebeke.<br>
+<b>EERSTE COMMUNIE IN ASPER EN GAVERE</b><br>
 <br>
-Daar staat ook een mooie Lourdesgrot. We kregen een mooi gebedsmoment in de kerk onder de leiding van de diaken Robert Lammertijn die de Maria-liederen zong op een gitaar. Nadien konden er verschillende kaarsen aangestoken voor alle gevraagde intenties. Na het gebedsmoment was er nog een bezoek aan de grot. De innerlijke mens werd versterkt in Bistro" De Grot" met koffie en brésiliennetaart. Het was een gezellig moment in de kerk en in de Bistro.<br>
+Beste ouders van kinderen in het eerste leerjaar ( geboortejaar 2018)<br>
 <br>
-<i>Onze-Lieve-Vrouw van De Ginste,</i><br>
-<i>nog nooit is gehoord</i><br>
-<i>dat iemand die tot U</i><br>
-<i>zijn toevlucht nam</i><br>
-<i>werd verlaten.</i><br>
-<i>Ik die onderweg ben</i><br>
-<i>met mijn zorgen,</i><br>
-<i>bid met mij dat ik een</i><br>
-<i>eind met jou kan meegaan,</i><br>
-<i>om de weg van Jezus te volgen.</i><br>
-<i>Wijs mijn gebeden niet af,</i><br>
-<i>maar neem ze aan</i><br>
-<i>en wil mij verhoren,</i><br>
-<i>O lieve Maagd Maria.</i><br>
-<i>AMEN.</i><br>
+In het weekend van 3 en <b>4 mei 2025</b> zetten we de eerste communicantjes in Asper en Gavere in de bloemetjes. Alle kindjes die in Groot Gavere wonen en/of schoollopen in Asper, Baaigem, Dikkelvenne, Gavere, Semmerzake of Vurste kunnen zich inschrijven voor een catechesetraject met (groot)ouders. De leerkrachten van de verschillende scholen ondersteunen de catechisten bij het aanleren van de liedjes en de tekstjes en het uitwerken van het thema. Het catechesetraject voor kindjes en (groot)ouder(s) omvat twee ontmoetingen na de zondagsmis, een lichtmisviering met het hele gezin, een eerste communietocht en enkele intense repetities voor de eerste communie viering zelf.<br>
+<br>
+We hopen dat er minstens 12 kindjes uit Asper deze keuze maken, dan zullen we voor hen ook een viering in de kerk van Asper organiseren op zaterdag <b>3 mei</b>. Geen nood als er minder zijn, dan sluiten de kindjes aan in de kerk van Gavere op zondag <b>4 mei</b>.<br>
+<br>
+<b>VORMSEL IN GAVERE</b><br>
+<br>
+Beste jongeren van (bijna) 12 jaar, leerlingen van het zesde leerjaar<br>
+<br>
+Op zondag <b>1 juni 2025</b> staat een vormselviering gepland in de kerk van Gavere. Een gezant van de bisschop zal jullie dan zegenen en vormen tot volwassen christenen. Een belangrijke stap op jullie gelovige levenspad.<br>
+<br>
+Hiervoor gaan we samen op weg via een aantal catechesemomenten in de kerk van Asper en/of Gavere, we vieren samen de naamopgave en kruisoplegging, zetten ons in voor broederlijk delen, ontmoeten andere jongeren in het bisdom, verdiepen ons in een geloofstocht en plannen enkele intense repetities voor het vormsel zelf. De voorbereidingen en catechese zijn telkens op woensdagnamiddag, de eucharistievieringen zijn op zondag om 09.00 u.<br>
+<br>
+We hopen jullie talrijk te mogen meenemen doorheen het schooljaar en met jullie een deugddoende vormselviering te beleven op <b>1 juni</b>. Het aantal deelnemers uit Asper zal bepalend zijn of er al dan niet nog voorbereidingen in Asper kunnen doorgaan. In elk geval is iedereen welkom in Gavere.<br>
+<br>
+<b>INSCHRIJFAVOND VOOR EERSTE COMMUNIE EN VORMSEL IN DE KERK VAN GAVERE</b><br>
+<br>
+Op donderdag <b>12 september 2024</b> om 19.00 u. verwachten we de ouders van eerste communicantjes om hun kindje in te schrijven. Kijk zeker na of je kindje gedoopt is en waar deze plechtigheid heeft plaatsgevonden. Wij vragen 15 EUR inschrijfgeld voor allerlei praktische zaken zoals een mapje voor kind en ouder.<br>
+<br>
+Op donderdag <b>12 september 2024</b> om 20.00 u. verwachten we de ouders van de vormelingen om hun jongere in te schrijven. Wellicht hebben zij eerder al hun eerste communie gedaan en zou het doopsel moeten in orde zijn. Heb je hierover gegevens breng die dan zeker mee. Wij vragen 30 EUR inschrijfgeld voor verzekering, vormselkruisje, catechesemap en andere praktische zaken.<br>
+<br>
+Een uitnodiging en inschrijfblad worden begin september via de scholen digitaal verspreid aan alle leerlingen van het eerste leerjaar voor de eerste communie en aan alle leerlingen van het zesde leerjaar voor het vormsel. Voor wie niet in Groot Gavere naar school gaat en toch hier woont, kan men ook in de kerk van Gavere inschrijfbladen vinden vanaf begin september.<br>
 <br>
 <br>
 <br>
@@ -258,27 +244,28 @@ Daar staat ook een mooie Lourdesgrot. We kregen een mooi gebedsmoment in de kerk
 
 
 
-#### VAKANTIE
+#### ONZE PASTOOR OP DE GENTSE FEESTEN
 <br>
-<figure><img src="images/pb-aro.jpg" alt=" Vakantie - laat je verrassen © Kerknet" style="max-height: 500px; max-width: 500px;" /><figcaption> Vakantie - laat je verrassen © Kerknet</figcaption></figure><br>
+<figure><img src="images/pb-tu1.jpg" alt=" Guy op de Gentse Feesten © Annoniem" style="max-height: 500px; max-width: 500px;" /><figcaption> Guy op de Gentse Feesten © Annoniem</figcaption></figure><br>
+<figure><img src="images/pb-tu2.jpg" alt=" Guy op de Gentse Feesten © Annoniem" style="max-height: 500px; max-width: 500px;" /><figcaption> Guy op de Gentse Feesten © Annoniem</figcaption></figure><br>
+<figure><img src="images/pb-tu3.jpg" alt=" Guy op de Gentse Feesten © Annoniem" style="max-height: 500px; max-width: 500px;" /><figcaption> Guy op de Gentse Feesten © Annoniem</figcaption></figure><br>
+<figure><img src="images/pb-tu4.jpg" alt=" Guy op de Gentse Feesten © Annoniem" style="max-height: 500px; max-width: 500px;" /><figcaption> Guy op de Gentse Feesten © Annoniem</figcaption></figure><br>
+<figure><img src="images/pb-tu5.jpg" alt=" Guy op de Gentse Feesten © Annoniem" style="max-height: 500px; max-width: 500px;" /><figcaption> Guy op de Gentse Feesten © Annoniem</figcaption></figure><br>
 <br>
-<i>Vakantie is,</i><br>
-<i>bevrijd van moeten en niet mogen,</i><br>
-<i>ruimte scheppen, het wonder zien,</i><br>
-<i>beseffen hoe wij, mensen onderweg,</i><br>
-<i>elkaar gegeven zijn,</i><br>
-<i>verbonden, over grenzen van tijd en ruimte,</i><br>
-<i>elkaar tot vreugde mogen zijn.</i><br>
 <br>
-<i>Vakantie is</i><br>
-<i>je plek vinden in de grootsheid van de schepping,</i><br>
-<i>is nieuwe wegen zien, levenskracht ontvangen</i><br>
-<i>en verder bouwen aan een wereld van vrede en gerechtigheid,</i><br>
-<i>van welzijn en goed leven voor iedereen,</i><br>
-<i>is delen in Gods droom,</i><br>
-<i>die jij en ik, en telkens weer een ander jij en ik,</i><br>
-<i>samen waar mogen maken.</i><br>
-(priester Jan, pater Walbert, Hans, Rita en zuster Lea)<br>
+<br>
+
+
+
+
+
+#### JE WORDT MOOIER ALS JE GLIMLACHT
+<br>
+<figure><img src="images/pb-at.jpg" alt=" Glimlach © Pinterest" style="max-height: 500px; max-width: 500px;" /><figcaption> Glimlach © Pinterest</figcaption></figure><br>
+<br>
+Heel veel mensen geven geld uit om "mooi" en "aantrekkelijk" te zijn. Probeer eens een nieuwe methode, een methode die niets kost en zeer efficiënt is: de glimlach! Deze methode begint in het hart van de mens. Het gaat om de glimlach, die groeit uit de diepe vrede en de innige vreugde van een goed hart. Deze glimlach maakt eenieder van ons "mooi"! Begin elke dag met een vrolijk gezicht.<br>
+<br>
+Doe moeite want er is een wisselwerking tussen je gezicht en je hart. Als er zon is in je hart, krijg je een zonnig gezicht en alles wordt anders. Je wordt niet meer zo moe van je werk. Je geniet meer van de goede en schone kanten van het leven. Je bent sterker in tegenslagen. Je mildert het lijden. Zieken worden opgemonterd, anderen krijgen nieuwe moed. Veel mensen danken hun morele redding aan een vriendelijk gezicht en een vriendelijk woord. Zet de glimlach voortaan op je dagelijks menu! Vakantie, de uitgelezen tijd om te beginnen!.<br>
 <br>
 <br>
 <br>

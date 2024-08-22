@@ -11,27 +11,11 @@ header_menu: true
 
 
 
-#### GAVERE: COMMUNIE THUIS
+#### OVERLIJDEN
 <br>
-<figure><img src="images/pb-hi.jpg" alt=" Communie aan huis © Kerknet" style="max-height: 500px; max-width: 500px;" /><figcaption> Communie aan huis © Kerknet</figcaption></figure><br>
+We namen in de kerk afscheid van:<br>
 <br>
-Indien u zelf of iemand kent die door omstandigheden niet in de hoogdagviering van Onze-Lieve-Vrouw Hemelvaart kan aanwezig zijn en de communie thuis wenst te ontvangen, neem dan contact op met één van de parochiemedewerkers.<br>
-<br>
-<br>
-<br>
-
-
-
-
-
-#### SAMEN EUCHARISTIE VIEREN = KRACHT VAN VERBONDENHEID
-<br>
-In het evangelie van Matteüs lezen we in hoofdstuk 18 vers 20 "Waar twee of drie verenigd zijn in Mijn naam, daar ben Ik in hun midden". De tijd van overvolle kerken is voorbij, zeker op weekdagen. Wij zijn een "kleine kudde" geworden. Maar als christenen geloven we dat daar waar mensen samenkomen in gebed en in de eucharistie zij de kracht van verbondenheid ervaren gebeiteld in de Geest van Jezus Christus.<br>
-Niet alleen op zon- en feestdagen kunnen wij ons laten voeden door het Woord van de Schrift maar ook op weekdagen wordt u die mogelijkheid geboden.<br>
-In de weekkapel van de kerk in Eke is er ochtendeucharistie op maandag, dinsdag,<br>
-donderdag en vrijdag telkens om 8 uur.<br>
-Laten we elkaar ontmoeten in geloofsverbondenheid met de Heer.<br>
-Iedereen is welkom!<br>
+<i>Angela De Cocker</i>, 87 j., echtg. van André Dervaux uit Vurste<br>
 <br>
 <br>
 <br>
@@ -40,28 +24,23 @@ Iedereen is welkom!<br>
 
 
 
-#### 15 AUGUSTUS 2024 - MARIA TENHEMELOPNEMING
+#### GAVERE: HOOGFEEST MARIA TENHEMELOPNEMING - 15 AUGUSTUS
 <br>
-<figure><img src="images/pb-bis.jpg" alt=" Maria Hemelvaart © Kerknet" style="max-height: 500px; max-width: 500px;" /><figcaption> Maria Hemelvaart © Kerknet</figcaption></figure><br>
+<figure><img src="images/pb-sed.jpg" alt=" Maria Tenhemelopneming kerk Gavere © C. Piens" style="max-height: 500px; max-width: 500px;" /><figcaption> Maria Tenhemelopneming kerk Gavere © C. Piens</figcaption></figure><br>
 <br>
-Dit feest wordt in de Katholieke Kerk jaarlijks gevierd op <b>15 augustus</b>. Herdacht wordt dat Maria, aan het einde van haar aardse leven door God in de hemel werd opgenomen. Maria heeft ons haar hele leven lang laten zien, dat zij tegen God "ja" wilde zeggen. Zelfs in die laatste dagen van Jezus' leven, hoe zwaar het haar ook viel, heeft zij tegen God gezegd: "Uw wil geschiede op aarde, zoals in de hemel" Ook op die laatste dag van haar aardse leven, toen zij door de engelen van God ten hemel werd opgenomen, bleef zij stralen, kon zij de Kerk en al haar dierbare mensen gemakkelijk loslaten, wetend, dat zij in en vanuit de hemel nog beter voor de mensen kon zorgen. Haar lichamelijke aanwezigheid op aarde mag dan wel het einde geweest zijn maar als een echte Moeder is zij nog steeds bij ons.<br>
+Op het hoogfeest van Maria Tenhemelopneming bracht onze geloofsgemeenschap met passende gebeden en gezangen Maria alle lof en eer. Reeds van bij het betreden van de kerk keek zij ons aan. Naast de vele kaarsen was haar beeld rijkelijk versierd met witte lelies, ook Madonna-lelies genoemd, omdat zij symbool staan voor maagdelijkheid en zuiverheid. Met vertrouwen mochten wij al onze intenties en zorgen aan haar Moederhart toevertrouwen omdat wij weten dat zij onze voorspreekster is bij haar Zoon. Met leed in het hart zien wij wel dat haar beeld stilaan uit het straatbeeld verdwijnt maar niet uit de harten van zovele mensen. Zij blijft in onze tijd een krachtige en inspirerende vrouw. Moge haar geloof ons blijvend inspireren.<br>
 <br>
-<i>Bezinning</i><br>
-<i>Maria,</i><br>
-<i>leer mijn hart en handen</i><br>
-<i>die zachte kracht van de trouwe dienstbaarheid.</i><br>
-<i>Doorbreek de hardheid van mijn denken,</i><br>
-<i>van mijn veel te vlugge woorden,</i><br>
-<i>van mijn angst voor zelfverlies.</i><br>
-<i>Laat mij met opmerkzaamheid, geduld en moed</i><br>
+<b>Bezinning</b><br>
 <br>
-<i>meegaan met hen die lijden,</i><br>
-<i>met hen die angstig of eenzaam zijn.</i><br>
-<i>Laat mij uw zoon, Jezus, herkennen</i><br>
-<i>in de mensen die mij gegeven zijn.</i><br>
-<i>Schenk ons uw vertrouwen,</i><br>
-<i>leer ons leven en groeien naar uw voorbeeld.</i><br>
-<i>Amen.</i><br>
+<i>Wij groeten u Maria,</i><br>
+<i>koningin en moeder vol goedheid.</i><br>
+<i>Bij u vinden wij het leven,</i><br>
+<i>de vreugde en heel onze hoop.</i><br>
+<i>Wij roepen u aan op onze pelgrimstocht : </i><br>
+<i>wees de lijdende mensheid nabij ;</i><br>
+<i>gedenk ons, zie barmhartig op ons neer</i><br>
+<i>en leid ons door dit leven naar Christus, uw Zoon.</i><br>
+<i>Moeder vol goedheid en liefde, heilige maagd Maria.</i><br>
 <br>
 <br>
 <br>
@@ -94,7 +73,9 @@ Wij nodigen u ook graag uit op de andere vieringen gedurende de 15-daagse van On
 
 
 
-#### HEILIG JAAR OF JUBELJAAR: "PELGRIMS VAN HOOP"
+#### NAZARETH - HEILIG JAAR OF JUBELJAAR: "PELGRIMS VAN HOOP"
+<br>
+<figure><img src="images/pb-una.jpg" alt=" Kaarsen WMO © Werkgroep Mariale Ommegang" style="max-height: 500px; max-width: 500px;" /><figcaption> Kaarsen WMO © Werkgroep Mariale Ommegang</figcaption></figure><br>
 <br>
 2024-2025 wordt een speciaal jaar voor onze Ommegang.<br>
 We willen mee aansluiten bij het Heilig Jaar of Jubeljaar dat Paus Franciscus uitgeroepen heeft met als thema 'PELGRIMS VAN HOOP' en dat start op <b>24 december 2024</b>.<br>
@@ -108,7 +89,13 @@ Wat mogen jullie o.a. al verwachten?<br>
 - Maandag <b>8 september 2025</b>: Mariale Ommegang.<br>
 - Zaterdagavond <b>13 september 2025</b>: Kaarskensprocessie.<br>
 <br>
-Voor alle verdere vragen of voor meer informatie: {{<icon class="fa fa-envelope">}}&nbsp;<a href="werkgroepmarialeommegang@gmail.com">werkgroepmarialeommegang@gmail.com</a><br>
+- Een feestelijke nieuwe noveenkaars. Deze zal te koop zijn op de Ommegang van <b>8 september 2024</b> aan de hoofdingang van de kerk, op de koffietafel, en het ganse jaar via de Werkgroep Mariale Ommegang.<br>
+We verkopen deze kaars aan EUR 5 per stuk.<br>
+- Een klein kaarsje (4-uursbrander), speciaal ontworpen voor ons feestjaar.<br>
+Voor EUR 1 krijg je 1 kaarsje, voor EUR 5 krijg je 7 kaarsjes (ééntje voor elke dag van de week). Deze kaarsjes zullen te koop zijn op de Ommegang van <b>8 september</b> aan de hoofdingang van de kerk, op de koffietafel, en het ganse jaar via de Werkgroep Mariale Ommegang.<br>
+<br>
+Voor alle verdere vragen of voor meer informatie kan u steeds terecht op de website: www.mariale-ommegang-nazareth.be of via mail op {{<icon class="fa fa-envelope">}}&nbsp;<a href="werkgroepmarialeommegang@gmail.com">werkgroepmarialeommegang@gmail.com</a><br>
+Dit mailadres mag ook gebruikt worden om vanaf heden de nieuwe kaarsen te bestellen.<br>
 <br>
 <br>
 <br>
@@ -117,9 +104,9 @@ Voor alle verdere vragen of voor meer informatie: {{<icon class="fa fa-envelope"
 
 
 
-#### KOFFIETAFEL NA DE OMMEGANG - OPGELET - LOCATIEWIJZIGING!!
+#### NAZARETH - KOFFIETAFEL NA DE OMMEGANG - OPGELET - LOCATIEWIJZIGING!!
 <br>
-<figure><img src="images/pb-sic.jpg" alt=" Koffietafel © Anoniem" style="max-height: 500px; max-width: 500px;" /><figcaption> Koffietafel © Anoniem</figcaption></figure><br>
+<figure><img src="images/pb-vir.jpg" alt=" Koffietafel © Anoniem" style="max-height: 500px; max-width: 500px;" /><figcaption> Koffietafel © Anoniem</figcaption></figure><br>
 <br>
 Na de Ommegang biedt de Werkgroep Mariale Ommegang u opnieuw de mogelijkheid om samen te komen voor een gezellige babbel, een kopje koffie, een verfrissend drankje en een eclair.<br>
 <br>
@@ -134,12 +121,13 @@ Alle bedevaarders zijn van harte welkom!<br>
 
 
 
-#### AFFICHES MARIALE OMMEGANG
+#### NAZARETH - AFFICHES MARIALE OMMEGANG
 <br>
-Wie graag een affiche van de Ommegang aan zijn venster uithangt, zal deze vanaf ongeveer half augustus kunnen verkrijgen in de kerk van Nazareth. U kan ze vinden op het tafeltje aan de zij-ingang.<br>
+Wie graag een affiche van de Ommegang aan zijn venster uithangt, kan deze vanaf heden<br>
+verkrijgen in de kerk van Nazareth. Ze liggen op het tafeltje aan de zij-ingang.<br>
 <br>
 Zijn de affiches allemaal weg, of geraakt u niet tot in de kerk?<br>
-Geef dan een seintje via ons mailadres: {{<icon class="fa fa-envelope">}}&nbsp;<a href="werkgroepmarialeommegang@gmail.com">werkgroepmarialeommegang@gmail.com</a> of op {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:0471903801">0471 90 38 01</a> of {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:0475612062">0475 61 20 62</a>. Geef uw naam en adres door en wij bezorgen u een affiche.<br>
+Geef dan een seintje via ons mailadres: {{<icon class="fa fa-envelope">}}&nbsp;<a href="werkgroepmarialeommegang@gmail.com">werkgroepmarialeommegang@gmail.com</a> of op {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:0471903801">0471 90 38 01</a> of {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:0475612062">0475 61 20 62</a>. Geef uw naam en adres door en wij bezorgen u een affiche<br>
 <br>
 <br>
 <br>
@@ -244,13 +232,17 @@ Een uitnodiging en inschrijfblad worden begin september via de scholen digitaal 
 
 
 
-#### ONZE PASTOOR OP DE GENTSE FEESTEN
+#### UITSTAP 10/08/2024 PAROCHIAAL ZANGKOOR NAZARETH
 <br>
-<figure><img src="images/pb-tu1.jpg" alt=" Guy op de Gentse Feesten © Annoniem" style="max-height: 500px; max-width: 500px;" /><figcaption> Guy op de Gentse Feesten © Annoniem</figcaption></figure><br>
-<figure><img src="images/pb-tu2.jpg" alt=" Guy op de Gentse Feesten © Annoniem" style="max-height: 500px; max-width: 500px;" /><figcaption> Guy op de Gentse Feesten © Annoniem</figcaption></figure><br>
-<figure><img src="images/pb-tu3.jpg" alt=" Guy op de Gentse Feesten © Annoniem" style="max-height: 500px; max-width: 500px;" /><figcaption> Guy op de Gentse Feesten © Annoniem</figcaption></figure><br>
-<figure><img src="images/pb-tu4.jpg" alt=" Guy op de Gentse Feesten © Annoniem" style="max-height: 500px; max-width: 500px;" /><figcaption> Guy op de Gentse Feesten © Annoniem</figcaption></figure><br>
-<figure><img src="images/pb-tu5.jpg" alt=" Guy op de Gentse Feesten © Annoniem" style="max-height: 500px; max-width: 500px;" /><figcaption> Guy op de Gentse Feesten © Annoniem</figcaption></figure><br>
+<figure><img src="images/pb-de.jpg" alt=" Het Parochiaal zangkoor Nazareth naar het Lam Gods © Anoniem" style="max-height: 500px; max-width: 500px;" /><figcaption> Het Parochiaal zangkoor Nazareth naar het Lam Gods © Anoniem</figcaption></figure><br>
+<br>
+Het Parochiaal zangkoor Nazareth deed op zaterdag <b>10 augustus</b> een uitstap naar Gent, met als doel bezoek aan de Sint-Baafskathedraal, geleid bezoek in de crypte en het Lam Gods.<br>
+<br>
+Het werd uiteraard een gezellige, leuke en vooral leerrijke uitstap (zie foto's).<br>
+De vakantieperiode is in schoonheid afgesloten.<br>
+<br>
+Het zingend werkjaar kan terug starten op donderdag <b>15 augustus</b> bij de hoogmis van Onze-Lieve-Vrouw tenhemelopneming (10.30 u. ' in Onze-Lieve-Vrouw geboortekerk te Nazareth).<br>
+Wie graag zingend aansluit is steeds welkom.<br>
 <br>
 <br>
 <br>
@@ -259,13 +251,77 @@ Een uitnodiging en inschrijfblad worden begin september via de scholen digitaal 
 
 
 
-#### JE WORDT MOOIER ALS JE GLIMLACHT
+#### PAUS FRANCISCUS BEZOEKT ONS LAND VAN 26 TOT 29 SEPTEMBER
 <br>
-<figure><img src="images/pb-at.jpg" alt=" Glimlach © Pinterest" style="max-height: 500px; max-width: 500px;" /><figcaption> Glimlach © Pinterest</figcaption></figure><br>
+Op uitnodiging van burgerlijke en kerkelijke overheden van ons land komt paus Franciscus naar België en maakt naast een bezoek aan Brussel ook de 600ste verjaardag van de katholieke universiteiten van Leuven en Louvain-la-Neuve mee.<br>
 <br>
-Heel veel mensen geven geld uit om "mooi" en "aantrekkelijk" te zijn. Probeer eens een nieuwe methode, een methode die niets kost en zeer efficiënt is: de glimlach! Deze methode begint in het hart van de mens. Het gaat om de glimlach, die groeit uit de diepe vrede en de innige vreugde van een goed hart. Deze glimlach maakt eenieder van ons "mooi"! Begin elke dag met een vrolijk gezicht.<br>
+<figure><img src="images/pb-vel.jpg" alt=" Paus Franciscus groet het publiek © Vatican Media/Dicastery for Communication" style="max-height: 500px; max-width: 500px;" /><figcaption> Paus Franciscus groet het publiek © Vatican Media/Dicastery for Communication</figcaption></figure><br>
 <br>
-Doe moeite want er is een wisselwerking tussen je gezicht en je hart. Als er zon is in je hart, krijg je een zonnig gezicht en alles wordt anders. Je wordt niet meer zo moe van je werk. Je geniet meer van de goede en schone kanten van het leven. Je bent sterker in tegenslagen. Je mildert het lijden. Zieken worden opgemonterd, anderen krijgen nieuwe moed. Veel mensen danken hun morele redding aan een vriendelijk gezicht en een vriendelijk woord. Zet de glimlach voortaan op je dagelijks menu! Vakantie, de uitgelezen tijd om te beginnen!.<br>
+<b>Thema van het pausbezoek</b><br>
+<br>
+<figure><img src="images/pb-ego.jpg" alt=" Hoopvol onderweg © Bisschoppenconferentie van België" style="max-height: 500px; max-width: 500px;" /><figcaption> Hoopvol onderweg © Bisschoppenconferentie van België</figcaption></figure><br>
+<br>
+De slogan "Hoopvol onderweg" die werd gekozen klinkt als een oproep tot vernieuwing en optimisme. De gelovige gemeenschap is "Hoopvol onderweg": een dimensie van vertrouwen en vreugde. In de christelijke traditie is het hoop een kracht die ons voortstuwt, die troost en inspireert. Hoop nodigt iedereen uit om voor een betere toekomst te gaan, waarin elkeen een motor kan zijn van verandering en verzoening.<br>
+<br>
+Het logo illustreert deze reis tegen de achtergrond van de kaart van België. Paus Franciscus stapt tussen de gelovigen (van alle leeftijden en met verschillende achtergronden) en moedigt hen aan om bij te dragen aan een meer rechtvaardige wereld en deel te nemen aan het leven en de toekomst van de Kerk.<br>
+<br>
+<br>
+<br>
+
+
+
+
+
+#### DE ZOMERVAKANTIE LOOPT OP Z'N EIND. ELK EINDE IS EEN NIEUW BEGIN!
+<br>
+<figure><img src="images/pb-sub.jpg" alt=" Terug naar school © Kerknet" style="max-height: 500px; max-width: 500px;" /><figcaption> Terug naar school © Kerknet</figcaption></figure><br>
+<br>
+<i>Wij bidden voor alle kinderen en jongeren</i><br>
+<i>die weldra opnieuw naar school gaan na de zomervakantie.</i><br>
+<i>Laat hen mensen ontmoeten die hen niet uit het oog verliezen.</i><br>
+<i>Laat hun stem gehoord worden,</i><br>
+<i>ook al klinkt ze soms zwak of stamelend.</i><br>
+<br>
+<i>Wij bidden voor alle kinderen en jongeren</i><br>
+<i>die bij het begin van dit nieuwe schooljaar</i><br>
+<i>hun weg zoeken in een nieuwe klas of een nieuwe school.</i><br>
+<i>Omring hen met mensen</i><br>
+<i>die hen benaderen met mildheid en respect,</i><br>
+<i>zodat het beste in henzelf naar boven kan komen</i><br>
+<i>en zij op hun beurt voor anderen</i><br>
+<i>een goede vriend kunnen zijn.</i><br>
+<br>
+<i>Help hen om samen met hun leerkrachten</i><br>
+<i>de wereld te ontdekken</i><br>
+<i>en uit te groeien tot mensen</i><br>
+<i>waarop anderen kunnen bouwen.</i><br>
+<br>
+<b>Pastoor Guy en het parochieteam wensen alle kinderen en studenten een schitterend jaar vol nieuwe uitdagingen toe.</b><br>
+<b>Aan alle leerkrachten en opvoeders veel voldoening gewenst in de mooie taak om van elke unieke mens een nieuwe mens te maken.</b><br>
+<br>
+<br>
+<br>
+
+
+
+
+
+#### LAAT JE HART SPREKEN EN STEUN DE WERELD ALZHEIMER DAG - 21 SEPTEMBER
+<br>
+<figure><img src="images/pb-sui.jpg" alt=" Steunactie Alzheimer © WZC Mariahuis" style="max-height: 500px; max-width: 500px;" /><figcaption> Steunactie Alzheimer © WZC Mariahuis</figcaption></figure><br>
+<br>
+De Wereldgezondheidsorganisatie (WHO) van de Verenigde Naties heeft <b>21 september</b> uitgeroepen tot Wereld Alzheimer Dag. Op die dag wordt extra aandacht besteed aan dementie. Naar schatting lijden wereldwijd 46 miljoen mensen aan deze ziekte.<br>
+<br>
+<b>Plaatselijke actie</b><br>
+<br>
+Het WZC Mariahuis Gavere verkoopt ten voordele van de stichting Alzheimer onderzoek opnieuw hartenwafels. De ingezamelde fondsen geven universiteiten meer mogelijkheden voor onderzoek om levens te verbeteren. Solidariteit is hard nodig. Door de actie te steunen draag je bij aan de strijd tegen deze verwoestende ziekte.<br>
+<br>
+Kostprijs: 5 EUR voor 6 wafeltjes.<br>
+<br>
+Bestellen kan vanaf nu al tot <b>23 september</b> via een inschrijfstrookje te verkrijgen op de afdeling of aan het onthaal of via mail naar Margot (referentiepersoon dementie) of via een parochiemedewerker.<br>
+Afhalen in de Onderstraat 9 op donderdag 3 en vrijdag <b>4 oktober</b> tussen 13.30 u. en 16.30 u.<br>
+<br>
+<b>WARM AANBEVOLEN.</b><br>
 <br>
 <br>
 <br>

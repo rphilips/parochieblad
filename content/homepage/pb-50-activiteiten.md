@@ -28,11 +28,6 @@ Info en inschrijvingen bij Rita Petereyns op {{<icon class="fa fa-phone">}}&nbsp
 
 #### FERM ASPER
 <br>
-<b>Wekelijkse fietstochten in augustus</b><br>
-<br>
-Vanaf woensdag <b>7 augustus</b> t.e.m. <b>21 augustus</b> om 19.00 u.<br>
-We starten steeds aan de groene zone in de Sint-Janslaan (naast nr 74) in Asper<br>
-<br>
 <b>Daguitstap met de fiets op donderdag 29 augustus</b><br>
 <br>
 We doen een bedrijfsbezoek bij AAROVA te Oudenaarde, waar we verwelkomd worden met een tas koffie; na de rondleiding wordt ons een lunch (soep en hoofgerecht) aangeboden. Vervolgens fietsen we verder en maken nog een koffiestop.<br>
@@ -51,12 +46,12 @@ Betalen : op rekening van Ferm Asper <b>{{<icon class="fa fa-piggy-bank">}}&nbsp
 
 #### LDC DEN OEVER - GAVERE
 <br>
-<b>Woensdag 14 augustus</b> om 14.00 u.: Bingo<br>
-<b>Maandag 19 augustus</b> om 14.00 u.: Kaarten i.s.m. OKRA<br>
-<b>Dinsdag 20 augustus</b> om 14.00 u.: Lijndansen, portrettekenen, spelletjesnamiddag<br>
 <b>Woensdag 21 augustus</b> om 08.30 u.: Ontbijt met Boule de Berlin<br>
 <b>Woensdag 21 augustus</b> om 14.00 u.: Diamond painting<br>
 <b>Donderdag 22 augustus</b> om 14.00 u.: Coupe Banana Split<br>
+<b>Dinsdag 27 augustus</b> om 14.00 u.: Lijndansen, portrettekenen, spelletjesnamiddag<br>
+<b>Woensdag 28 augustus</b> om 14.00 u.: UNO-namiddag<br>
+<b>Donderdag 29 augustus</b> om 14.00 u.: Taartenbuffet "Samen breien"<br>
 <br>
 <br>
 <br>
@@ -65,17 +60,13 @@ Betalen : op rekening van Ferm Asper <b>{{<icon class="fa fa-piggy-bank">}}&nbsp
 
 
 
-#### OKRA TREFPUNT EKE
+#### OKRA TREFPUNT EKE, SEPTEMBER 2024
 <br>
-<b>OKRA-TREFPUNT EKE nodigt uit...</b><br>
+OKRA-TREFPUNT EKE nodigt uit...<br>
 <br>
-<b>Woensdag 14 augustus</b> om 14.00 u. in CC De Brouwerij: Kaarten<br>
-<b>Donderdag 15 augustus</b>: Feestdag O.L.V.<br>
-<b>Maandag 19 augustus</b> om 13.30 u. in CC De Brouwerij: Crea-atelier<br>
-<b>Dinsdag 20 augustus</b> om 14.00 u. in Sporthal Nazareth: Petanque<br>
 <br>
-Wil je erbij zijn? Je bent welkom!<br>
-meer info? Willy {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:093856535">09 385 65 35</a><br>
+Info: Willy Rogge, {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:0470596571">0470 59 65 71</a><br>
+Zie ook: www.okra.be/trefpunt/eke<br>
 <br>
 <br>
 <br>
@@ -86,16 +77,15 @@ meer info? Willy {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:093856535">09�
 
 #### OKRA TREFPUNT NAZARETH
 <br>
-Activiteiten van juni, juli en augustus 2024<br>
+Activiteiten van augustus, september 2024<br>
 <br>
-<b>Woensdag 14 augustus</b> om 09.00 u. op parking achter de sporthal: Mosselreis naar Zierickzee<br>
-<b>Dinsdag 20 augustus</b> om 14.00 u.: In CC Het Centrum: Kaarten, rummikub, crea<br>
 <b>Donderdag 22 augustus</b> om 14.00 u. in CC Het Centrum: Fietsen<br>
+<b>Maandag 26 augustus</b> om 09.30 u. in de kleine zaal CC Het Centrum: Bestuursvergadering<br>
+<b>Dinsdag 27 augustus</b> om 14.00 u. aan de Sporthal: Petanque<br>
+<b>Donderdag 29 augustus</b> om 14.00 u. in CC Het Centrum: Lijndansen<br>
 <br>
-Lijndansen om 14.00 u. in CC Het Centrum<br>
 <br>
-!!! Voor meer info: GSM {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:0484719871">0484 71 98 71</a><br>
-E - MAIL : {{<icon class="fa fa-envelope">}}&nbsp;<a href="okra.nazareth@gmail.com">okra.nazareth@gmail.com</a> WEB : okra-nazareth.be<br>
+!!! Voor meer info: OKRA GSM nummer {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:0484719871">0484 71 98 71</a><br>
 <br>
 <br>
 <br>

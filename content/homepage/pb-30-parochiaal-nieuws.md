@@ -11,36 +11,25 @@ header_menu: true
 
 
 
-#### OVERLIJDEN
+#### AANSTELLING NIEUWE DEKEN VAN HET DEKENAAT DEINZE
 <br>
-We namen in de kerk afscheid van:<br>
+<figure><img src="images/pb-tu.jpg" alt=" Patrick Derde © Anoniem" style="max-height: 500px; max-width: 500px;" /><figcaption> Patrick Derde © Anoniem</figcaption></figure><br>
 <br>
-<i>Angela De Cocker</i>, 87 j., echtg. van André Dervaux uit Vurste<br>
+Op dinsdag <b>10 september</b> zal bisschop Lode Van Hecke mij, met het voorgeschreven ritueel, aanstellen tot deken van het dekenaat Deinze. Tegelijkertijd worden de leden van de dekenale ploeg in hun functie bevestigd.<br>
 <br>
+De gebedsdienst gaat door in de Onze-Lieve-Vrouwekerk (Markt Deinze) om 19.00 uur.<br>
 <br>
+Na de gebedsdienst trakteert vzw Dekenaat Deinze met een drankje (Golden Tricky aanwezig) en een bakje frietjes op het Poppoplein.<br>
 <br>
-
-
-
-
-
-#### GAVERE: HOOGFEEST MARIA TENHEMELOPNEMING - 15 AUGUSTUS
+We nodigen iedereen graag uit op de gebedsdienst en het moment van ontmoeting nadien.<br>
 <br>
-<figure><img src="images/pb-sed.jpg" alt=" Maria Tenhemelopneming kerk Gavere © C. Piens" style="max-height: 500px; max-width: 500px;" /><figcaption> Maria Tenhemelopneming kerk Gavere © C. Piens</figcaption></figure><br>
+(Voor alle duidelijkheid: ik blijf pastoor in de parochie Marta en Maria in Aalter en Rudy van Acker blijft pastoor in de parochie Heilige Maria Magdalena in Deinze)<br>
 <br>
-Op het hoogfeest van Maria Tenhemelopneming bracht onze geloofsgemeenschap met passende gebeden en gezangen Maria alle lof en eer. Reeds van bij het betreden van de kerk keek zij ons aan. Naast de vele kaarsen was haar beeld rijkelijk versierd met witte lelies, ook Madonna-lelies genoemd, omdat zij symbool staan voor maagdelijkheid en zuiverheid. Met vertrouwen mochten wij al onze intenties en zorgen aan haar Moederhart toevertrouwen omdat wij weten dat zij onze voorspreekster is bij haar Zoon. Met leed in het hart zien wij wel dat haar beeld stilaan uit het straatbeeld verdwijnt maar niet uit de harten van zovele mensen. Zij blijft in onze tijd een krachtige en inspirerende vrouw. Moge haar geloof ons blijvend inspireren.<br>
+Patrick Derde<br>
 <br>
-<b>Bezinning</b><br>
+P.S. Parkeren kan u op de parking van de Brielpoort en in de Brielstraat (parking Carrefour).<br>
 <br>
-<i>Wij groeten u Maria,</i><br>
-<i>koningin en moeder vol goedheid.</i><br>
-<i>Bij u vinden wij het leven,</i><br>
-<i>de vreugde en heel onze hoop.</i><br>
-<i>Wij roepen u aan op onze pelgrimstocht : </i><br>
-<i>wees de lijdende mensheid nabij ;</i><br>
-<i>gedenk ons, zie barmhartig op ons neer</i><br>
-<i>en leid ons door dit leven naar Christus, uw Zoon.</i><br>
-<i>Moeder vol goedheid en liefde, heilige maagd Maria.</i><br>
+<figure><img src="images/pb-hi.jpg" alt=" Parochies dekenaat Deinze © P. Derde" style="max-height: 500px; max-width: 500px;" /><figcaption> Parochies dekenaat Deinze © P. Derde</figcaption></figure><br>
 <br>
 <br>
 <br>
@@ -73,6 +62,38 @@ Wij nodigen u ook graag uit op de andere vieringen gedurende de 15-daagse van On
 
 
 
+#### NAZARETH: KOFFIETAFEL NA DE OMMEGANG - OPGELET - LOCATIEWIJZIGING!!
+<br>
+<figure><img src="images/pb-si.jpg" alt=" Koffietafel © Greta Peil" style="max-height: 500px; max-width: 500px;" /><figcaption> Koffietafel © Greta Peil</figcaption></figure><br>
+<br>
+Na de Ommegang biedt de Werkgroep Mariale Ommegang u opnieuw de mogelijkheid om samen te komen voor een gezellige babbel, een kopje koffie, een verfrissend drankje en een eclair.<br>
+<br>
+Opgelet: aangezien de grote zaal van CC Het Centrum dit jaar niet vrij was, mogen we de refter van de Vrije Basisschool gebruiken. De ingang is via de witte deur in de Drapstraat, rechts van het huis met nr. 12.<br>
+<br>
+Alle bedevaarders zijn van harte welkom!<br>
+<br>
+<br>
+<br>
+
+
+
+
+
+#### NAZARETH: AFFICHES MARIALE OMMEGANG
+<br>
+Wie graag een affiche van de Ommegang aan zijn venster uithangt, kan deze vanaf heden<br>
+verkrijgen in de kerk van Nazareth. Ze liggen op het tafeltje aan de zij-ingang.<br>
+<br>
+Zijn de affiches allemaal weg, of geraakt u niet tot in de kerk?<br>
+Geef dan een seintje via ons mailadres: {{<icon class="fa fa-envelope">}}&nbsp;<a href="werkgroepmarialeommegang@gmail.com">werkgroepmarialeommegang@gmail.com</a> of op {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:0471903801">0471 90 38 01</a> of {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:0475612062">0475 61 20 62</a>. Geef uw naam en adres door en wij bezorgen u een affiche<br>
+<br>
+<br>
+<br>
+
+
+
+
+
 #### NAZARETH - HEILIG JAAR OF JUBELJAAR: "PELGRIMS VAN HOOP"
 <br>
 <figure><img src="images/pb-una.jpg" alt=" Kaarsen WMO © Werkgroep Mariale Ommegang" style="max-height: 500px; max-width: 500px;" /><figcaption> Kaarsen WMO © Werkgroep Mariale Ommegang</figcaption></figure><br>
@@ -96,38 +117,6 @@ Voor EUR 1 krijg je 1 kaarsje, voor EUR 5 krijg je 7 kaarsjes (ééntje voor elk
 <br>
 Voor alle verdere vragen of voor meer informatie kan u steeds terecht op de website: www.mariale-ommegang-nazareth.be of via mail op {{<icon class="fa fa-envelope">}}&nbsp;<a href="werkgroepmarialeommegang@gmail.com">werkgroepmarialeommegang@gmail.com</a><br>
 Dit mailadres mag ook gebruikt worden om vanaf heden de nieuwe kaarsen te bestellen.<br>
-<br>
-<br>
-<br>
-
-
-
-
-
-#### NAZARETH - KOFFIETAFEL NA DE OMMEGANG - OPGELET - LOCATIEWIJZIGING!!
-<br>
-<figure><img src="images/pb-vir.jpg" alt=" Koffietafel © Anoniem" style="max-height: 500px; max-width: 500px;" /><figcaption> Koffietafel © Anoniem</figcaption></figure><br>
-<br>
-Na de Ommegang biedt de Werkgroep Mariale Ommegang u opnieuw de mogelijkheid om samen te komen voor een gezellige babbel, een kopje koffie, een verfrissend drankje en een eclair.<br>
-<br>
-Opgelet: aangezien de grote zaal van CC Het Centrum dit jaar niet vrij was, mogen we de refter van de Vrije Basisschool gebruiken. De ingang is via de witte deur in de Drapstraat, rechts van het huis met nr. 12.<br>
-<br>
-Alle bedevaarders zijn van harte welkom!<br>
-<br>
-<br>
-<br>
-
-
-
-
-
-#### NAZARETH - AFFICHES MARIALE OMMEGANG
-<br>
-Wie graag een affiche van de Ommegang aan zijn venster uithangt, kan deze vanaf heden<br>
-verkrijgen in de kerk van Nazareth. Ze liggen op het tafeltje aan de zij-ingang.<br>
-<br>
-Zijn de affiches allemaal weg, of geraakt u niet tot in de kerk?<br>
-Geef dan een seintje via ons mailadres: {{<icon class="fa fa-envelope">}}&nbsp;<a href="werkgroepmarialeommegang@gmail.com">werkgroepmarialeommegang@gmail.com</a> of op {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:0471903801">0471 90 38 01</a> of {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:0475612062">0475 61 20 62</a>. Geef uw naam en adres door en wij bezorgen u een affiche<br>
 <br>
 <br>
 <br>
@@ -232,80 +221,6 @@ Een uitnodiging en inschrijfblad worden begin september via de scholen digitaal 
 
 
 
-#### UITSTAP 10/08/2024 PAROCHIAAL ZANGKOOR NAZARETH
-<br>
-<figure><img src="images/pb-de.jpg" alt=" Het Parochiaal zangkoor Nazareth naar het Lam Gods © Anoniem" style="max-height: 500px; max-width: 500px;" /><figcaption> Het Parochiaal zangkoor Nazareth naar het Lam Gods © Anoniem</figcaption></figure><br>
-<br>
-Het Parochiaal zangkoor Nazareth deed op zaterdag <b>10 augustus</b> een uitstap naar Gent, met als doel bezoek aan de Sint-Baafskathedraal, geleid bezoek in de crypte en het Lam Gods.<br>
-<br>
-Het werd uiteraard een gezellige, leuke en vooral leerrijke uitstap (zie foto's).<br>
-De vakantieperiode is in schoonheid afgesloten.<br>
-<br>
-Het zingend werkjaar kan terug starten op donderdag <b>15 augustus</b> bij de hoogmis van Onze-Lieve-Vrouw tenhemelopneming (10.30 u. ' in Onze-Lieve-Vrouw geboortekerk te Nazareth).<br>
-Wie graag zingend aansluit is steeds welkom.<br>
-<br>
-<br>
-<br>
-
-
-
-
-
-#### PAUS FRANCISCUS BEZOEKT ONS LAND VAN 26 TOT 29 SEPTEMBER
-<br>
-Op uitnodiging van burgerlijke en kerkelijke overheden van ons land komt paus Franciscus naar België en maakt naast een bezoek aan Brussel ook de 600ste verjaardag van de katholieke universiteiten van Leuven en Louvain-la-Neuve mee.<br>
-<br>
-<figure><img src="images/pb-vel.jpg" alt=" Paus Franciscus groet het publiek © Vatican Media/Dicastery for Communication" style="max-height: 500px; max-width: 500px;" /><figcaption> Paus Franciscus groet het publiek © Vatican Media/Dicastery for Communication</figcaption></figure><br>
-<br>
-<b>Thema van het pausbezoek</b><br>
-<br>
-<figure><img src="images/pb-ego.jpg" alt=" Hoopvol onderweg © Bisschoppenconferentie van België" style="max-height: 500px; max-width: 500px;" /><figcaption> Hoopvol onderweg © Bisschoppenconferentie van België</figcaption></figure><br>
-<br>
-De slogan "Hoopvol onderweg" die werd gekozen klinkt als een oproep tot vernieuwing en optimisme. De gelovige gemeenschap is "Hoopvol onderweg": een dimensie van vertrouwen en vreugde. In de christelijke traditie is het hoop een kracht die ons voortstuwt, die troost en inspireert. Hoop nodigt iedereen uit om voor een betere toekomst te gaan, waarin elkeen een motor kan zijn van verandering en verzoening.<br>
-<br>
-Het logo illustreert deze reis tegen de achtergrond van de kaart van België. Paus Franciscus stapt tussen de gelovigen (van alle leeftijden en met verschillende achtergronden) en moedigt hen aan om bij te dragen aan een meer rechtvaardige wereld en deel te nemen aan het leven en de toekomst van de Kerk.<br>
-<br>
-<br>
-<br>
-
-
-
-
-
-#### DE ZOMERVAKANTIE LOOPT OP Z'N EIND. ELK EINDE IS EEN NIEUW BEGIN!
-<br>
-<figure><img src="images/pb-sub.jpg" alt=" Terug naar school © Kerknet" style="max-height: 500px; max-width: 500px;" /><figcaption> Terug naar school © Kerknet</figcaption></figure><br>
-<br>
-<i>Wij bidden voor alle kinderen en jongeren</i><br>
-<i>die weldra opnieuw naar school gaan na de zomervakantie.</i><br>
-<i>Laat hen mensen ontmoeten die hen niet uit het oog verliezen.</i><br>
-<i>Laat hun stem gehoord worden,</i><br>
-<i>ook al klinkt ze soms zwak of stamelend.</i><br>
-<br>
-<i>Wij bidden voor alle kinderen en jongeren</i><br>
-<i>die bij het begin van dit nieuwe schooljaar</i><br>
-<i>hun weg zoeken in een nieuwe klas of een nieuwe school.</i><br>
-<i>Omring hen met mensen</i><br>
-<i>die hen benaderen met mildheid en respect,</i><br>
-<i>zodat het beste in henzelf naar boven kan komen</i><br>
-<i>en zij op hun beurt voor anderen</i><br>
-<i>een goede vriend kunnen zijn.</i><br>
-<br>
-<i>Help hen om samen met hun leerkrachten</i><br>
-<i>de wereld te ontdekken</i><br>
-<i>en uit te groeien tot mensen</i><br>
-<i>waarop anderen kunnen bouwen.</i><br>
-<br>
-<b>Pastoor Guy en het parochieteam wensen alle kinderen en studenten een schitterend jaar vol nieuwe uitdagingen toe.</b><br>
-<b>Aan alle leerkrachten en opvoeders veel voldoening gewenst in de mooie taak om van elke unieke mens een nieuwe mens te maken.</b><br>
-<br>
-<br>
-<br>
-
-
-
-
-
 #### LAAT JE HART SPREKEN EN STEUN DE WERELD ALZHEIMER DAG - 21 SEPTEMBER
 <br>
 <figure><img src="images/pb-sui.jpg" alt=" Steunactie Alzheimer © WZC Mariahuis" style="max-height: 500px; max-width: 500px;" /><figcaption> Steunactie Alzheimer © WZC Mariahuis</figcaption></figure><br>
@@ -322,6 +237,134 @@ Bestellen kan vanaf nu al tot <b>23 september</b> via een inschrijfstrookje te v
 Afhalen in de Onderstraat 9 op donderdag 3 en vrijdag <b>4 oktober</b> tussen 13.30 u. en 16.30 u.<br>
 <br>
 <b>WARM AANBEVOLEN.</b><br>
+<br>
+<br>
+<br>
+
+
+
+
+
+#### SFEERVOLLE VIERING CHRISTIANA-DOMEIN DIKKELVENNE
+<br>
+<figure><img src="images/pb-non.jpg" alt=" jaarlijkse Christiana-viering © Chris JungBluth" style="max-height: 500px; max-width: 500px;" /><figcaption> jaarlijkse Christiana-viering © Chris JungBluth</figcaption></figure><br>
+<br>
+Op zondagnamiddag <b>28 juli</b> vond de <b>jaarlijkse Christiana-viering</b> in open lucht plaats aan de kapel.  Deze woorddienst ,voorgegaan door Liesbeth van het team 'geloofsgemeenschap Groot Gavere', stond dit jaar in het teken van "Herinneren".  We konden onder een stralende hemel genieten van een bijzonder mooie dienst, met talrijke aanwezigen, opgeluisterd met muziek en zang van de dames van Klanklichaam en afgesloten met een drankje. De kapel was nog maar net voorzien van een nieuwe dakbedekking, en werd daarom extra feestelijk in de bloemen gezet.<br>
+Het werd dus een mooie verzorgde waardige viering in lijn met de mooie eeuwenoude traditie binnen de Dikkelvense gemeenschap.<br>
+<br>
+Een grote <b>dankjewel aan alle vrijwillige medewerkers</b> die deze traditie in ere helpen houden, Liesbeth, Conny, Saskia, Paul, Frank, Alain, Carine en Isabelle!!<br>
+De kapel is open elke 1ste zondagnamiddag, je kan er onder begeleiding van een ervaren gids meer te weten komen over onze rijke Dikkelvense geschiedenis<br>
+Mede door de steun van Cultuurregio Leie-Schelde en de kerkraad onderging ons fameuze 16de-eeuwse polychrome Christiana-beeldje in 2023 een behoudende restauratie. Deze zomer, dankzij verkregen subsidie, kon het dak vernieuwd worden. Voor verdere financiering van restauratie van ons erfgoed rondom Christiana, is alle steun welkom door bezoek aan de kapel, aankoop kaarsen en via storting op rekening <b>{{<icon class="fa fa-piggy-bank">}}&nbsp;BE67 8933 7015 4287</b> van Kerkraad Dikkelvenne/ Erfgoed    Alvast hartelijk dank.<br>
+<br>
+<br>
+<br>
+
+
+
+
+
+#### ASPER: KERMISMAANDAG 23 SEPTEMBER 2024
+<br>
+<figure><img src="images/pb-ter.jpg" alt=" Eetfestijn © Chris JungBluth" style="max-height: 500px; max-width: 500px;" /><figcaption> Eetfestijn © Chris JungBluth</figcaption></figure><br>
+<br>
+Ontmoetingscentrum Martinus - Hulstraat 27- Asper<br>
+Van 11.30 u. tot 14.00 u.<br>
+Iederen van harte welkom op ons eetfestijn!<br>
+Kip aan 't spit<br>
+½ kip - salade - tomaat - perzik - kroketten<br>
+Koffie/thee met gebak<br>
+Dit alles aan de prijs van 20 EUR<br>
+<br>
+Kaarten te bekomen bij:<br>
+- Gerlinde Schietecatte, Tragelstraat 22, Asper, {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:0475857074">0475 85 70 74</a>, email: {{<icon class="fa fa-envelope">}}&nbsp;<a href="gerlinde.schietecatte@gmail.com">gerlinde.schietecatte@gmail.com</a><br>
+- Micheline Vandecautere, Burg. P. Ceuterickstraat 4, Asper, {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:093860859">09 386 08 59</a>, {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:0487598349">0487 59 83 49</a>, e-mail: {{<icon class="fa fa-envelope">}}&nbsp;<a href="micheline.vdcautere@gmail.com">micheline.vdcautere@gmail.com</a><br>
+- Chris Jungbluth, Veldstraat 26, Asper,<br>
+{{<icon class="fa fa-phone">}}&nbsp;<a href="tel:093844306">09 384 43 06</a>, {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:0474959907">0474 95 99 07</a>, e-mail: {{<icon class="fa fa-envelope">}}&nbsp;<a href="cjungbluth@hotmail.com">cjungbluth@hotmail.com</a><br>
+- Christiane Devenyns, Sint-Janslaan 80, Asper, {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:0474667476">0474 66 74 76</a>, e-mail: {{<icon class="fa fa-envelope">}}&nbsp;<a href="christianedevenyns@hotmail.com">christianedevenyns@hotmail.com</a><br>
+- Lydie Vanderstichelen, Leebeeklaan 34, Asper, {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:0498459548">0498 45 95 48</a>, e-mail: {{<icon class="fa fa-envelope">}}&nbsp;<a href="lydie.vanderstichelen@telenet.be">lydie.vanderstichelen@telenet.be</a><br>
+- Rita Petereyns, Slaapstraat 34, Asper,<br>
+{{<icon class="fa fa-phone">}}&nbsp;<a href="tel:0479675175">0479 67 51 75</a>, e-mail: {{<icon class="fa fa-envelope">}}&nbsp;<a href="ritapetereyns@gmail.com">ritapetereyns@gmail.com</a><br>
+<br>
+<b>Om 10.00 u. gebedsdienst voor de overleden parochianen in de kerk van Asper</b><br>
+<br>
+<br>
+<br>
+
+
+
+
+
+#### PAUS FRANCISCUS BEZOEKT ONS LAND VAN 26 TOT 29 SEPTEMBER
+<br>
+<figure><img src="images/pb-vel.jpg" alt=" Paus Franciscus groet het publiek © Vatican Media/Dicastery for Communication" style="max-height: 500px; max-width: 500px;" /><figcaption> Paus Franciscus groet het publiek © Vatican Media/Dicastery for Communication</figcaption></figure><br>
+<br>
+<figure><img src="images/pb-at.jpg" alt=" Hoopvol onderweg © Bisschoppenconferentie van België" style="max-height: 500px; max-width: 500px;" /><figcaption> Hoopvol onderweg © Bisschoppenconferentie van België</figcaption></figure><br>
+<br>
+Op uitnodiging van burgerlijke en kerkelijke overheden van ons land komt paus Franciscus naar België en maakt naast een bezoek aan Brussel ook de 600ste verjaardag van de katholieke universiteiten van Leuven en Louvain-la-Neuve mee.<br>
+<br>
+<b>Thema van het pausbezoek</b><br>
+<br>
+De slogan "Hoopvol onderweg" die werd gekozen klinkt als een oproep tot vernieuwing en optimisme. De gelovige gemeenschap is "Hoopvol onderweg": een dimensie van vertrouwen en vreugde. In de christelijke traditie is het hoop een kracht die ons voortstuwt, die troost en inspireert. Hoop nodigt iedereen uit om voor een betere toekomst te gaan, waarin elkeen een motor kan zijn van verandering en verzoening.<br>
+<br>
+Het logo illustreert deze reis tegen de achtergrond van de kaart van België. Paus Franciscus stapt tussen de gelovigen (van alle leeftijden en met verschillende achtergronden) en moedigt hen aan om bij te dragen aan een meer rechtvaardige wereld en deel te nemen aan het leven en de toekomst van de Kerk.<br>
+<br>
+<br>
+<br>
+
+
+
+
+
+#### DE ZOMERVAKANTIE LOOPT OP Z'N EIND. ELK EINDE IS EEN NIEUW BEGIN!
+<br>
+<figure><img src="images/pb-has.jpg" alt=" Terug naar school © Kerknet" style="max-height: 500px; max-width: 500px;" /><figcaption> Terug naar school © Kerknet</figcaption></figure><br>
+<br>
+<i>Wij bidden voor alle kinderen en jongeren</i><br>
+<i>die weldra opnieuw naar school gaan na de zomervakantie.</i><br>
+<i>Laat hen mensen ontmoeten die hen niet uit het oog verliezen.</i><br>
+<i>Laat hun stem gehoord worden,</i><br>
+<i>ook al klinkt ze soms zwak of stamelend.</i><br>
+<i>Wij bidden voor alle kinderen en jongeren</i><br>
+<i>die bij het begin van dit nieuwe schooljaar</i><br>
+<i>hun weg zoeken in een nieuwe klas of een nieuwe school.</i><br>
+<i>Omring hen met mensen</i><br>
+<i>die hen benaderen met mildheid en respect,</i><br>
+<i>zodat het beste in henzelf naar boven kan komen</i><br>
+<i>en zij op hun beurt voor anderen</i><br>
+<i>een goede vriend kunnen zijn.</i><br>
+<i>Help hen om samen met hun leerkrachten</i><br>
+<i>de wereld te ontdekken</i><br>
+<i>en uit te groeien tot mensen</i><br>
+<i>waarop anderen kunnen bouwen.</i><br>
+<br>
+<b>Pastoor Guy en het parochieteam wensen alle kinderen en studenten een schitterend jaar vol nieuwe uitdagingen toe.</b><br>
+<b>Aan alle leerkrachten en opvoeders veel voldoening gewenst in de mooie taak om van elke unieke mens een nieuwe mens te maken.</b><br>
+<br>
+<br>
+<br>
+
+
+
+
+
+#### BIDDEN VOOR EEN GOEDE START BIJ HET NIEUWE WERKJAAR
+<br>
+<figure><img src="images/pb-ait.jpg" alt=" Samen op weg gaan © ECIW coach" style="max-height: 500px; max-width: 500px;" /><figcaption> Samen op weg gaan © ECIW coach</figcaption></figure><br>
+<br>
+<i>Wij wensen iedereen in dit nieuwe werkjaar een warm hart,</i><br>
+<i>dat iedereen ondanks tegenslagen optimistisch blijft,</i><br>
+<i>dat we opkomen voor de anderen,</i><br>
+<i>dat we blij zijn om het geluk van de anderen.</i><br>
+<i>Wij wensen elkeen een vergevende hand,</i><br>
+<i>wij hopen dat onze daden overeenstemmen</i><br>
+<i>met onze gedachten en onze woorden,</i><br>
+<i>dat wij het goede in de anderen zien,</i><br>
+<i>dat we vrede uitzaaien in onze werkomgeving.</i><br>
+<i>Wij durven hopen dat we het af en toe</i><br>
+<i>stil durven maken om ook eens te bidden</i><br>
+<i>en dat ons leven in ons denken, spreken en handelen</i><br>
+<i>afgestemd wordt op de golflengte</i><br>
+<i>van het leven van Jezus van Nazareth.</i><br>
 <br>
 <br>
 <br>

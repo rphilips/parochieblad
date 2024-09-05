@@ -85,7 +85,32 @@ Wie graag een affiche van de Ommegang aan zijn venster uithangt, kan deze vanaf 
 verkrijgen in de kerk van Nazareth. Ze liggen op het tafeltje aan de zij-ingang.<br>
 <br>
 Zijn de affiches allemaal weg, of geraakt u niet tot in de kerk?<br>
-Geef dan een seintje via ons mailadres: {{<icon class="fa fa-envelope">}}&nbsp;<a href="werkgroepmarialeommegang@gmail.com">werkgroepmarialeommegang@gmail.com</a> of op {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:0471903801">0471 90 38 01</a> of {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:0475612062">0475 61 20 62</a>. Geef uw naam en adres door en wij bezorgen u een affiche<br>
+Geef dan een seintje via ons mailadres: werkgroepmaria<br>
+<br>
+<br>
+<br>
+
+
+
+
+
+#### VORMSELCATECHESE SINT AMANDUS EKE
+<br>
+Thema: <i>'Jezus zegt... Jij hoort erbij!'</i><br>
+<br>
+Startactiviteit met de kandidaat vormelingen en ouder(s).<br>
+<br>
+Wanneer: zaterdag <b>21 september 2024</b><br>
+<br>
+Om 15:30u tot 18:00.00 u.<br>
+<br>
+Waar: We komen samen in de kerk van Eke voor een korte bezinning.<br>
+<br>
+Hierna wandelen we rond de dorpskern en aan de<br>
+<br>
+hand van enkele bijbel verhalen doen we opdrachten.<br>
+<br>
+Einde is voorzien op het speelplein: Lichterveldestraat.<br>
 <br>
 <br>
 <br>
@@ -104,11 +129,7 @@ De Werkgroep Mariale Ommegang slaat hiervoor de handen ineen met het Lokaal Best
 <br>
 We zijn hiervoor binnen de werkgroep al volop met de voorbereidingen bezig.<br>
 <br>
-Wat mogen jullie o.a. al verwachten?<br>
-- Augustus 2025: 'OP WEG', een reizende Maria-expo met een stoet van witte Mariabeeldjes. Deze beeldjes waren in mei en juni 2024 te bewonderen in de basiliek van Oostakker.<br>
-- Tweede helft van augustus 2025: Tentoonstelling in de kerk van Nazareth rond de geschiedenis van de Mariale Ommegang.<br>
-- Maandag <b>8 september 2025</b>: Mariale Ommegang.<br>
-- Zaterdagavond <b>13 september 2025</b>: Kaarskensprocessie.<br>
+Wat mogen jullie o.a. al verwachten?e.<br>
 <br>
 - Een feestelijke nieuwe noveenkaars. Deze zal te koop zijn op de Ommegang van <b>8 september 2024</b> aan de hoofdingang van de kerk, op de koffietafel, en het ganse jaar via de Werkgroep Mariale Ommegang.<br>
 We verkopen deze kaars aan EUR 5 per stuk.<br>
@@ -142,40 +163,6 @@ Of neem gerust contact met de vormselploeg:<br>
 Ann De Vuyst - Gsm. {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:0470388649">0470 38 86 49</a><br>
 <br>
 Francine De Geyter - Gsm. {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:0476826093">0476 82 60 93</a><br>
-<br>
-<br>
-<br>
-
-
-
-
-
-#### VORMSELCATECHESE ST.AMANDUS - EKE
-<br>
-<figure><img src="images/pb-an.jpg" alt=" Vormsel... JA OF NEE? © Hilde Vanmeirhaeghe" style="max-height: 500px; max-width: 500px;" /><figcaption> Vormsel... JA OF NEE? © Hilde Vanmeirhaeghe</figcaption></figure><br>
-<br>
-<b>Wil je in 2025 je vormsel doen?</b><br>
-<br>
-Wil je het vormseltraject volgen op de Sint Amandus parochie in Eke?<br>
-Het sacrament van het vormsel is een belangrijk gebeuren in je leven.<br>
-Praat erover met je ouders. Beslis mee en kies er zelf voor.<br>
-Het vormsel is 'geen verplichting' maar een vrije keuze die je maakt .<br>
-Hier staan enkele vraagjes die je misschien kunnen helpen om te kiezen:<br>
-<br>
-Vormsel... JA OF NEE?<br>
-Ben je gedoopt in de kerk?<br>
-Volg je op school katholieke godsdienst?<br>
-Wil je groeien in geloof?<br>
-Ben je bereid om naar de catechese te komen en naar de eucharistie?<br>
-Heb je JA geantwoord op deze vraagjes?<br>
-<br>
-Op de contactavond krijg je dan meer uitleg over het programma en de kans om je in te schrijven. Deze gaat door op<br>
-op woensdag <b>4 september 2024</b><br>
-om 18.30 u. in de Sint Amandus kerk in Eke.<br>
-<br>
-Meer info en je aanmelden via:<br>
-De verantwoordelijke vormselcatechese Vanmeirhaeghe Hilde:<br>
-gsm nr. {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:0497856710">0497 85 67 10</a> of via mail {{<icon class="fa fa-envelope">}}&nbsp;<a href="hvanmeirhaeghe@skynet.be">hvanmeirhaeghe@skynet.be</a><br>
 <br>
 <br>
 <br>
@@ -245,24 +232,6 @@ Afhalen in de Onderstraat 9 op donderdag 3 en vrijdag <b>4 oktober</b> tussen 13
 
 
 
-#### SFEERVOLLE VIERING CHRISTIANA-DOMEIN DIKKELVENNE
-<br>
-<figure><img src="images/pb-non.jpg" alt=" jaarlijkse Christiana-viering © Chris JungBluth" style="max-height: 500px; max-width: 500px;" /><figcaption> jaarlijkse Christiana-viering © Chris JungBluth</figcaption></figure><br>
-<br>
-Op zondagnamiddag <b>28 juli</b> vond de <b>jaarlijkse Christiana-viering</b> in open lucht plaats aan de kapel.  Deze woorddienst ,voorgegaan door Liesbeth van het team 'geloofsgemeenschap Groot Gavere', stond dit jaar in het teken van "Herinneren".  We konden onder een stralende hemel genieten van een bijzonder mooie dienst, met talrijke aanwezigen, opgeluisterd met muziek en zang van de dames van Klanklichaam en afgesloten met een drankje. De kapel was nog maar net voorzien van een nieuwe dakbedekking, en werd daarom extra feestelijk in de bloemen gezet.<br>
-Het werd dus een mooie verzorgde waardige viering in lijn met de mooie eeuwenoude traditie binnen de Dikkelvense gemeenschap.<br>
-<br>
-Een grote <b>dankjewel aan alle vrijwillige medewerkers</b> die deze traditie in ere helpen houden, Liesbeth, Conny, Saskia, Paul, Frank, Alain, Carine en Isabelle!!<br>
-De kapel is open elke 1ste zondagnamiddag, je kan er onder begeleiding van een ervaren gids meer te weten komen over onze rijke Dikkelvense geschiedenis<br>
-Mede door de steun van Cultuurregio Leie-Schelde en de kerkraad onderging ons fameuze 16de-eeuwse polychrome Christiana-beeldje in 2023 een behoudende restauratie. Deze zomer, dankzij verkregen subsidie, kon het dak vernieuwd worden. Voor verdere financiering van restauratie van ons erfgoed rondom Christiana, is alle steun welkom door bezoek aan de kapel, aankoop kaarsen en via storting op rekening <b>{{<icon class="fa fa-piggy-bank">}}&nbsp;BE67 8933 7015 4287</b> van Kerkraad Dikkelvenne/ Erfgoed    Alvast hartelijk dank.<br>
-<br>
-<br>
-<br>
-
-
-
-
-
 #### ASPER: KERMISMAANDAG 23 SEPTEMBER 2024
 <br>
 <figure><img src="images/pb-ter.jpg" alt=" Eetfestijn © Chris JungBluth" style="max-height: 500px; max-width: 500px;" /><figcaption> Eetfestijn © Chris JungBluth</figcaption></figure><br>
@@ -298,9 +267,11 @@ Kaarten te bekomen bij:<br>
 <br>
 <figure><img src="images/pb-vel.jpg" alt=" Paus Franciscus groet het publiek © Vatican Media/Dicastery for Communication" style="max-height: 500px; max-width: 500px;" /><figcaption> Paus Franciscus groet het publiek © Vatican Media/Dicastery for Communication</figcaption></figure><br>
 <br>
-<figure><img src="images/pb-at.jpg" alt=" Hoopvol onderweg © Bisschoppenconferentie van België" style="max-height: 500px; max-width: 500px;" /><figcaption> Hoopvol onderweg © Bisschoppenconferentie van België</figcaption></figure><br>
+<figure><img src="images/pb-via.jpg" alt=" Hoopvol onderweg © Bisschoppenconferentie van België" style="max-height: 500px; max-width: 500px;" /><figcaption> Hoopvol onderweg © Bisschoppenconferentie van België</figcaption></figure><br>
 <br>
-Op uitnodiging van burgerlijke en kerkelijke overheden van ons land komt paus Franciscus naar België en maakt naast een bezoek aan Brussel ook de 600ste verjaardag van de katholieke universiteiten van Leuven en Louvain-la-Neuve mee.<br>
+Op uitnodiging van burgerlijke en kerkelijke overheden van ons land komt paus Franciscus naar<br>
+België en maakt naast een bezoek aan Brussel ook de 600ste verjaardag van de katholieke<br>
+universiteiten van Leuven en Louvain-la-Neuve mee.<br>
 <br>
 <b>Thema van het pausbezoek</b><br>
 <br>
@@ -315,56 +286,29 @@ Het logo illustreert deze reis tegen de achtergrond van de kaart van België. Pa
 
 
 
-#### DE ZOMERVAKANTIE LOOPT OP Z'N EIND. ELK EINDE IS EEN NIEUW BEGIN!
+#### GELUKKIG SAMEN? SAMEN GELUKKIG!
 <br>
-<figure><img src="images/pb-has.jpg" alt=" Terug naar school © Kerknet" style="max-height: 500px; max-width: 500px;" /><figcaption> Terug naar school © Kerknet</figcaption></figure><br>
+<figure><img src="images/pb-ara.jpg" alt=" Gelukkig samen? Samen gelukkig © Sebastian en Hilde Vyaene" style="max-height: 500px; max-width: 500px;" /><figcaption> Gelukkig samen? Samen gelukkig © Sebastian en Hilde Vyaene</figcaption></figure><br>
 <br>
-<i>Wij bidden voor alle kinderen en jongeren</i><br>
-<i>die weldra opnieuw naar school gaan na de zomervakantie.</i><br>
-<i>Laat hen mensen ontmoeten die hen niet uit het oog verliezen.</i><br>
-<i>Laat hun stem gehoord worden,</i><br>
-<i>ook al klinkt ze soms zwak of stamelend.</i><br>
-<i>Wij bidden voor alle kinderen en jongeren</i><br>
-<i>die bij het begin van dit nieuwe schooljaar</i><br>
-<i>hun weg zoeken in een nieuwe klas of een nieuwe school.</i><br>
-<i>Omring hen met mensen</i><br>
-<i>die hen benaderen met mildheid en respect,</i><br>
-<i>zodat het beste in henzelf naar boven kan komen</i><br>
-<i>en zij op hun beurt voor anderen</i><br>
-<i>een goede vriend kunnen zijn.</i><br>
-<i>Help hen om samen met hun leerkrachten</i><br>
-<i>de wereld te ontdekken</i><br>
-<i>en uit te groeien tot mensen</i><br>
-<i>waarop anderen kunnen bouwen.</i><br>
+Op verschillende plaatsen in Vlaanderen komen koppels samen die even stil willen staan bij de liefde, de eenheid in hun relatie, communicatie...<br>
+Tijdens de avonden word je, samen met andere koppels, ontvangen door een koppel op een locatie in de buurt van je woonplaats.<br>
+Na een moment van gezellig samenzijn, volgt een korte inleiding. Vanuit dit onderricht krijg je enkele vragen mee om met je partner over uit te wisselen in de week die volgt.<br>
+Het traject omvat drie avonden en een weekend, dat best als geheel gevolgd wordt.<br>
+Wanneer?<br>
 <br>
-<b>Pastoor Guy en het parochieteam wensen alle kinderen en studenten een schitterend jaar vol nieuwe uitdagingen toe.</b><br>
-<b>Aan alle leerkrachten en opvoeders veel voldoening gewenst in de mooie taak om van elke unieke mens een nieuwe mens te maken.</b><br>
+DRIE AVONDEN van 20.00 u. tot 21.45 u.<br>
+- <b>28 september 2023</b><br>
+- <b>12 oktober 2023</b><br>
+- <b>26 oktober 2023</b><br>
+en ÉÉN WEEKEND<br>
+- op 4 en <b>5 november 2023</b><br>
+Info en inschrijven:<br>
+{{<icon class="fa fa-external-link">}}&nbsp;<a href="https://madeforlove.emmanuelvlaanderen.be" taeget=_blank>https://madeforlove.emmanuelvlaanderen.be</a><br>
+Liever eerst kennismaken? Schrijf je nu en neem gratis deel aan de eerste avond. Bevalt ons<br>
+aanbod je? Dan kan je na afloop aansluiten bij het vervolg van het traject.<br>
 <br>
-<br>
-<br>
-
-
-
-
-
-#### BIDDEN VOOR EEN GOEDE START BIJ HET NIEUWE WERKJAAR
-<br>
-<figure><img src="images/pb-ait.jpg" alt=" Samen op weg gaan © ECIW coach" style="max-height: 500px; max-width: 500px;" /><figcaption> Samen op weg gaan © ECIW coach</figcaption></figure><br>
-<br>
-<i>Wij wensen iedereen in dit nieuwe werkjaar een warm hart,</i><br>
-<i>dat iedereen ondanks tegenslagen optimistisch blijft,</i><br>
-<i>dat we opkomen voor de anderen,</i><br>
-<i>dat we blij zijn om het geluk van de anderen.</i><br>
-<i>Wij wensen elkeen een vergevende hand,</i><br>
-<i>wij hopen dat onze daden overeenstemmen</i><br>
-<i>met onze gedachten en onze woorden,</i><br>
-<i>dat wij het goede in de anderen zien,</i><br>
-<i>dat we vrede uitzaaien in onze werkomgeving.</i><br>
-<i>Wij durven hopen dat we het af en toe</i><br>
-<i>stil durven maken om ook eens te bidden</i><br>
-<i>en dat ons leven in ons denken, spreken en handelen</i><br>
-<i>afgestemd wordt op de golflengte</i><br>
-<i>van het leven van Jezus van Nazareth.</i><br>
+Voor vragen en info kan je ook terecht bij:<br>
+Sebastian en Hilde Vyaene<br>
 <br>
 <br>
 <br>

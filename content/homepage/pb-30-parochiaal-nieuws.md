@@ -11,25 +11,41 @@ header_menu: true
 
 
 
-#### AANSTELLING NIEUWE DEKEN VAN HET DEKENAAT DEINZE
+#### ZIEKTE VAN ONZE PASTOOR
 <br>
-<figure><img src="images/pb-tu.jpg" alt=" Patrick Derde © Anoniem" style="max-height: 500px; max-width: 500px;" /><figcaption> Patrick Derde © Anoniem</figcaption></figure><br>
+Pastoor Guy is ziek. Stefaan De Paepe (Guy's collega uit WZC Lichtervelde) vervangt hem zoveel als mogelijk.<br>
+Sommige vieringen zullen misschien niet kunnen doorgaan.<br>
 <br>
-Op dinsdag <b>10 september</b> zal bisschop Lode Van Hecke mij, met het voorgeschreven ritueel, aanstellen tot deken van het dekenaat Deinze. Tegelijkertijd worden de leden van de dekenale ploeg in hun functie bevestigd.<br>
+Mag Guy rekenen op jullie begrip en jullie gebed?<br>
 <br>
-De gebedsdienst gaat door in de Onze-Lieve-Vrouwekerk (Markt Deinze) om 19.00 uur.<br>
 <br>
-Na de gebedsdienst trakteert vzw Dekenaat Deinze met een drankje (Golden Tricky aanwezig) en een bakje frietjes op het Poppoplein.<br>
 <br>
-We nodigen iedereen graag uit op de gebedsdienst en het moment van ontmoeting nadien.<br>
+
+
+
+
+
+#### MARIALE OMMEGANG NAZARETH: KERKVERSIERING
 <br>
-(Voor alle duidelijkheid: ik blijf pastoor in de parochie Marta en Maria in Aalter en Rudy van Acker blijft pastoor in de parochie Heilige Maria Magdalena in Deinze)<br>
+Ter gelegenheid van OLV Geboorte wordt de kerk versierd met blauwe en witte bloemen. In de namiddag is er om 14.30 u. ' de Ommegang waarin OL Vrouw meegedragen wordt.<br>
 <br>
-Patrick Derde<br>
+<figure><img src="images/pb-an1.jpg" alt=" Kerkversiering te Nazareth © Rita Van oost" style="max-height: 500px; max-width: 500px;" /><figcaption> Kerkversiering te Nazareth © Rita Van oost</figcaption></figure><br>
+<figure><img src="images/pb-an2.jpg" alt=" Kerkversiering te Nazareth © Rita Van oost" style="max-height: 500px; max-width: 500px;" /><figcaption> Kerkversiering te Nazareth © Rita Van oost</figcaption></figure><br>
 <br>
-P.S. Parkeren kan u op de parking van de Brielpoort en in de Brielstraat (parking Carrefour).<br>
 <br>
-<figure><img src="images/pb-hi.jpg" alt=" Parochies dekenaat Deinze © P. Derde" style="max-height: 500px; max-width: 500px;" /><figcaption> Parochies dekenaat Deinze © P. Derde</figcaption></figure><br>
+<br>
+
+
+
+
+
+#### MARIALE OMMEGANG NAZARETH: BLOEMEN VOOR SAMANA
+<br>
+<figure><img src="images/pb-ego1.jpg" alt=" Bloemen voor Samana (1) © Annick Geiregat" style="max-height: 500px; max-width: 500px;" /><figcaption> Bloemen voor Samana (1) © Annick Geiregat</figcaption></figure><br>
+<figure><img src="images/pb-ego2.jpg" alt=" Bloemen voor Samana (2) © Annick Geiregat" style="max-height: 500px; max-width: 500px;" /><figcaption> Bloemen voor Samana (2) © Annick Geiregat</figcaption></figure><br>
+<figure><img src="images/pb-ego3.jpg" alt=" Bloemen voor Samana (3) © Annick Geiregat" style="max-height: 500px; max-width: 500px;" /><figcaption> Bloemen voor Samana (3) © Annick Geiregat</figcaption></figure><br>
+<figure><img src="images/pb-ego4.jpg" alt=" Bloemen voor Samana (4) © Annick Geiregat" style="max-height: 500px; max-width: 500px;" /><figcaption> Bloemen voor Samana (4) © Annick Geiregat</figcaption></figure><br>
+Traditioneel verkopen vrijwillgers bloemen tijdens de Ommegang. Op deze wijze wordt de werking van Samana Nazareth gesteund.<br>
 <br>
 <br>
 <br>
@@ -40,37 +56,33 @@ P.S. Parkeren kan u op de parking van de Brielpoort en in de Brielstraat (parkin
 
 #### MARIALE OMMEGANG NAZARETH
 <br>
-<figure><img src="images/pb-us.jpg" alt=" Affiche Ommegang © De Wilde-Peil" style="max-height: 500px; max-width: 500px;" /><figcaption> Affiche Ommegang © De Wilde-Peil</figcaption></figure><br>
+De Mariale Ommegang 2024 ligt alweer een paar dagen achter ons.<br>
+Een Ommegang die dankzij de belangeloze inzet en flexibiliteit van onze talrijke vrijwilligers weer vlekkeloos verlopen is.<br>
+Zo kregen we o.a. op het allerlaatste moment de melding dat CC Het Centrum vrijgekomen was, en we onze koffietafel na de Ommegang op onze vertrouwde locatie konden houden.<br>
 <br>
-Op zondag <b>8 september 2024</b> om 14.30 u. gaat onze jaarlijkse Mariale Ommegang uit in Nazareth.<br>
+Zonder jullie zou het voor ons, de Werkgroep Mariale Ommegang, niet mogelijk zijn om alles georganiseerd te krijgen.<br>
 <br>
-Een Ommegang die dit jaar extra speciaal is, want het is de eerste keer dat ze uitgaat als <b>IMMATERIEEL CULTUREEL ERFGOED</b>.<br>
-De Werkgroep Mariale Ommegang kreeg deze erkenning in januari 2024 van de Vlaamse minister van Cultuur. De minister vindt onze ommegang belangrijk genoeg om te borgen; d.w.z. dat wij er zorg voor moeten dragen zodat wij deze kunnen overdragen aan toekomstige generaties.<br>
+Dank je wel aan de mensen die de kerk hielpen versieren.<br>
+Dank je wel aan de vervangende voorganger(s) om de Hoogmis en de Ommegang te verzorgen. Ook van jullie werd op het laatste moment de nodige flexibiliteit gevraagd. Dit werd enorm gewaardeerd door de Werkgroep en de bedevaarders!<br>
+Dank je wel aan de beide organisten en aan de lectoren voor jullie medewerking tijdens de hoogmis en tijdens de gebedsdienst.<br>
+Dank je wel aan al onze dragers die er ieder jaar opnieuw voor zorgen dat Maria en haar Jezuskind veilig door de straten van Nazareth gedragen worden.<br>
+Dank je wel aan onze kruisdragers om vooraan onze Ommegang te openen.<br>
+Dank je wel aan de schoolkinderen om het bord van Onze Lieve Vrouw te dragen.<br>
+Dank je wel aan de mensen die voor de begeleiding rond de microwagen zorgen.<br>
+Dank je wel aan de mannen die voor de veiligheid vooraan én achteraan zorgen.<br>
+Dank je wel aan de politie die mee waakt over de veiligheid van onze bedevaarders.<br>
+Dank je wel aan de fotografen die ons erfgoed ieder jaar vastleggen en bewaren voor de toekomst. De foto's komen in de volgende parochiebladen en op de website van de Mariale Ommegang.<br>
+Dank je wel aan onze reserves. Dankzij jullie 'reserve zijn' hebben wij binnen de Werkgroep een pak minder stress indien er alsnog iemand zou uitvallen.<br>
+Dank je wel aan de verenigingen die met hun vlag de Ommegang meeliepen.<br>
+Dank je wel aan iedereen die meehielp om een succes te maken van de koffietafel.<br>
 <br>
-Tegelijkertijd aan de Ommegang vindt er in de kerk een gebedswake plaats. Mensen die niet meer zo goed te been zijn, of voor wie de afstand van ongeveer 4 km te lang is, kunnen dus gerust in de kerk hun Ommegang beleven.<br>
+Maar ook... dank je wel aan onze bedevaarders! Jullie komen soms van heinde en ver en houden ons Immaterieel Erfgoed levend!<br>
 <br>
-Wij nodigen u ook graag uit op de andere vieringen gedurende de 15-daagse van Onze Lieve Vrouw van Nazareth:<br>
+Wij nodigen jullie graag uit op de andere vieringen die nog doorgaan gedurende de 15-daagse van Onze Lieve Vrouw van Nazareth:<br>
 <br>
-<b>Zondag 15 september 2024 om 10.30 u.</b>: Solemniteit van Onze-Lieve-Vrouw en parochiale missiezondag met bijzondere collecte voor onze Nazarethse missionarissen.<br>
-<b>Maandag 16 september 2024 om 09.30 u.</b>: Kermismaandag met dienst voor onze overleden parochianen.<br>
-<b>Zondag 22 september 2024 om 10.30 u.</b>: Afsluiten van de 15-daagse t.e.v. Onze-Lieve-Vrouw van Nazareth<br>
-<br>
-<br>
-<br>
-
-
-
-
-
-#### NAZARETH: KOFFIETAFEL NA DE OMMEGANG - OPGELET - LOCATIEWIJZIGING!!
-<br>
-<figure><img src="images/pb-si.jpg" alt=" Koffietafel © Greta Peil" style="max-height: 500px; max-width: 500px;" /><figcaption> Koffietafel © Greta Peil</figcaption></figure><br>
-<br>
-Na de Ommegang biedt de Werkgroep Mariale Ommegang u opnieuw de mogelijkheid om samen te komen voor een gezellige babbel, een kopje koffie, een verfrissend drankje en een eclair.<br>
-<br>
-Opgelet: aangezien de grote zaal van CC Het Centrum dit jaar niet vrij was, mogen we de refter van de Vrije Basisschool gebruiken. De ingang is via de witte deur in de Drapstraat, rechts van het huis met nr. 12.<br>
-<br>
-Alle bedevaarders zijn van harte welkom!<br>
+Zondag <b>15 september 2024</b> om 10.30 u.: Solemniteit van Onze-Lieve-Vrouw en parochiale missiezondag met bijzondere collecte voor onze Nazarethse missionarissen.<br>
+Maandag <b>16 september 2024</b> om 09.30 u.: Kermismaandag met dienst voor onze overleden parochianen.<br>
+Zondag <b>22 september 2024</b> om 10.30 u.: Afsluiten van de 15-daagse t.e.v. Onze-Lieve-Vrouw van Nazareth<br>
 <br>
 <br>
 <br>
@@ -79,13 +91,16 @@ Alle bedevaarders zijn van harte welkom!<br>
 
 
 
-#### NAZARETH: AFFICHES MARIALE OMMEGANG
+#### NAZARETH: PAROCHIALE MISSIEZONDAG
 <br>
-Wie graag een affiche van de Ommegang aan zijn venster uithangt, kan deze vanaf heden<br>
-verkrijgen in de kerk van Nazareth. Ze liggen op het tafeltje aan de zij-ingang.<br>
+De tweede zondag tijdens de 15-daagse van Onze-Lieve-Vrouw van Nazareth is traditioneel de Parochiale Missiezondag. Dit jaar is dit op zondag <b>15 september 2024</b>.<br>
 <br>
-Zijn de affiches allemaal weg, of geraakt u niet tot in de kerk?<br>
-Geef dan een seintje via ons mailadres: werkgroepmaria<br>
+De omhaling van deze zondag gaat integraal naar het missiewerk van onze voormalige Nazarethse missionarissen. De helft van de omhaling zal gaan naar het missiewerk van Zuster Frieda Schaubroeck van de Zusters Bernardinnen, de andere helft is voor het missiewerk van Zuster Veerle Ghequière van de Zusters van Kindsheid Jesu.<br>
+Indien jullie dit wensen, kunnen jullie het missiewerk van beide Zusters ook rechtstreeks steunen.<br>
+<br>
+Voor zuster Frieda kan dit op rekening <b>{{<icon class="fa fa-piggy-bank">}}&nbsp;BE52 0014 1459 0709</b> o.n.v. VZW Zr Bernardinnen - Afrikaanse Provincies BROV.<br>
+<br>
+Voor zuster Veerle kan dit op rekening <b>{{<icon class="fa fa-piggy-bank">}}&nbsp;BE51 4460 2508 6162</b> o.n.v. Zusters Kindsheid Jesu.<br>
 <br>
 <br>
 <br>
@@ -111,33 +126,6 @@ Hierna wandelen we rond de dorpskern en aan de<br>
 hand van enkele bijbel verhalen doen we opdrachten.<br>
 <br>
 Einde is voorzien op het speelplein: Lichterveldestraat.<br>
-<br>
-<br>
-<br>
-
-
-
-
-
-#### NAZARETH - HEILIG JAAR OF JUBELJAAR: "PELGRIMS VAN HOOP"
-<br>
-<figure><img src="images/pb-una.jpg" alt=" Kaarsen WMO © Werkgroep Mariale Ommegang" style="max-height: 500px; max-width: 500px;" /><figcaption> Kaarsen WMO © Werkgroep Mariale Ommegang</figcaption></figure><br>
-<br>
-2024-2025 wordt een speciaal jaar voor onze Ommegang.<br>
-We willen mee aansluiten bij het Heilig Jaar of Jubeljaar dat Paus Franciscus uitgeroepen heeft met als thema 'PELGRIMS VAN HOOP' en dat start op <b>24 december 2024</b>.<br>
-De Werkgroep Mariale Ommegang slaat hiervoor de handen ineen met het Lokaal Bestuur Nazareth en de Cultuurregio Leie Schelde.<br>
-<br>
-We zijn hiervoor binnen de werkgroep al volop met de voorbereidingen bezig.<br>
-<br>
-Wat mogen jullie o.a. al verwachten?e.<br>
-<br>
-- Een feestelijke nieuwe noveenkaars. Deze zal te koop zijn op de Ommegang van <b>8 september 2024</b> aan de hoofdingang van de kerk, op de koffietafel, en het ganse jaar via de Werkgroep Mariale Ommegang.<br>
-We verkopen deze kaars aan EUR 5 per stuk.<br>
-- Een klein kaarsje (4-uursbrander), speciaal ontworpen voor ons feestjaar.<br>
-Voor EUR 1 krijg je 1 kaarsje, voor EUR 5 krijg je 7 kaarsjes (ééntje voor elke dag van de week). Deze kaarsjes zullen te koop zijn op de Ommegang van <b>8 september</b> aan de hoofdingang van de kerk, op de koffietafel, en het ganse jaar via de Werkgroep Mariale Ommegang.<br>
-<br>
-Voor alle verdere vragen of voor meer informatie kan u steeds terecht op de website: www.mariale-ommegang-nazareth.be of via mail op {{<icon class="fa fa-envelope">}}&nbsp;<a href="werkgroepmarialeommegang@gmail.com">werkgroepmarialeommegang@gmail.com</a><br>
-Dit mailadres mag ook gebruikt worden om vanaf heden de nieuwe kaarsen te bestellen.<br>
 <br>
 <br>
 <br>
@@ -232,6 +220,17 @@ Afhalen in de Onderstraat 9 op donderdag 3 en vrijdag <b>4 oktober</b> tussen 13
 
 
 
+#### NAZARETH: TRIPLE SAX BENEFIET VOOR WZC WIELKINE
+<br>
+<figure><img src="images/pb-at.jpg" alt=" Benefiet voor WZC Wielkine © Zorgband Leie en Schelde" style="max-height: 500px; max-width: 500px;" /><figcaption> Benefiet voor WZC Wielkine © Zorgband Leie en Schelde</figcaption></figure><br>
+<br>
+<br>
+<br>
+
+
+
+
+
 #### ASPER: KERMISMAANDAG 23 SEPTEMBER 2024
 <br>
 <figure><img src="images/pb-ter.jpg" alt=" Eetfestijn © Chris JungBluth" style="max-height: 500px; max-width: 500px;" /><figcaption> Eetfestijn © Chris JungBluth</figcaption></figure><br>
@@ -255,60 +254,6 @@ Kaarten te bekomen bij:<br>
 {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:0479675175">0479 67 51 75</a>, e-mail: {{<icon class="fa fa-envelope">}}&nbsp;<a href="ritapetereyns@gmail.com">ritapetereyns@gmail.com</a><br>
 <br>
 <b>Om 10.00 u. gebedsdienst voor de overleden parochianen in de kerk van Asper</b><br>
-<br>
-<br>
-<br>
-
-
-
-
-
-#### PAUS FRANCISCUS BEZOEKT ONS LAND VAN 26 TOT 29 SEPTEMBER
-<br>
-<figure><img src="images/pb-vel.jpg" alt=" Paus Franciscus groet het publiek © Vatican Media/Dicastery for Communication" style="max-height: 500px; max-width: 500px;" /><figcaption> Paus Franciscus groet het publiek © Vatican Media/Dicastery for Communication</figcaption></figure><br>
-<br>
-<figure><img src="images/pb-via.jpg" alt=" Hoopvol onderweg © Bisschoppenconferentie van België" style="max-height: 500px; max-width: 500px;" /><figcaption> Hoopvol onderweg © Bisschoppenconferentie van België</figcaption></figure><br>
-<br>
-Op uitnodiging van burgerlijke en kerkelijke overheden van ons land komt paus Franciscus naar<br>
-België en maakt naast een bezoek aan Brussel ook de 600ste verjaardag van de katholieke<br>
-universiteiten van Leuven en Louvain-la-Neuve mee.<br>
-<br>
-<b>Thema van het pausbezoek</b><br>
-<br>
-De slogan "Hoopvol onderweg" die werd gekozen klinkt als een oproep tot vernieuwing en optimisme. De gelovige gemeenschap is "Hoopvol onderweg": een dimensie van vertrouwen en vreugde. In de christelijke traditie is het hoop een kracht die ons voortstuwt, die troost en inspireert. Hoop nodigt iedereen uit om voor een betere toekomst te gaan, waarin elkeen een motor kan zijn van verandering en verzoening.<br>
-<br>
-Het logo illustreert deze reis tegen de achtergrond van de kaart van België. Paus Franciscus stapt tussen de gelovigen (van alle leeftijden en met verschillende achtergronden) en moedigt hen aan om bij te dragen aan een meer rechtvaardige wereld en deel te nemen aan het leven en de toekomst van de Kerk.<br>
-<br>
-<br>
-<br>
-
-
-
-
-
-#### GELUKKIG SAMEN? SAMEN GELUKKIG!
-<br>
-<figure><img src="images/pb-ara.jpg" alt=" Gelukkig samen? Samen gelukkig © Sebastian en Hilde Vyaene" style="max-height: 500px; max-width: 500px;" /><figcaption> Gelukkig samen? Samen gelukkig © Sebastian en Hilde Vyaene</figcaption></figure><br>
-<br>
-Op verschillende plaatsen in Vlaanderen komen koppels samen die even stil willen staan bij de liefde, de eenheid in hun relatie, communicatie...<br>
-Tijdens de avonden word je, samen met andere koppels, ontvangen door een koppel op een locatie in de buurt van je woonplaats.<br>
-Na een moment van gezellig samenzijn, volgt een korte inleiding. Vanuit dit onderricht krijg je enkele vragen mee om met je partner over uit te wisselen in de week die volgt.<br>
-Het traject omvat drie avonden en een weekend, dat best als geheel gevolgd wordt.<br>
-Wanneer?<br>
-<br>
-DRIE AVONDEN van 20.00 u. tot 21.45 u.<br>
-- <b>28 september 2023</b><br>
-- <b>12 oktober 2023</b><br>
-- <b>26 oktober 2023</b><br>
-en ÉÉN WEEKEND<br>
-- op 4 en <b>5 november 2023</b><br>
-Info en inschrijven:<br>
-{{<icon class="fa fa-external-link">}}&nbsp;<a href="https://madeforlove.emmanuelvlaanderen.be" taeget=_blank>https://madeforlove.emmanuelvlaanderen.be</a><br>
-Liever eerst kennismaken? Schrijf je nu en neem gratis deel aan de eerste avond. Bevalt ons<br>
-aanbod je? Dan kan je na afloop aansluiten bij het vervolg van het traject.<br>
-<br>
-Voor vragen en info kan je ook terecht bij:<br>
-Sebastian en Hilde Vyaene<br>
 <br>
 <br>
 <br>

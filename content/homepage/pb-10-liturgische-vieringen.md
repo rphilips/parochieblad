@@ -11,48 +11,51 @@ header_menu: true
 <br>
 <br>
 
-##### Donderdag 12 september 2024  
-<dl><dt>&nbsp;</dt><dd>Heilige Naam van Maria<br></dd><dt><b>08.00 u. Eke:</b></dt><dd>*GEEN eucharistieviering*</dd>
-</dl>
-
-##### Vrijdag 13 september 2024  
-<dl><dt>&nbsp;</dt><dd>H. Johannes Chrysostomus, bisschop en kerkleraar<br></dd><dt><b>08.00 u. Eke:</b></dt><dd>*GEEN eucharistieviering*</dd>
-</dl>
-
-##### Zaterdag 14 september 2024  
-<dl><dt>&nbsp;</dt><dd>Kruisverheffing<br></dd><dt><b>18.00 u. Eke:</b></dt><dd>Jgt. Jules Vandekerckhove<br>Jacqueline De Schuyter<br>Jgt. Etienne Clemmen, echtg. Martha Corijn en overl. ouders, schoonouders en familie<br>Sylvain Matthys, echtg. Yvonne De Smet, ouders, schoonouders en familie<br><i>Lector: Sebastiaan Colenbie</i></dd>
-</dl>
-
-##### Zondag 15 september 2024  
-<dl><dt>&nbsp;</dt><dd>24e Zondag door het jaar<br></dd><dt><b>09.00 u. Gavere:</b></dt><dd>Jaargetijde Raphaël Van Lierde en echtgenote Marie-Louise Schietse<br><i>Lector: Dries Biesemans</i></dd>
-<dt><b>10.30 u. Nazareth:</b></dt><dd>Solemniteit van Onze-Lieve-Vrouw en parochiale missiezondag. Bijzondere collecte voor onze Nazarethse missionarissen<br><i>Lector: Jo Buysse</i></dd>
-</dl>
-
-##### Maandag 16 september 2024  
-<dl><dt>&nbsp;</dt><dd>HH. Cornelius, paus, en Cyprianus, bisschop, martelaren<br></dd><dt><b>08.00 u. Eke:</b></dt><dd>Eucharistie</dd>
-<dt><b>09.30 u. Nazareth:</b></dt><dd>Kermismaandag - Dienst voor de overleden parochianen</dd>
-</dl>
-
-##### Dinsdag 17 september 2024  
-<dl><dt>&nbsp;</dt><dd>H. Hildegard van Bingen, maagd en kerklerares<br>H. Robertus Bellarminus, bisschop en kerkleraar<br></dd><dt><b>08.00 u. Eke:</b></dt><dd>Overleden ouders en zus</dd>
-</dl>
-
 ##### Donderdag 19 september 2024  
-<dl><dt>&nbsp;</dt><dd>H. Januarius, bisschop en martelaar<br></dd><dt><b>08.00 u. Eke:</b></dt><dd>Uit dank</dd>
+<dl><dt>&nbsp;</dt><dd>H. Januarius, bisschop en martelaar<br></dd><dt><b>08.00 u. Eke:</b></dt><dd>*GEEN eucharistieviering*</dd>
 </dl>
 
 ##### Vrijdag 20 september 2024  
-<dl><dt>&nbsp;</dt><dd>HH. Andreas Kim Taegon, priester, en Paulus Chong Hasang en gezellen, martelaren<br></dd><dt><b>08.00 u. Eke:</b></dt><dd>Uit dank</dd>
+<dl><dt>&nbsp;</dt><dd>HH. Andreas Kim Taegon, priester, en Paulus Chong Hasang en gezellen, martelaren<br></dd><dt><b>08.00 u. Eke:</b></dt><dd>*GEEN eucharistieviering*</dd>
 </dl>
 
 ##### Zaterdag 21 september 2024  
-<dl><dt>&nbsp;</dt><dd>H. Matteüs, apostel en evangelist<br></dd><dt><b>12.30 u. Nazareth:</b></dt><dd>Huwelijk van Wesley Temmerman en Kaylee Boelaert</dd>
+<dl><dt>&nbsp;</dt><dd>H. Matteüs, apostel en evangelist<br>WERELDALZHEIMERDAG<br></dd><dt><b>12.30 u. Nazareth:</b></dt><dd>Huwelijk van Wesley Temmerman en Kaylee Boelaert</dd>
 <dt><b>18.00 u. Eke:</b></dt><dd>Jgt. Antoine Devos<br><i>Lector: Trees Adins</i></dd>
 </dl>
 
 ##### Zondag 22 september 2024  
 <dl><dt>&nbsp;</dt><dd>25e Zondag door het jaar<br></dd><dt><b>09.00 u. Gavere:</b></dt><dd>Voor Ruffin Verschelden en Roger Dhondt en ouders<br>Eeuwigdurend voor Maria De Muynck (5)<br><i>Lector: Luc De Coninck</i></dd>
 <dt><b>10.30 u. Nazareth:</b></dt><dd>Afsluiten van de 15-daagse t.e.v. Onze-Lieve-Vrouw van Nazareth<br>Albert Vincke en echtg. Helena Dupont<br><i>Lector: Annemie De Gussem</i></dd>
+</dl>
+
+##### Maandag 23 september 2024  
+<dl><dt>&nbsp;</dt><dd>H. Pius van Pietrelcina, priester<br></dd><dt><b>08.00 u. Eke:</b></dt><dd>*GEEN eucharistieviering*</dd>
+</dl>
+
+##### Dinsdag 24 september 2024  
+<dl><dt><b>08.00 u. Eke:</b></dt><dd>*GEEN eucharistieviering*</dd>
+</dl>
+
+##### Woensdag 25 september 2024  
+<dl><dt>&nbsp;</dt><dd>H. Gerolf, martelaar<br></dd><dt><b>08.30 u. Nazareth:</b></dt><dd>*GEEN eucharistie viering*</dd>
+</dl>
+
+##### Donderdag 26 september 2024  
+<dl><dt>&nbsp;</dt><dd>HH. Cosmas en Damianus, martelaren<br></dd><dt><b>08.00 u. Eke:</b></dt><dd>*GEEN eucharistieviering*</dd>
+</dl>
+
+##### Vrijdag 27 september 2024  
+<dl><dt>&nbsp;</dt><dd>H. Vincentius a Paulo, priester<br></dd><dt><b>08.00 u. Eke:</b></dt><dd>*GEEN eucharistieviering*</dd>
+</dl>
+
+##### Zaterdag 28 september 2024  
+<dl><dt>&nbsp;</dt><dd>H. Wenceslaus, martelaar<br>HH. Laurentius Ruiz en gezellen, martelaren<br>Maria op zaterdag<br></dd><dt><b>18.00 u. Eke:</b></dt><dd>Rosa Bracke en echtg. Roger Claus<br>Paus Johannes-Paulus I<br><i>Lector: Philippe Lammens</i></dd>
+</dl>
+
+##### Zondag 29 september 2024  
+<dl><dt>&nbsp;</dt><dd>26e Zondag door het jaar<br>Omhaling migranten en vluchtelingen<br></dd><dt><b>09.00 u. Gavere:</b></dt><dd>T.e.v. Onze-Lieve-Vrouw Altijddurende bijstand<br>Mis uit dank (BDCW)<br><i>Lector: Isabelle Tuypens</i></dd>
+<dt><b>10.30 u. Nazareth:</b></dt><dd>Fam. Kervijn-De Volkaersbeke<br>Jgt. Polydoor De Beir, echtg. Mariette De Wilde<br><i>Lector: Marijke Dhondt</i></dd>
 </dl>
 <br>
 <br>

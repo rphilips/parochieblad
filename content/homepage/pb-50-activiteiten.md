@@ -127,12 +127,21 @@ Inschrijving is definitief na ontvangst van jullie betaling via overschrijving o
 
 
 
+#### HEB JE IDEEËN VOOR HET TOEKOMSTIG GEBRUIK KERKGEBOUW BAAIGEM
+<br>
+WELKOM ZONDAG <b>22 september</b> TUSSEN 10.30 u. EN 15.00 u.<br>
+<br>
+<figure><img src="images/pb-tam.jpg" alt=" Toekomst en herbestemming kerk Baaigem © B(r)avo" style="max-height: 500px; max-width: 500px;" /><figcaption> Toekomst en herbestemming kerk Baaigem © B(r)avo</figcaption></figure><br>
+<br>
+<br>
+<br>
+
+
+
+
+
 #### LDC DEN OEVER - GAVERE
 <br>
-<b>Donderdag 12 september</b> om 14.00 u.: Infosessie EHBO<br>
-<b>Maandag 16 september</b> om 14.00 u.: Kaarten i.s.m. OKRA<br>
-<b>Dinsdag 17 september</b> om 10.00 u.: Yoga<br>
-<b>Dinsdag 17 september</b> om 14.00 u.: Lijndansen, Portrettekenen, Spelletjesnamiddag<br>
 <b>Woensdag 18 september</b> om 08.30 u.: Ontbijt<br>
 <b>Woensdag 18 september</b> om 14.00 u.: Diamond painting<br>
 <b>Donderdag 19 september</b> om 10.00 u.: Bewegen op muziek<br>
@@ -160,14 +169,11 @@ Inschrijving is definitief na ontvangst van jullie betaling via overschrijving o
 <br>
 OKRA-TREFPUNT EKE nodigt uit...<br>
 <br>
-<b>Woensdag 11 september</b> om 14.00 u. in CC De Brouwerij: Kaarten<br>
-<b>Donderdag 12 september</b> om 09.00 u. in CC De Brouwerij: Lijndans<br>
-<b>Donderdag 12 september</b> om 13.45 u. vertrek aan de kerk: Wandelen en fietsen<br>
-<b>Vrijdag 13 september</b> om 14.00 u. in CC De Brouwerij: Voordracht over slapen en slaapproblemen<br>
-<b>Maandag 16 september</b> om 13.30 u. in CC De Brouwerij: Crea-atelier en vrij schaken<br>
-<b>Dinsdag 17 september</b> om 14.00 u. in Sporthal Nazareth: Petanque<br>
 <b>Donderdag 19 september</b> om 07.45 u.: Vertrek parking Sporthal voor OKRA-regiotreffen in Mechelen<br>
 <b>Donderdag 19 september</b> om 14.00 u. in CC De Brouwerij: Lijndans en rummikub<br>
+<b>Woensdag 25 september</b> om 14.00 u. in CC De Brouwerij: Kaarten<br>
+<b>Donderdag 26 september</b> om 09.00 u. in CC De Brouwerij: Lijndans<br>
+<b>Donderdag 26 september</b> om 13.45 u. vertrek aan de kerk: Wandelen en fietsen<br>
 <br>
 Info: Willy Rogge, {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:0470596571">0470 59 65 71</a><br>
 Zie ook: www.okra.be/trefpunt/eke<br>
@@ -183,10 +189,10 @@ Zie ook: www.okra.be/trefpunt/eke<br>
 <br>
 Activiteiten van augustus, september 2024<br>
 <br>
-<b>Donderdag 12 september</b> om 14.00 u. in CC Het Centrum: Lijndansen<br>
-<b>Dinsdag 17 september</b> om 14.00 u. in CC Het Centrum: Kaarten, rummikub, crea<br>
 <b>Woensdag 18 september</b> om 14.00 u. in CC Het Centrum: Kermis koffietafel<br>
 <b>Donderdag 19 september</b> om 07.45 u. parking Sporthal Ommegangstraat: Regionale bedevaart naar Mechelen<br>
+<b>Dinsdag 24 september</b> om 14.00 u. aan de Sporthal: Petanque<br>
+<b>Donderdag 26 september</b> om 14.00 u. in CC Het Centrum: Lijndansen om 14.00 u. in CC Het Centrum<br>
 <br>
 !!! Voor meer info: OKRA GSM nummer {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:0484719871">0484 71 98 71</a><br>
 <br>
@@ -204,6 +210,19 @@ Na een, hopelijk, deugddoende vakantie starten wij in september terug met onze a
 Op donderdag <b>19 september</b> brengen wij een bezoek aan de pottenbakkerij 'T Hoveke In Meigem, we spreken af om 13.50 u. aan het OC Martinus, Hulstraat 27, Asper. Daar carpoolen we samen naar Meigem. Wij krijgen door de pottenbakker Paul een demonstratie en kunnen achteraf proeven van Lea haar heerlijke taarten. Kostprijs 15 EUR pp. Inschrijven kan bij Lydie: {{<icon class="fa fa-envelope">}}&nbsp;<a href="Lydie.vanderstichelen@telenet.be">Lydie.vanderstichelen@telenet.be</a> of {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:093841423">09 384 14 23</a>, {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:0498459548">0498 45 95 48</a> tegen uiterlijk <b>13 september</b>. Niet vergeten van nummerplaat en automerk door te geven als je die dag chauffeur bent! (verzekering)<br>
 <br>
 Op donderdag <b>26 september</b> om 14.00 u. 'BINGO' in het OC Martinus, Hulstraat 27 Asper. Graag een paar dagen vooraf aan Lydie laten weten of je aanwezig zal zijn op de bingo!<br>
+<br>
+<br>
+<br>
+
+
+
+
+
+#### SAMANA NAZARETH
+<br>
+Op dinsdagen <b>8 oktober</b>, <b>12 november</b> en <b>10 december</b> is er crea in CC Het Centrum om 14.00 u. Deze activiteit is gratis en iedereen is van harte welkom.<br>
+<br>
+Ons kerstfeest is op zaterdag <b>21 december</b> in CC Het Centrum om 14.00 u. Onze leden worden nog persoonlijk uitgenodigd.<br>
 <br>
 <br>
 <br>

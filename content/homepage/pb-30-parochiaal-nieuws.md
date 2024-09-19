@@ -11,26 +11,11 @@ header_menu: true
 
 
 
-#### ZIEKTE VAN ONZE PASTOOR
+#### 2E FASE IN DE OPHEFFING VAN DE PAROCHIE SINT-BAVO BAAIGEM EN SAMENVOEGING MET DE SINT-AMANDUSPAROCHIE GAVERE
 <br>
-Pastoor Guy is ziek. Stefaan De Paepe (Guy's collega uit WZC Lichtervelde) vervangt hem zoveel als mogelijk.<br>
-Sommige vieringen zullen misschien niet kunnen doorgaan.<br>
+<figure><img src="images/pb-duo.jpg" alt=" Opheffing Sint-Bavo Baaigem en samenvoeging met Sint-Amandus Gavere (pag. 1) © Bisdom Gent" style="max-height: 500px; max-width: 500px;" /><figcaption> Opheffing Sint-Bavo Baaigem en samenvoeging met Sint-Amandus Gavere (pag. 1) © Bisdom Gent</figcaption></figure><br>
 <br>
-Mag Guy rekenen op jullie begrip en jullie gebed?<br>
-<br>
-<br>
-<br>
-
-
-
-
-
-#### MARIALE OMMEGANG NAZARETH: KERKVERSIERING
-<br>
-Ter gelegenheid van OLV Geboorte wordt de kerk versierd met blauwe en witte bloemen. In de namiddag is er om 14.30 u. ' de Ommegang waarin OL Vrouw meegedragen wordt.<br>
-<br>
-<figure><img src="images/pb-an1.jpg" alt=" Kerkversiering te Nazareth © Rita Van oost" style="max-height: 500px; max-width: 500px;" /><figcaption> Kerkversiering te Nazareth © Rita Van oost</figcaption></figure><br>
-<figure><img src="images/pb-an2.jpg" alt=" Kerkversiering te Nazareth © Rita Van oost" style="max-height: 500px; max-width: 500px;" /><figcaption> Kerkversiering te Nazareth © Rita Van oost</figcaption></figure><br>
+<figure><img src="images/pb-hos.jpg" alt=" Opheffing Sint-Bavo Baaigem en samenvoeging met Sint-Amandus Gavere (pag. 2) © Bisdom Gent" style="max-height: 500px; max-width: 500px;" /><figcaption> Opheffing Sint-Bavo Baaigem en samenvoeging met Sint-Amandus Gavere (pag. 2) © Bisdom Gent</figcaption></figure><br>
 <br>
 <br>
 <br>
@@ -39,50 +24,12 @@ Ter gelegenheid van OLV Geboorte wordt de kerk versierd met blauwe en witte bloe
 
 
 
-#### MARIALE OMMEGANG NAZARETH: BLOEMEN VOOR SAMANA
+#### WE ZULLEN PASTOOR GUY EVENTJES MOETEN MISSEN
 <br>
-<figure><img src="images/pb-ego1.jpg" alt=" Bloemen voor Samana (1) © Annick Geiregat" style="max-height: 500px; max-width: 500px;" /><figcaption> Bloemen voor Samana (1) © Annick Geiregat</figcaption></figure><br>
-<figure><img src="images/pb-ego2.jpg" alt=" Bloemen voor Samana (2) © Annick Geiregat" style="max-height: 500px; max-width: 500px;" /><figcaption> Bloemen voor Samana (2) © Annick Geiregat</figcaption></figure><br>
-<figure><img src="images/pb-ego3.jpg" alt=" Bloemen voor Samana (3) © Annick Geiregat" style="max-height: 500px; max-width: 500px;" /><figcaption> Bloemen voor Samana (3) © Annick Geiregat</figcaption></figure><br>
-<figure><img src="images/pb-ego4.jpg" alt=" Bloemen voor Samana (4) © Annick Geiregat" style="max-height: 500px; max-width: 500px;" /><figcaption> Bloemen voor Samana (4) © Annick Geiregat</figcaption></figure><br>
-Traditioneel verkopen vrijwillgers bloemen tijdens de Ommegang. Op deze wijze wordt de werking van Samana Nazareth gesteund.<br>
+Pastoor Guy is sedert maandag <b>9 september</b> opgenomen in het ziekenhuis na een trombose. Als zijn genezing naar wens verloopt zou dit voor 2 weken zijn. Hij is mentaal heel positief ingesteld en hoopt daarna snel terug zijn pastorale taak te kunnen opnemen.<br>
 <br>
-<br>
-<br>
-
-
-
-
-
-#### MARIALE OMMEGANG NAZARETH
-<br>
-De Mariale Ommegang 2024 ligt alweer een paar dagen achter ons.<br>
-Een Ommegang die dankzij de belangeloze inzet en flexibiliteit van onze talrijke vrijwilligers weer vlekkeloos verlopen is.<br>
-Zo kregen we o.a. op het allerlaatste moment de melding dat CC Het Centrum vrijgekomen was, en we onze koffietafel na de Ommegang op onze vertrouwde locatie konden houden.<br>
-<br>
-Zonder jullie zou het voor ons, de Werkgroep Mariale Ommegang, niet mogelijk zijn om alles georganiseerd te krijgen.<br>
-<br>
-Dank je wel aan de mensen die de kerk hielpen versieren.<br>
-Dank je wel aan de vervangende voorganger(s) om de Hoogmis en de Ommegang te verzorgen. Ook van jullie werd op het laatste moment de nodige flexibiliteit gevraagd. Dit werd enorm gewaardeerd door de Werkgroep en de bedevaarders!<br>
-Dank je wel aan de beide organisten en aan de lectoren voor jullie medewerking tijdens de hoogmis en tijdens de gebedsdienst.<br>
-Dank je wel aan al onze dragers die er ieder jaar opnieuw voor zorgen dat Maria en haar Jezuskind veilig door de straten van Nazareth gedragen worden.<br>
-Dank je wel aan onze kruisdragers om vooraan onze Ommegang te openen.<br>
-Dank je wel aan de schoolkinderen om het bord van Onze Lieve Vrouw te dragen.<br>
-Dank je wel aan de mensen die voor de begeleiding rond de microwagen zorgen.<br>
-Dank je wel aan de mannen die voor de veiligheid vooraan én achteraan zorgen.<br>
-Dank je wel aan de politie die mee waakt over de veiligheid van onze bedevaarders.<br>
-Dank je wel aan de fotografen die ons erfgoed ieder jaar vastleggen en bewaren voor de toekomst. De foto's komen in de volgende parochiebladen en op de website van de Mariale Ommegang.<br>
-Dank je wel aan onze reserves. Dankzij jullie 'reserve zijn' hebben wij binnen de Werkgroep een pak minder stress indien er alsnog iemand zou uitvallen.<br>
-Dank je wel aan de verenigingen die met hun vlag de Ommegang meeliepen.<br>
-Dank je wel aan iedereen die meehielp om een succes te maken van de koffietafel.<br>
-<br>
-Maar ook... dank je wel aan onze bedevaarders! Jullie komen soms van heinde en ver en houden ons Immaterieel Erfgoed levend!<br>
-<br>
-Wij nodigen jullie graag uit op de andere vieringen die nog doorgaan gedurende de 15-daagse van Onze Lieve Vrouw van Nazareth:<br>
-<br>
-Zondag <b>15 september 2024</b> om 10.30 u.: Solemniteit van Onze-Lieve-Vrouw en parochiale missiezondag met bijzondere collecte voor onze Nazarethse missionarissen.<br>
-Maandag <b>16 september 2024</b> om 09.30 u.: Kermismaandag met dienst voor onze overleden parochianen.<br>
-Zondag <b>22 september 2024</b> om 10.30 u.: Afsluiten van de 15-daagse t.e.v. Onze-Lieve-Vrouw van Nazareth<br>
+Als geloofsgemeenschap wensen wij dat het hem elke dag beter mag gaan maar dat hij ook niet vergeet voldoende rustpauzes in te lassen om te herstellen.<br>
+Laten wij voor hem bidden want de kracht van het gebed doet wonderen.<br>
 <br>
 <br>
 <br>
@@ -91,16 +38,65 @@ Zondag <b>22 september 2024</b> om 10.30 u.: Afsluiten van de 15-daagse t.e.v. O
 
 
 
-#### NAZARETH: PAROCHIALE MISSIEZONDAG
+#### MARIALE OMMEGANG NAZARETH (FOTO'S DEEL 1)
+<br>
+<figure><img src="images/pb-tot.jpg" alt=" Iedereen wordt verwelkomd door de vervangende voorgangers © Annick Geiregat" style="max-height: 500px; max-width: 500px;" /><figcaption> Iedereen wordt verwelkomd door de vervangende voorgangers © Annick Geiregat</figcaption></figure><br>
+<br>
+<figure><img src="images/pb-ira.jpg" alt=" Onze dragers zijn er klaar voor © Annick Geiregat" style="max-height: 500px; max-width: 500px;" /><figcaption> Onze dragers zijn er klaar voor © Annick Geiregat</figcaption></figure><br>
+<br>
+<figure><img src="images/pb-neo.jpg" alt=" Politie en kruisdragers lopen voorop © Annick Geiregat" style="max-height: 500px; max-width: 500px;" /><figcaption> Politie en kruisdragers lopen voorop © Annick Geiregat</figcaption></figure><br>
+<br>
+<figure><img src="images/pb-ibi.jpg" alt=" Luc en Philippe houden achteraan een oogje in het zeil © Annick Geiregat" style="max-height: 500px; max-width: 500px;" /><figcaption> Luc en Philippe houden achteraan een oogje in het zeil © Annick Geiregat</figcaption></figure><br>
+<br>
+<figure><img src="images/pb-oro.jpg" alt=" Sfeerbeeld in de Kasteelstraat © Annick Geiregat" style="max-height: 500px; max-width: 500px;" /><figcaption> Sfeerbeeld in de Kasteelstraat © Annick Geiregat</figcaption></figure><br>
+<br>
+<figure><img src="images/pb-aro.jpg" alt=" Verenigingen met vlag, priester en bedevaarders volgen het beeld © Annick Geiregat" style="max-height: 500px; max-width: 500px;" /><figcaption> Verenigingen met vlag, priester en bedevaarders volgen het beeld © Annick Geiregat</figcaption></figure><br>
+<br>
+<figure><img src="images/pb-amo.jpg" alt=" Maria komt veilig terug aan de kerk © Annick Geiregat" style="max-height: 500px; max-width: 500px;" /><figcaption> Maria komt veilig terug aan de kerk © Annick Geiregat</figcaption></figure><br>
+<br>
+Het was moeilijk kiezen uit de vele mooie foto's die we kregen van onze Mariale Ommegang van zondag <b>8 september 2024</b>. Dank je wel aan Annick om ieder jaar trouw op post te zijn en ons Erfgoed vast te leggen voor ons nageslacht.<br>
+<br>
+In dit en volgend parochieblad krijgen jullie enkele sfeerbeelden.<br>
+<br>
+Deze week nemen we jullie mee vanaf het welkom door deken Mark en pastoor Jef, doorheen de straten van Nazareth, en totdat het beeld weer veilig aan de kerk aankomt.<br>
+Bij de dragers bevond zich een fiere opa Willy. Kleindochter Louise mocht namelijk meehelpen om het bord van Onze Lieve Vrouw te dragen.<br>
+<br>
+Laat de onderschriften bij de foto's voor zich spreken. En laten we vooral hopen dat ze bij Halewijn het juiste onderschrift bij de juiste foto plaatsen.<br>
+<br>
+Binnenkort zullen jullie alle foto's kunnen bekijken op de website: www.mariale-ommegang-nazareth.be en parochie-in-gavere-nazareth.be<br>
+<br>
+<br>
+<br>
+
+
+
+
+
+#### PAROCHIALE MISSIEZONDAG
 <br>
 De tweede zondag tijdens de 15-daagse van Onze-Lieve-Vrouw van Nazareth is traditioneel de Parochiale Missiezondag. Dit jaar is dit op zondag <b>15 september 2024</b>.<br>
 <br>
 De omhaling van deze zondag gaat integraal naar het missiewerk van onze voormalige Nazarethse missionarissen. De helft van de omhaling zal gaan naar het missiewerk van Zuster Frieda Schaubroeck van de Zusters Bernardinnen, de andere helft is voor het missiewerk van Zuster Veerle Ghequière van de Zusters van Kindsheid Jesu.<br>
+<br>
 Indien jullie dit wensen, kunnen jullie het missiewerk van beide Zusters ook rechtstreeks steunen.<br>
-<br>
 Voor zuster Frieda kan dit op rekening <b>{{<icon class="fa fa-piggy-bank">}}&nbsp;BE52 0014 1459 0709</b> o.n.v. VZW Zr Bernardinnen - Afrikaanse Provincies BROV.<br>
-<br>
 Voor zuster Veerle kan dit op rekening <b>{{<icon class="fa fa-piggy-bank">}}&nbsp;BE51 4460 2508 6162</b> o.n.v. Zusters Kindsheid Jesu.<br>
+<br>
+<br>
+<br>
+
+
+
+
+
+#### VORMSELCATECHESE O.L.V GEBOORTE NAZARETH
+<br>
+<b>Startactiviteit</b> met de vormelingen, kennismaking en op verkenning in de kerk.<br>
+Wanneer : woensdag <b>25 september</b> om 14.00 u. tot 16.00 u.<br>
+Waar : samenkomst in de kerk te Nazareth.<br>
+<br>
+<b>Startviering</b> met de vormelingen en ouders op zondag <b>29 september</b> om 10.30 u. in de kerk te Nazareth.<br>
+Iedereen welkom.<br>
 <br>
 <br>
 <br>
@@ -134,60 +130,33 @@ Einde is voorzien op het speelplein: Lichterveldestraat.<br>
 
 
 
-#### VORMSELCATECHESE PAROCHIE O.L.V. GEBOORTE NAZARETH
+#### PROFICIAT, PATRICK !
 <br>
-<b>Inschrijving voor het vormsel in 2025.</b><br>
+Aanstelling van Patrick Derde als deken van het dekenaat Deinze door bisschop Lode Van Hecke.<br>
 <br>
-Graag nodigen wij de ouders uit naar het inschrijfmoment op donderdag <b>12 september 2024</b> om 19.30 u. in de kerk te Nazareth.<br>
+Op dinsdag <b>10 september</b> was er om 19 uur een belangrijke en feestelijke gebedsviering in de O.L.Vrouwekerk van Deinze. De kerk zat bij deze gelegenheid afgeladen vol met gelovigen uit de 5 parochies van het dekenaat Deinze, nl. Deinze, Aalter, Zulte, Eke-Gavere-Nazareth en De Pinte-Latem.<br>
 <br>
-Op deze avond zal u meer uitleg krijgen over onze manier van werken en de planning. U kan uw kind dan ook, desgewenst, inschrijven.<br>
+Lode Van Hecke, bisschop van Gent, stelde in die viering Patrick Derde (die pastoor van Aalter blijft) aan als nieuwe deken van het dekenaat Deinze, in opvolging van Rudy Van Acker, die wel pastoor van Deinze blijft. Het was een plechtig moment toen de bisschop Patrick volgens het voorgeschreven ritueel officieel tot deken aanstelde.<br>
 <br>
-Voorwaarden voor het vormsel in 2025 zijn, geboren in 2013 en gedoopt zijn. Wonend op het grondgebied van de parochie Nazareth, of de lessen volgen in één van de drie lagere scholen op onze parochie.<br>
+<figure><img src="images/pb-hi.jpg" alt=" Bisschop lode stelt Patrick aan als nieuwe deken van Deinze © Christine Piens" style="max-height: 500px; max-width: 500px;" /><figcaption> Bisschop lode stelt Patrick aan als nieuwe deken van Deinze © Christine Piens</figcaption></figure><br>
 <br>
-Verdere vragen en/of info voor inschrijving van je dochter/zoon, kan je bekomen via email naar {{<icon class="fa fa-envelope">}}&nbsp;<a href="catechese.nazareth@gmail.com">catechese.nazareth@gmail.com</a><br>
+Daarna werden de leden van de dekenale ploeg officieel bevestigd in hun opdracht. Deze dekenale ploeg bestaat uit de deken, de pastoors van de verschillende parochies in het dekenaat en enkele vrijgestelden en vrijwilligers. De parochie in Deinze wordt in de dekenale ploeg vertegenwoordigd door Rudy Van Acker (pastoor), Johan Van Heirzeele en Joris Van Huffel (diakens), Romuald Atingbèton (parochievicaris), Katrien Demarey (parochieassistente) en Frans Neirinck (moderator van de dekenale ploeg).<br>
 <br>
-Of neem gerust contact met de vormselploeg:<br>
+Op de twee foto's hieronder ziet u de leden van de dekenale ploeg, behalve pastoor Guy Claus (Eke-Gavere-Nazareth) en diaken Joris Van Huffel, die verontschuldigd waren wegens ziekte.<br>
 <br>
-Ann De Vuyst - Gsm. {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:0470388649">0470 38 86 49</a><br>
+<figure><img src="images/pb-si1.jpg" alt=" Enkele leden van de dekenale ploeg (1) © Christine Piens" style="max-height: 500px; max-width: 500px;" /><figcaption> Enkele leden van de dekenale ploeg (1) © Christine Piens</figcaption></figure><br>
+<figure><img src="images/pb-si2.jpg" alt=" Enkele leden van de dekenale ploeg (2) © Christine Piens" style="max-height: 500px; max-width: 500px;" /><figcaption> Enkele leden van de dekenale ploeg (2) © Christine Piens</figcaption></figure><br>
 <br>
-Francine De Geyter - Gsm. {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:0476826093">0476 82 60 93</a><br>
+Het is voor de lezer van Kerk en Leven beslist nuttig om met de woorden van bisschop Lode de opdracht van de deken en de dekenale ploeg verklaard te zien :<br>
+"De deken waakt over de functies van het dekenaat als plaats van samenkomst van de<br>
+vrijgestelden, als plaats van uitwisseling, inspiratie en geloofsverdieping in de dekenale ploeg en als plaats waar interparochiale samenwerking kan ontwikkeld worden. De deken bevordert het contact tussen de vrijgestelden, werkt samen met vele vrijwilligers aan een missionaire pastoraal die toekomst geeft, en staat naar best vermogen, samen met de andere dekens van het bisdom, de bisschop bij.<br>
 <br>
+De dekenale ploeg is verantwoordelijk voor het aansturen, begeleiden en coördineren vean de pastorale werking binnen het dekenaat. De deken, die ook deel uitmaakt van de ploeg, coördineert de werking ervan en is de eindverantwoordelijke tegenover de bisschop. De dekenale ploeg heeft de taak om verder te werken aan een gedragen en gedeelde visie over de kernopdrachten van de parochies: verkondiging, initiatie en catechese, liturgie en diaconie. In overleg met de medewerkers van de verschillende geloofsgemeenschappen en in samenspraak met de diocesane beleidsverantwoordelijken, zoekt de dekenale ploeg naar wegen voor een<br>
+missionaire pastoraal, vanuit de overtuiging dat wij als Kerk geroepen zijn om Jezus Christus aan de wereld te verkondigen, met woorden en daden van liefde, vrede en verzoening."<br>
 <br>
+<i>Na de mooie viering bleven, ondanks het regenweer, nog honderden gelovigen op het Poppoplein voor een ontmoetingsmoment, bij een frietje en een lekker drankje.</i><br>
 <br>
-
-
-
-
-
-#### GAVERE: INSCHRIJVEN VOOR EERSTE COMMUNIE EN VORMSEL 2025
-<br>
-<figure><img src="images/pb-ne.jpg" alt=" Eerste communie en Vormsel © Kerknet" style="max-height: 500px; max-width: 500px;" /><figcaption> Eerste communie en Vormsel © Kerknet</figcaption></figure><br>
-<br>
-<b>EERSTE COMMUNIE IN ASPER EN GAVERE</b><br>
-<br>
-Beste ouders van kinderen in het eerste leerjaar ( geboortejaar 2018)<br>
-<br>
-In het weekend van 3 en <b>4 mei 2025</b> zetten we de eerste communicantjes in Asper en Gavere in de bloemetjes. Alle kindjes die in Groot Gavere wonen en/of schoollopen in Asper, Baaigem, Dikkelvenne, Gavere, Semmerzake of Vurste kunnen zich inschrijven voor een catechesetraject met (groot)ouders. De leerkrachten van de verschillende scholen ondersteunen de catechisten bij het aanleren van de liedjes en de tekstjes en het uitwerken van het thema. Het catechesetraject voor kindjes en (groot)ouder(s) omvat twee ontmoetingen na de zondagsmis, een lichtmisviering met het hele gezin, een eerste communietocht en enkele intense repetities voor de eerste communie viering zelf.<br>
-<br>
-We hopen dat er minstens 12 kindjes uit Asper deze keuze maken, dan zullen we voor hen ook een viering in de kerk van Asper organiseren op zaterdag <b>3 mei</b>. Geen nood als er minder zijn, dan sluiten de kindjes aan in de kerk van Gavere op zondag <b>4 mei</b>.<br>
-<br>
-<b>VORMSEL IN GAVERE</b><br>
-<br>
-Beste jongeren van (bijna) 12 jaar, leerlingen van het zesde leerjaar<br>
-<br>
-Op zondag <b>1 juni 2025</b> staat een vormselviering gepland in de kerk van Gavere. Een gezant van de bisschop zal jullie dan zegenen en vormen tot volwassen christenen. Een belangrijke stap op jullie gelovige levenspad.<br>
-<br>
-Hiervoor gaan we samen op weg via een aantal catechesemomenten in de kerk van Asper en/of Gavere, we vieren samen de naamopgave en kruisoplegging, zetten ons in voor broederlijk delen, ontmoeten andere jongeren in het bisdom, verdiepen ons in een geloofstocht en plannen enkele intense repetities voor het vormsel zelf. De voorbereidingen en catechese zijn telkens op woensdagnamiddag, de eucharistievieringen zijn op zondag om 09.00 u.<br>
-<br>
-We hopen jullie talrijk te mogen meenemen doorheen het schooljaar en met jullie een deugddoende vormselviering te beleven op <b>1 juni</b>. Het aantal deelnemers uit Asper zal bepalend zijn of er al dan niet nog voorbereidingen in Asper kunnen doorgaan. In elk geval is iedereen welkom in Gavere.<br>
-<br>
-<b>INSCHRIJFAVOND VOOR EERSTE COMMUNIE EN VORMSEL IN DE KERK VAN GAVERE</b><br>
-<br>
-Op donderdag <b>12 september 2024</b> om 19.00 u. verwachten we de ouders van eerste communicantjes om hun kindje in te schrijven. Kijk zeker na of je kindje gedoopt is en waar deze plechtigheid heeft plaatsgevonden. Wij vragen 15 EUR inschrijfgeld voor allerlei praktische zaken zoals een mapje voor kind en ouder.<br>
-<br>
-Op donderdag <b>12 september 2024</b> om 20.00 u. verwachten we de ouders van de vormelingen om hun jongere in te schrijven. Wellicht hebben zij eerder al hun eerste communie gedaan en zou het doopsel moeten in orde zijn. Heb je hierover gegevens breng die dan zeker mee. Wij vragen 30 EUR inschrijfgeld voor verzekering, vormselkruisje, catechesemap en andere praktische zaken.<br>
-<br>
-Een uitnodiging en inschrijfblad worden begin september via de scholen digitaal verspreid aan alle leerlingen van het eerste leerjaar voor de eerste communie en aan alle leerlingen van het zesde leerjaar voor het vormsel. Voor wie niet in Groot Gavere naar school gaat en toch hier woont, kan men ook in de kerk van Gavere inschrijfbladen vinden vanaf begin september.<br>
+<i>Langs deze weg wensen wij deken Patrick en de dekenale ploeg veel succes in hun mooie, belangrijke opdracht in het dekenaat Deinze.</i><br>
 <br>
 <br>
 <br>
@@ -212,17 +181,6 @@ Bestellen kan vanaf nu al tot <b>23 september</b> via een inschrijfstrookje te v
 Afhalen in de Onderstraat 9 op donderdag 3 en vrijdag <b>4 oktober</b> tussen 13.30 u. en 16.30 u.<br>
 <br>
 <b>WARM AANBEVOLEN.</b><br>
-<br>
-<br>
-<br>
-
-
-
-
-
-#### NAZARETH: TRIPLE SAX BENEFIET VOOR WZC WIELKINE
-<br>
-<figure><img src="images/pb-at.jpg" alt=" Benefiet voor WZC Wielkine © Zorgband Leie en Schelde" style="max-height: 500px; max-width: 500px;" /><figcaption> Benefiet voor WZC Wielkine © Zorgband Leie en Schelde</figcaption></figure><br>
 <br>
 <br>
 <br>

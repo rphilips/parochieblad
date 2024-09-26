@@ -86,39 +86,18 @@ Info en inschrijvingen bij Rita Petereyns op {{<icon class="fa fa-phone">}}&nbsp
 <b>Beter Bewegen</b><br>
 Elke dinsdag vanaf <b>17 september</b> t.e.m. <b>17 december</b> (uitgezonderd schoolvakanties) van 20.00 u. tot 21.00 u. Sporthal Scaldis, Sportdreef Gavere<br>
 <br>
-<b>Kaas- en Wijnavond</b><br>
-Op vrijdag <b>13 september</b> om 19.30 u.<br>
-Info Christiane Loontjens {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:093240927">09 324 09 27</a> {{<icon class="fa fa-envelope">}}&nbsp;<a href="loontjens.chris@telenet.be">loontjens.chris@telenet.be</a><br>
-<br>
-<b>Hapjes & tapas - Kookdemo</b><br>
-Op woensdag <b>18 september</b> om 19.00 u.<br>
-Info Micheline Vandecautere {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:093860859">09 386 08 59</a> {{<icon class="fa fa-envelope">}}&nbsp;<a href="micheline.vdcautere@gmail.com">micheline.vdcautere@gmail.com</a><br>
-<br>
 <b>Bloemschikles - Herfst</b><br>
 Op woensdag <b>25 september</b> om 14.30 u. of 19.30 u.<br>
 info Christiane Devenyns {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:0474667476">0474 66 74 76</a> {{<icon class="fa fa-envelope">}}&nbsp;<a href="christianedevenyns@hotmail.com">christianedevenyns@hotmail.com</a><br>
 <br>
+<b>Brei- en haakcafé</b><br>
+Woensdagen <b>9 en 23 oktober</b>, <b>6 en 20 november</b> om 19.00 u. :<br>
+Wie dit wenst kan dierenpantoffels haken. We zorgen voor het patroon en helpen je verder.<br>
+Breng garen mee (bvb Royal van de Zeeman) en een haaknaald nr 4.<br>
+Wie liever breit of werkt aan een eigen creatie, geen probleem. We helpen je verder bij problemen.<br>
 <br>
-<br>
-
-
-
-
-
-#### FERM DIKKELVENNE
-<br>
-<b>Margaretha, Keizersdochter tussen macht en imago</b><br>
-<br>
-Het MOU Museum Oudenaarde pakt uit met een primeur! Stap terug in de tijd en ontdek het fascinerende verhaal van Margaretha van Parma. Voor het eerst ooit belicht een internationaal opgezette tentoonstelling deze bijzondere vrouw, dochter van Keizer Karel en dienstmeid Johanna Van der Gheynst, in haar geboortestad Oudenaarde. Je ontdekt portretten en prachtobjecten die Margaretha koesterde of waarvoor zij de opdracht gaf. Je schuift mee aan voor 'het feest van de eeuw' aan een schitterende feesttafel en je geniet van hedendaagse interventies van fotograaf Lieve Blancquaert en luitist Floris De Rycker. Iedereen welkom.<br>
-We bezoeken deze tentoonstelling met een ervaren gids.<br>
-<br>
-Datum : dinsdag <b>24 september</b><br>
-Plaats van afspraak : ticketbalie van het MOU, stadhuis Markt, Oudenaarde<br>
-Tijdstip : : het bezoek start om 14.30 u. en duurt +-01.30 u.<br>
-Prijs : inkom en gids 15 EUR<br>
-<br>
-Nadien zakken we af bij 't Pand en praten daar nog wat na. We spreken af om te carpoolen. of gaan met de bus. Inschrijven verplicht bij Nadine De schinkel : {{<icon class="fa fa-envelope">}}&nbsp;<a href="nadinedeschinkel@outlook.com.">nadinedeschinkel@outlook.com.</a><br>
-Inschrijving is definitief na ontvangst van jullie betaling via overschrijving op rekeningnummer <b>{{<icon class="fa fa-piggy-bank">}}&nbsp;BE49 8913 7412 5471</b> - van Ferm Dikkelvenne.<br>
+Pikkedonkerwandeling op zaterdag <b>19 oktober</b> I;s.m. Landelijke Gilde Asper<br>
+Info : Christiane loontjens op {{<icon class="fa fa-envelope">}}&nbsp;<a href="Loontjens.chris@telenet.be">Loontjens.chris@telenet.be</a> - {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:0479469650">0479 46 96 50</a><br>
 <br>
 <br>
 <br>
@@ -127,25 +106,21 @@ Inschrijving is definitief na ontvangst van jullie betaling via overschrijving o
 
 
 
-#### HEB JE IDEEËN VOOR HET TOEKOMSTIG GEBRUIK KERKGEBOUW BAAIGEM
+#### FERM SEMMERZAKE
 <br>
-WELKOM ZONDAG <b>22 september</b> TUSSEN 10.30 u. EN 15.00 u.<br>
+RONDLEIDING in de unieke tentoonstelling  "Margaretha, Keizersdochter tussen macht en imago" op zaterdag <b>19 oktober 2024</b>, om 14.00 u. , in het MOU Museum Oudenaarde.<br>
+Stap terug in de tijd en ontdek het fascinerende verhaal van Margaretha van Parma.<br>
+Voor het eerst ooit belicht een internationaal opgezette tentoonstelling deze bijzondere vrouw, dochter van Keizer Karel en dienstmeid Johanna Van der Gheynst, in haar geboortestad Oudenaarde.<br>
+Schilderijen en tekeningen o.a. afkomstig uit het Louvre, het Rijksmuseum en de National Gallery, wandtapijten en miniaturen, goud-en zilverwerk, glas-in-loodramen .... :   ze dompelen je onder in de kunst en cultuur van de 16e eeuw, een kanteltijd  in onze geschiedenis.   Maak kennis met rituelen en tradities van toen:   de (valken)jacht, feesten, etiquette en dresscode, muziek ...<br>
+Met je ticket kan je ook achteraf de aangrijpende video- en audio-installatie bezoeken van fotograaf Lieve Blancquaert en luitist Floris De Rycker in de O.L.Vrouw van Pamelekerk, doopkerk van Margaretha.<br>
 <br>
-<figure><img src="images/pb-tam.jpg" alt=" Toekomst en herbestemming kerk Baaigem © B(r)avo" style="max-height: 500px; max-width: 500px;" /><figcaption> Toekomst en herbestemming kerk Baaigem © B(r)avo</figcaption></figure><br>
+Plaats van afspraak : ingang stadhuis Markt, Oudenaarde om 13.45 u. ;  de rondleiding start om 14.00 u.  en duurt +-01.30 u.<br>
 <br>
+Deelnameprijs :   Leden + gezinsleden:   inkom en gids 15 EUR - museumpashouders betalen slechts 5 EUR ; niet-leden betalen 20 EUR of met museumpas 10 EUR<br>
 <br>
-<br>
-
-
-
-
-
-#### LDC DEN OEVER - GAVERE
-<br>
-<b>Woensdag 18 september</b> om 08.30 u.: Ontbijt<br>
-<b>Woensdag 18 september</b> om 14.00 u.: Diamond painting<br>
-<b>Donderdag 19 september</b> om 10.00 u.: Bewegen op muziek<br>
-<b>Donderdag 19 september</b> om 14.00 u.: Opfrissing van de wegcode<br>
+Info en inschrijven uiterlijk tot maandag <b>7 oktober</b>  2024 via {{<icon class="fa fa-envelope">}}&nbsp;<a href="fermsemmerzake@gmail.com">fermsemmerzake@gmail.com</a> of telefonisch {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:0499269983">0499 26 99 83</a> (Rita Nachtergaele).<br>
+Inschrijving is definitief na ontvangst van betaling via overschrijving op rekeningnummer  <b>{{<icon class="fa fa-piggy-bank">}}&nbsp;BE72 7374 4213 3016</b> van Ferm Semmerzake.<br>
+Er vlug bij zijn is de boodschap, het aantal deelnemers is beperkt.<br>
 <br>
 <br>
 <br>
@@ -154,9 +129,28 @@ WELKOM ZONDAG <b>22 september</b> TUSSEN 10.30 u. EN 15.00 u.<br>
 
 
 
-#### LG NAZARETH: ONTBIJT BIJ DE BOER
+#### GAVERE: HERFSTBUFFET IN WZC MARIAHUIS 12 OKTOBER
 <br>
-<figure><img src="images/pb-cur.jpg" alt=" Ontbijt bij de boer © LG Nazareth" style="max-height: 500px; max-width: 500px;" /><figcaption> Ontbijt bij de boer © LG Nazareth</figcaption></figure><br>
+<figure><img src="images/pb-ara.jpg" alt=" Herfstbuffet Mariahuis © WZC Mariahuis" style="max-height: 500px; max-width: 500px;" /><figcaption> Herfstbuffet Mariahuis © WZC Mariahuis</figcaption></figure><br>
+<br>
+Als oudere is het belangrijk dat je bezig blijft om verveling te voorkomen en eenzaamheid tegen te gaan. De opbrengst van het herfstbuffet en de tombola zal integraal gebruikt worden om allerhande activiteiten te kunnen organiseren voor de bewoners.<br>
+<br>
+<br>
+<br>
+
+
+
+
+
+#### GAVERE: LDC 'DEN OEVER'
+<br>
+<b>Donderdag 26 september</b> om 14.00 u.: Bonte baknamiddag 'Appelbeignets'<br>
+<b>Maandag 30 september</b> om 14.00 u.: Kaarten i.s.m. OKRA<br>
+<br>
+<b>Dinsdag 1 oktober</b> om 10.00 u.: Yoga<br>
+<b>Dinsdag 1 oktober</b> om 14.00 u.: Lijndansen, Portrettekenen, Spelletjesnamiddag<br>
+<b>Donderdag 3 oktober</b> om 10.00 u.: Bewegen op muziek<br>
+<b>Donderdag 3 oktober</b> om 14.00 u.: Breien en haken<br>
 <br>
 <br>
 <br>
@@ -169,11 +163,17 @@ WELKOM ZONDAG <b>22 september</b> TUSSEN 10.30 u. EN 15.00 u.<br>
 <br>
 OKRA-TREFPUNT EKE nodigt uit...<br>
 <br>
-<b>Donderdag 19 september</b> om 07.45 u.: Vertrek parking Sporthal voor OKRA-regiotreffen in Mechelen<br>
-<b>Donderdag 19 september</b> om 14.00 u. in CC De Brouwerij: Lijndans en rummikub<br>
 <b>Woensdag 25 september</b> om 14.00 u. in CC De Brouwerij: Kaarten<br>
 <b>Donderdag 26 september</b> om 09.00 u. in CC De Brouwerij: Lijndans<br>
 <b>Donderdag 26 september</b> om 13.45 u. vertrek aan de kerk: Wandelen en fietsen<br>
+<b>Maandag 30 september</b> om 13.30 u. in CC De Brouwerij: Crea-atelier en vrij schaken<br>
+<br>
+<b>Dinsdag 1 oktober</b> om 14.00 u. in Sporthal Nazareth: Petanque<br>
+<b>Donderdag 3 oktober</b> om 14.00 u. in CC De Brouwerij: Lijndans en rummikub<br>
+<b>Vrijdag 4 oktober</b> om 11.00 u. vertrek aan de kerk: Philippine en Sluis<br>
+<b>Vrijdag 4 oktober</b> om 13.45 u.: In het MUDEL Emiel Claus, met gids (lijnbus of carpooling)<br>
+<br>
+<b>Geïnteresseerd? Je bent welkom!</b><br>
 <br>
 Info: Willy Rogge, {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:0470596571">0470 59 65 71</a><br>
 Zie ook: www.okra.be/trefpunt/eke<br>
@@ -187,12 +187,13 @@ Zie ook: www.okra.be/trefpunt/eke<br>
 
 #### OKRA TREFPUNT NAZARETH
 <br>
-Activiteiten van augustus, september 2024<br>
+Activiteiten van augustus, september 2024, oktober 2024<br>
 <br>
-<b>Woensdag 18 september</b> om 14.00 u. in CC Het Centrum: Kermis koffietafel<br>
-<b>Donderdag 19 september</b> om 07.45 u. parking Sporthal Ommegangstraat: Regionale bedevaart naar Mechelen<br>
-<b>Dinsdag 24 september</b> om 14.00 u. aan de Sporthal: Petanque<br>
 <b>Donderdag 26 september</b> om 14.00 u. in CC Het Centrum: Lijndansen om 14.00 u. in CC Het Centrum<br>
+<b>Maandag 30 september</b> om 09.30 u. in CC Het Centrum: Bestuursvergadering<br>
+<br>
+<b>Dinsdag 1 oktober</b> om 14.00 u. in cc Het Centrum: Kaarten, rummikub<br>
+<b>Donderdag 3 oktober</b> om 14.00 u. aan cc Het Centrum: Fietsen<br>
 <br>
 !!! Voor meer info: OKRA GSM nummer {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:0484719871">0484 71 98 71</a><br>
 <br>
@@ -205,11 +206,22 @@ Activiteiten van augustus, september 2024<br>
 
 #### SAMANA ASPER
 <br>
-Na een, hopelijk, deugddoende vakantie starten wij in september terug met onze activiteiten van samana asper.<br>
+Op donderdag <b>26 september</b> en <b>31 oktober</b> om 14.00 u. 'BINGO' in het OC Martinus, Hulstraat 27 Asper. Graag een paar dagen vooraf aan Lydie laten weten of je aanwezig zal zijn op de bingo! {{<icon class="fa fa-envelope">}}&nbsp;<a href="Lydie.vanderstichelen@telenet.be">Lydie.vanderstichelen@telenet.be</a> {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:0498459548">0498 45 95 48</a><br>
 <br>
-Op donderdag <b>19 september</b> brengen wij een bezoek aan de pottenbakkerij 'T Hoveke In Meigem, we spreken af om 13.50 u. aan het OC Martinus, Hulstraat 27, Asper. Daar carpoolen we samen naar Meigem. Wij krijgen door de pottenbakker Paul een demonstratie en kunnen achteraf proeven van Lea haar heerlijke taarten. Kostprijs 15 EUR pp. Inschrijven kan bij Lydie: {{<icon class="fa fa-envelope">}}&nbsp;<a href="Lydie.vanderstichelen@telenet.be">Lydie.vanderstichelen@telenet.be</a> of {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:093841423">09 384 14 23</a>, {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:0498459548">0498 45 95 48</a> tegen uiterlijk <b>13 september</b>. Niet vergeten van nummerplaat en automerk door te geven als je die dag chauffeur bent! (verzekering)<br>
+<b>Woensdag 2 oktober</b> om 19.00 u. u30: Workshop online fraude - laat je niet vangen! Het kan iedereen overkomen: opgelicht worden via het internet of de telefoon. Tijdens deze workshop leer je hoe criminelen te werk gaan. Lesgevers Jan Reunes (beweging.net) en Carlos Vandaele (vdk) geven je aan de hand van voorbeelden, filmpjes en stellingen inzicht in de manier waarop cybercriminelen te werk gaan. Deze workshop is gratis, wel vooraf inschrijven bij rita:  {{<icon class="fa fa-envelope">}}&nbsp;<a href="ritapetereyns@gmail.com">ritapetereyns@gmail.com</a><br>
 <br>
-Op donderdag <b>26 september</b> om 14.00 u. 'BINGO' in het OC Martinus, Hulstraat 27 Asper. Graag een paar dagen vooraf aan Lydie laten weten of je aanwezig zal zijn op de bingo!<br>
+Menu:<br>
+- aperitief met hapjes<br>
+- tomatensoep met balletjes<br>
+- alkoenfilet met rode wijnsaus, warme groentjes en kroketjes<br>
+- dessertbuffet met koffie of thee<br>
+<br>
+ANIMATIE: RITA VEREECKE<br>
+<br>
+Inschrijven kan tegen uiterlijk <b>10 oktober</b> bij Ann Bergez, {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:0477661859">0477 66 18 59</a>, {{<icon class="fa fa-envelope">}}&nbsp;<a href="annbergez@gmail.com">annbergez@gmail.com</a><br>
+U KAN CASH BETALEN OF VIA OVERSCHRIJVING OP HET REKENINGNUMMER VAN SAMANA ASPER <b>{{<icon class="fa fa-piggy-bank">}}&nbsp;BE53 8912 5401 8253</b><br>
+<br>
+Donderdag <b>7 november</b> om 14.00 u. : gespreksnamiddag rond VALPREVENTIE. Deze vorming wordt gegeven door Lieve De Coninck. Men zegt weleens, het gevaar schuilt in een klein hoekje! In deze sessie leren we wat er kan gedaan worden om deze 'gevaren' te verminderen. Inschrijven tegen <b>1 november</b> bij Lydie:  {{<icon class="fa fa-envelope">}}&nbsp;<a href="lydie.vanderstichelen@telenet.be">lydie.vanderstichelen@telenet.be</a>, {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:0498459548">0498 45 95 48</a>.<br>
 <br>
 <br>
 <br>

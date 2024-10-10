@@ -11,36 +11,12 @@ header_menu: true
 
 
 
-#### 2E FASE IN DE OPHEFFING VAN DE PAROCHIE SINT-BAVO BAAIGEM EN SAMENVOEGING MET DE SINT-AMANDUSPAROCHIE GAVERE
+#### OVERLIJDEN
 <br>
-<figure><img src="images/pb-duo.jpg" alt=" Opheffing Sint-Bavo Baaigem en samenvoeging met Sint-Amandus Gavere (pag. 1) © Bisdom Gent" style="max-height: 500px; max-width: 500px;" /><figcaption> Opheffing Sint-Bavo Baaigem en samenvoeging met Sint-Amandus Gavere (pag. 1) © Bisdom Gent</figcaption></figure><br>
+We namen in de kerk afscheid van:<br>
 <br>
-<figure><img src="images/pb-hos.jpg" alt=" Opheffing Sint-Bavo Baaigem en samenvoeging met Sint-Amandus Gavere (pag. 2) © Bisdom Gent" style="max-height: 500px; max-width: 500px;" /><figcaption> Opheffing Sint-Bavo Baaigem en samenvoeging met Sint-Amandus Gavere (pag. 2) © Bisdom Gent</figcaption></figure><br>
-<br>
-<br>
-<br>
-
-
-
-
-
-#### MARIALE OMMEGANG NAZARETH (FOTO'S DEEL 2)
-<br>
-<figure><img src="images/pb-an.jpg" alt=" Francine en Chantal begeleiden de gebedsdienst © Annick Geiregat" style="max-height: 500px; max-width: 500px;" /><figcaption> Francine en Chantal begeleiden de gebedsdienst © Annick Geiregat</figcaption></figure><br>
-<br>
-<figure><img src="images/pb-fas.jpg" alt=" Voormalig deken Mark en organiste Nancy tijdens de gebedsdienst © Annick Geiregat" style="max-height: 500px; max-width: 500px;" /><figcaption> Voormalig deken Mark en organiste Nancy tijdens de gebedsdienst © Annick Geiregat</figcaption></figure><br>
-<br>
-<figure><img src="images/pb-has.jpg" alt=" Maria komt terug thuis s © Annick Geiregat" style="max-height: 500px; max-width: 500px;" /><figcaption> Maria komt terug thuis s © Annick Geiregat</figcaption></figure><br>
-<br>
-<figure><img src="images/pb-at.jpg" alt=" Afsluiting van de Ommegang met het lof © Annick Geiregat" style="max-height: 500px; max-width: 500px;" /><figcaption> Afsluiting van de Ommegang met het lof © Annick Geiregat</figcaption></figure><br>
-<br>
-<figure><img src="images/pb-us.jpg" alt=" Een volle kerk © Annick Geiregat" style="max-height: 500px; max-width: 500px;" /><figcaption> Een volle kerk © Annick Geiregat</figcaption></figure><br>
-<br>
-Tijdens de Ommegang doorheen de straten van Nazareth, vindt er in de kerk een gebedsdienst plaats. De teksten en de liederen zijn dezelfde als buiten. Op die manier hebben de mensen, voor wie de afstand van ongeveer 4 kilometer te lang is, de kans om ook de Ommegang mee te maken.<br>
-<br>
-De Werkgroep Mariale Ommegang dankt alle bedevaarders voor hun komst. Sommigen kwamen van Dadizele, anderen van Zelzate, er waren zelfs bedevaarders uit Canada aanwezig. Ondanks de vele andere activiteiten die op <b>8 september</b> plaatsvonden, hadden we een grote opkomst.<br>
-<br>
-Wie graag alle foto's van de Ommegang eens rustig bekijkt, kan hiervoor terecht op de website van de Mariale Ommegang: www.mariale-ommegang-nazareth.be en www.parochie-in-gavere-nazareth.be<br>
+<i>Agnes Ollovier</i>, 74 j., echtg. Paul Simoens<br>
+<i>Georgette Martens</i>, 93 j., weduwe Gregorius Van der Beken<br>
 <br>
 <br>
 <br>
@@ -49,33 +25,18 @@ Wie graag alle foto's van de Ommegang eens rustig bekijkt, kan hiervoor terecht 
 
 
 
-#### KOFFIETAFEL NA DE OMMEGANG TE NAZARETH
+#### HERDENKINGSVIERINGEN OVERLEDENEN
 <br>
-<figure><img src="images/pb-vis.jpg" alt=" Gezellige drukte in CC Het Centrum © Annick Geiregat" style="max-height: 500px; max-width: 500px;" /><figcaption> Gezellige drukte in CC Het Centrum © Annick Geiregat</figcaption></figure><br>
+Vrijdag <b>1 november</b> - Allerheiligen<br>
+09.00 u. kerk Gavere: eucharistie met overhandiging gedachteniskruisjes<br>
+10.30 u. kerk Nazareth: eucharistie met overhandiging gedachteniskruisjes<br>
 <br>
-<figure><img src="images/pb-tui.jpg" alt=" Vrijwilligers in volle actie © Annick Geiregat" style="max-height: 500px; max-width: 500px;" /><figcaption> Vrijwilligers in volle actie © Annick Geiregat</figcaption></figure><br>
+Zaterdag <b>2 november</b> - Allerzielen<br>
+18.00 u. kerk Eke: eucharistie met overhandiging gedachteniskruisjes<br>
 <br>
-Wekenlang hebben we jullie in het parochieblad gemeld dat de koffietafel zou doorgaan in de refter van de Vrije Basisschool. De grote zaal van CC Het Centrum was gereserveerd door een vereniging die zijn vrijwilligers wou bedanken.<br>
-<br>
-Pas de laatste week ontdekten we dat de zaal opnieuw vrij was. In allerijl heeft de Werkgroep alles geregeld zodat we jullie op onze vertrouwde locatie konden ontvangen.<br>
-En jullie vonden de weg! De koffietafel was een onverwacht groot succes. We hadden nooit zo veel volk verwacht omdat er die zondagmiddag zo veel activiteiten gepland waren.<br>
-Dank je wel aan iedereen die gekomen is.<br>
-<br>
-<br>
-<br>
-
-
-
-
-
-#### VORMSELCATECHESE O.L.V GEBOORTE NAZARETH
-<br>
-<b>Startactiviteit</b> met de vormelingen, kennismaking en op verkenning in de kerk.<br>
-Wanneer : woensdag <b>25 september</b> om 14.00 u. tot 16.00 u.<br>
-Waar : samenkomst in de kerk te Nazareth.<br>
-<br>
-<b>Startviering</b> met de vormelingen en ouders op zondag <b>29 september</b> om 10.30 u. in de kerk te Nazareth.<br>
-Iedereen welkom.<br>
+Zondag <b>3 november</b> - zondag door het jaar<br>
+09.00 u. kerk Gavere: eucharistie<br>
+10.30 u. kerk Nazareth: eucharistie<br>
 <br>
 <br>
 <br>
@@ -84,15 +45,75 @@ Iedereen welkom.<br>
 
 
 
-#### GAVERE: OKTOBER - ROZENKRANSMAAND
+#### INFO TARIEVEN EN ABONNERING KERK & LEVEN - BELANGRIJKE INFO
 <br>
-<figure><img src="images/pb-mox.jpg" alt=" Onze-Lieve-Vrouw van de Rozenkrans, eertijds vereerd in de Kluizekerk Lier © J. Verheyen" style="max-height: 500px; max-width: 500px;" /><figcaption> Onze-Lieve-Vrouw van de Rozenkrans, eertijds vereerd in de Kluizekerk Lier © J. Verheyen</figcaption></figure><br>
+---------------------------------------<br>
+Code: FOTO-178 Copyright: Halewijn nv<br>
+------------------------------------------<br>
 <br>
-In onze Rooms-Katholieke Kerk is de maand oktober gewijd aan de Rozenkrans. De keuze van deze maand hangt samen met het feest van O.-L.-V. van de Rozenkrans dat sinds de 16e eeuw op <b>7 oktober</b> gevierd wordt.<br>
+Binnenkort start Otheo (vroeger Halewijn NV) met de herabonnering op Kerk & Leven voor 2025.<br>
+Door een aantal ingrijpende wijzigingen zal deze herabonnering helemaal anders verlopen dan in het verleden.<br>
 <br>
-De rozenkrans dankt haar naam, volgens de katholieke overlevering, aan een openbaring van Maria zelf: iedere keer dat een "wees gegroet" wordt gebeden, schenkt men haar een mooie roos.<br>
+Door het <b>wegvallen van de subsidies voor Bpost</b> zijn de tarieven voor de verzending van uw parochieblad verzesvoudigd. Dit sinds <b>1 juli 2024</b>, wat resulteert in een extra verzendkost voor de tweede helft van 2024. Een enorme kost die niet wordt doorgerekend naar de abonnees, maar die wordt gedragen door Katholieke Media Groep (vroeger Halewijn NV).<br>
 <br>
-Tijdens het rozenkransgebed gedenkt men de geloofsmysteries: de "blijde", de "droevige" en de "glorievolle" mysteries . Bij elkaar geven zij een samenvatting van het evangelie. Maria speelt een belangrijke rol in deze devotie. Maria wordt gezien als iemand die tot de wereld van mensen behoort maar die tegelijkertijd ook tot de wereld van God behoort.<br>
+Voor 2025 is Otheo helaas genoodzaakt om deze stijging door te rekenen in de nieuwe abonnementsprijs.<br>
+<br>
+<b>ER KOMEN TWEE FORMULES:</b><br>
+<br>
+Door de stijging van die Bpost tarieven zullen er in 2025 niet één, maar twee verschillende abonnementsformules bestaan. Abonnees kunnen kiezen tussen een Digitaal + Print abonnement of een (goedkoper) Digitaal abonnement:<br>
+<br>
+<b>Digitaal abonnement:</b><br>
+Wekelijkse Kerk & Leven in digitale vorm (via een link in je mailbox)<br>
+Onbeperkte toegang tot Otheo.be<br>
+Wekelijkse nieuwsbrief van Otheo<br>
+Dagelijkse nieuwsbrief van Otheo<br>
+4 keer het kwartaalblad Otheo Magazine in printversie in de brievenbus<br>
+<br>
+<b>Digitaal + Print abonnement:</b><br>
+Wekelijkse Kerk & Leven in printversie in de brievenbus<br>
+Wekelijkse Kerk & Leven in digitale vorm (via een link in je mailbox)<br>
+Onbeperkte toegang tot Otheo.be<br>
+Wekelijkse nieuwsbrief van Otheo in digitale vorm<br>
+Dagelijkse nieuwsbrief van Otheo in digitale vorm<br>
+4 keer het kwartaalblad Otheo Magazine in printversie in de brievenbus<br>
+<br>
+<b>WAT IS HET OTHEO MAGAZINE?</b><br>
+<br>
+Vanaf 2025 wordt het Otheo Magazine gelanceerd, een kwartaalblad dat vier keer per jaar zal verschijnen: in maart, juni, september en december. Dit magazine bevat ongeveer 80 pagina's en vormt een sterke aanvulling op Kerk & Leven. Elk seizoen een magazine vol verhalen van geloof, hoop en liefde. Met uitgebreide interviews, fotoreportages en inspirerende analyses. We drukken het magazine in offset, waardoor de kostprijs om het magazine te maken, dezelfde is als die van een Kerk & Leven.<br>
+<br>
+Wanneer u een Otheo magazine ontvangt, zal er die week geen gewone Kerk & Leven zijn. In totaal verschijnen er 44 edities van Kerk & Leven en 4 keer het Otheo Magazine. Samen ontvangt u als abonnee dus nog steeds 48 nummers per jaar.<br>
+<br>
+<b>TARIEVEN IN 2025</b><br>
+<br>
+De abonnementskosten voor 2025 zijn als volgt vastgesteld:<br>
+<br>
+Digitaal abonnement: 3,99 EUR per maand (via domiciliëring)<br>
+<br>
+Digitaal + Print abonnement: 96 EUR per jaar of 7,99 EUR per maand (via domiciliëring)<br>
+<br>
+We zijn ons er heel goed van bewust dat dit een aanzienlijke verhoging is van de abonnementsprijs. Zoals eerder gesteld, is dat het rechtstreekse gevolg van de stijging van de posttarieven, die ook voor alle andere mediatitels gelden. Toch durven we ook stellen dat wekelijks een Kerk & Leven maken én in de bus krijgen, 2 EUR per week waard is.<br>
+<br>
+<b>HERABONNERING VIA VRIJWILLIGERS</b><br>
+<br>
+Vandaag kunnen abonnees zowel centraal bij Katholiek Media Groep als lokaal via de vrijwilligers (her)abonneren.<br>
+Voor Nazareth en Eke mochten we ieder jaar opnieuw op onze talrijke vrijwilligers rekenen.<br>
+<br>
+In 2025 zijn er 4 abonnementsformules: digitaal met betaling van het jaarabonnement, op papier met betaling van het jaarabonnement, digitaal met betaling via domiciliering en op papier met betaling via domiciliering. Dit zijn zaken die technisch enkel centraal kunnen worden beheerd.<br>
+We kunnen niet verlangen dat onze vrijwilligers de maandelijkse domiciliëring voor hun abonnees apart zullen opzetten en opvolgen. Ook dit zal centraal worden beheerd.<br>
+<b>Om alle bovenstaande redenen en om het risico op fouten te beperken, zal het abonnementenbeheer van alle edities voortaan centraal via Katholieke Media Groep verlopen.</b><br>
+<br>
+<b>HERABONNERINGSBRIEVEN</b><br>
+<br>
+De herabonneringsbrieven worden centraal verstuurd en ondertekend door de hoofdredacteur en één lokale vrijwilliger (de abonnementsverantwoordelijke).<br>
+<br>
+<b>De tijdslijn voor herabonnering is als volgt:</b><br>
+Tussen 1 en <b>15 oktober 2024</b>: E-mail naar abonnees van wie we een e-mailadres hebben.<br>
+Tussen 16 en <b>31 oktober 2024</b>: Klassieke herabonneringsbrief met de verschillende formules en wijzigingen, en advertentie met overschrijving op p. 16 in Kerk & Leven.<br>
+Op <b>13 november 2024</b>: Herinneringsmail en tweede advertentie op p.16 in Kerk & Leven.<br>
+Op <b>15 januari 2025</b>: Opvis-actie voor de abonnees die nog niet betaald hebben en ook niet aangegeven hebben niet meer te willen verlengen.<br>
+<br>
+We beseffen heel goed dat dit een stevige boterham is.<br>
+Zit u als abonnee of als vrijwilliger met vragen? Aarzel dan niet om de lokale abonnementsverantwoordelijke te contacteren. Dit kan via mail op {{<icon class="fa fa-envelope">}}&nbsp;<a href="dewildepeil@skynet.be">dewildepeil@skynet.be</a> of telefonisch op {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:093858531">09 385 85 31</a>. Mogen wij vragen dat u steeds uw abonneenummer bij de hand houdt. U vindt dit nummer boven uw naam en adres en dit begint steeds met 4862***.<br>
 <br>
 <br>
 <br>
@@ -101,21 +122,66 @@ Tijdens het rozenkransgebed gedenkt men de geloofsmysteries: de "blijde", de "dr
 
 
 
-#### 1 OKTOBER FEESTDAG HEILIGE BAVO - PATROON VAN ONS BISDOM
+#### NAZARETH: KAARSEN WERKGROEP MARIALE OMMEGANG
 <br>
-<figure><img src="images/pb-vos.jpg" alt=" De bekering van de heilige Bavo - Kathedraal Gent © wikipedia" style="max-height: 500px; max-width: 500px;" /><figcaption> De bekering van de heilige Bavo - Kathedraal Gent © wikipedia</figcaption></figure><br>
+<figure><img src="images/pb-neo.jpg" alt=" Kaarsen © Werkgroep Mariale Ommegang" style="max-height: 500px; max-width: 500px;" /><figcaption> Kaarsen © Werkgroep Mariale Ommegang</figcaption></figure><br>
 <br>
-<figure><img src="images/pb-sic.jpg" alt=" Heilige Bavo Baaigem © Wikipedia" style="max-height: 500px; max-width: 500px;" /><figcaption> Heilige Bavo Baaigem © Wikipedia</figcaption></figure><br>
+Op <b>24 december 2024</b> start het Heilig Jaar of Jubeljaar met als thema 'Pelgrims van Hoop'.<br>
 <br>
-Het verhaal van de heilige Bavo - Van verwend kind tot monnik<br>
+De Werkgroep Mariale Ommegang wil er in Nazareth ook een feestelijk jaar van maken. Volgende activiteiten worden al volop voorbereid:<br>
 <br>
-Volgens de overlevering kreeg een adellijke familie in 589 een zoontje, ze noemden hem Allowin. Hij groeide zorgeloos op. Hij was een rotverwend kind met geen ontzag voor anderen. Hij huwde en werd vader van een kindje. Een tijdje waren ze heel gelukkig maar toen werd zijn vrouw ziek en stierf. Hij was radeloos en uitzinnig van verdriet. De enige die hem kon troosten was Amandus, de raadgever van zijn moeder. Amandus raadde hem aan de bijbel te lezen en zo leerde hij het Christendom kennen. Allowin ging zo van Jezus houden dat hij zich tot het christendom bekeerde. Maar hij deed meer dan dat. Hij besefte dat al zijn rijkdom hem niet gelukkig maakte. Hij gaf alles weg en ging in een abdij in Gent, gesticht door Amandus, wonen. En om te tonen dat hij een nieuwe mens was geworden nam hij een andere naam aan Bavo. Na een tijdje besloot hij zelf ook monnik te worden en zich ten dienste te stellen van God. Maar hij vond het leven in de abdij toch nog te luxueus. Met toestemming van de abt besloot hij in een holle boom te gaan leven als kluizenaar. Veel mensen kwamen naar hem toe om wat raad of troost. Bavo stierf rond 660 omringd door vrienden en zijn geestelijke leider Amandus. Na Bavo's dood kwam zijn verering op gang. Bavo is de patroonheilige van de valkeniers en wordt aanroepen voor een goede oogst en tegen kinkhoest.<br>
+- In augustus komt een stoet van witte Mariabeeldjes naar Nazareth. Deze beeldjes trekken rond in Vlaanderen en Nederland en waren o.a. in mei en juni 2024 te gast in Oostakker Lourdes.<br>
+- In de tweede helft van augustus 2025 komt er een tentoonstelling in de kerk waarbij de geschiedenis van de Mariale Ommegang centraal staat.<br>
+- Op zaterdagavond <b>13 september 2025</b> zal er een kaarskensprocessie zijn langsheen het parcours van de Ommegang (onder politiebegeleiding).<br>
+- We voorzien een voordracht rond de figuur van Maria.<br>
+- De kapelletjesvieringen zullen extra aandacht krijgen.<br>
+- Afsluiten doen we in december 2025 met een vredes/kerstconcert.<br>
 <br>
-De Gentse Sint-Baafskathedraal bewaart het schilderij "de bekering van de heilige Bavo". Dit<br>
-monumentale meesterwerk werd in de jaren 1623-24 door Rubens vervaardigd in opdracht van bisschop Antoon Triest (1577-1657)<br>
+Wil je op de hoogte blijven van al onze activiteiten? Neem dan zeker regelmatig een kijkje op onze website: www.mariale-ommegang-nazareth.be<br>
 <br>
-Een weetje: het kerkgebouw en de parochie van Baaigem zijn toegewijd aan de heilige Bavo en bezit een 19e eeuws gepolychromeerd houten beeld van deze heilige. Bavo is afgebeeld als een goed geklede rijke edelman met een valk in de hand.<br>
-Vanwaar die valk? Allowin werd (onterecht) beschuldigd een witte valk gestolen te hebben. In die tijd iets waar een forse en onridderlijke straf op stond: de dood door de strop. Hij stond al onder de galg toen de gestolen valk uit het niets opdook en bij Allowin op de galg landde. De witte vogel - teken van zuiverheid - bewees daarmee de onschuld van Allowin. Hij op zijn beurt zag hierin weer een teken van God.<br>
+Om onze projecten te kunnen financieren, hebben we een feestelijke noveenkaars ontworpen en een speciaal klein kaarsje.<br>
+Deze kunnen het ganse jaar door verkregen worden bij de Werkgroep.<br>
+Geef hiervoor gerust een seintje via mail op: {{<icon class="fa fa-envelope">}}&nbsp;<a href="werkgroepmarialeommegang@gmail.com">werkgroepmarialeommegang@gmail.com</a><br>
+of telefonisch op {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:0471903801">0471 90 38 01</a> of {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:0475612062">0475 61 20 62</a>. Woon je in Nazareth of Eke? Dan brengen we de kaarsen met plezier bij u thuis.<br>
+<br>
+Voor de noveenkaars betaalt u 5 EUR, één klein kaarsje kost 1 EUR, maar voor 5 EUR krijgt u 7 kaarsjes (ééntje voor elke dag van de week).<br>
+<br>
+<br>
+<br>
+
+
+
+
+
+#### VORMSELCATECHESE PAROCHIE O.L.V. GEBOORTE NAZARETH
+<br>
+<figure><img src="images/pb-una.jpg" alt=" Vormselcatechese Parochie O.L.V. Geboorte Nazareth © Martin Dhaenens" style="max-height: 500px; max-width: 500px;" /><figcaption> Vormselcatechese Parochie O.L.V. Geboorte Nazareth © Martin Dhaenens</figcaption></figure><br>
+<br>
+Op woensdag <b>25 september</b> zijn we een eerste maal samenkomen met de vormelingen in de kerk van Nazareth.<br>
+Een startactiviteit voor de 26 vormelingen, met o.a. een verkenning in de kerk aan de hand van foto's en een kennismaking ronde.<br>
+Tot slot ook een voorbereiding van de startviering met de vormelingen die doorging op zondag <b>29 september</b>. (foto)<br>
+Dank aan iedereen die meegewerkt heeft aan deze mooie viering, en de talrijke aanwezigen.<br>
+In oktober komen we terug samen met de vormelingen, nl. op woensdag <b>23 oktober</b> met een bezoek aan de kringwinkel te Nazareth.<br>
+Met toelichting over de werking van de kringwinkel.<br>
+De catechisten,<br>
+Ann, Francine, Marie-Hélène, Martin.<br>
+<br>
+<br>
+<br>
+
+
+
+
+
+#### OKTOBERCAMPAGNE MISSIO
+<br>
+<figure><img src="images/pb-aro.jpg" alt=" Oktobercampagne © Missio" style="max-height: 500px; max-width: 500px;" /><figcaption> Oktobercampagne © Missio</figcaption></figure><br>
+<br>
+<b>'Waar is dat feestje? ' is het motto voor de missiemaand oktober 2024.</b> Dit is het thema dat paus Franciscus gekozen heeft voor de 98e Wereldmissiedag, die wordt gevierd op zondag <b>20 oktober 2024</b>. Het thema verwijst naar de gelijkenis van een koning wiens zoon ging trouwen. "Ga en nodig iedereen uit voor het bruiloftsfeest" een vers uit het Matteüsevangelie (22,1-14) is de rode draad voor de campagne van Missio.<br>
+<br>
+Dit jaar koos Missio als campagneland Sri Lanka, een eiland ten zuiden van India. De Kerk vormt daar een minderheid en tracht te overleven in de economische en sociale crisis. Zonder onze steun zal het haar niet lukken. De directeur van Missio in Sri Lanka, priester Basil Rohan Fernando, bevestigt dat: "Als ik iets kan zeggen over de algemene toestand van het land, dan is het dat de meerderheid van de mensen in onze parochies het zeer moeilijk heeft." Dat komt niet alleen door de economische malaise, maar ook door de coronapandemie (twee jaar zonder toerisme), de wereldwijde instabiliteit en de natuurrampen omwille van de klimaatverandering. "Als gevolg hiervan zijn vele priesters altijd op zoek naar financiële steun."<br>
+<br>
+<b>Op zondag 20 oktober is de jaarlijkse omhaling voor missiezondag hier bij ons gekend onder de naam "omhaling voor de Pauselijke missiewerken". Open je je hart of blijft het bij een oproep?</b><br>
 <br>
 <br>
 <br>

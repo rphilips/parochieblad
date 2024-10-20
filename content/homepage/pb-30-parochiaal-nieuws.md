@@ -11,20 +11,6 @@ header_menu: true
 
 
 
-#### OVERLIJDEN
-<br>
-We namen in de kerk afscheid van:<br>
-<br>
-<i>Agnes Ollovier</i>, 74 j., echtg. Paul Simoens<br>
-<i>Georgette Martens</i>, 93 j., weduwe Gregorius Van der Beken<br>
-<br>
-<br>
-<br>
-
-
-
-
-
 #### HERDENKINGSVIERINGEN OVERLEDENEN
 <br>
 Vrijdag <b>1 november</b> - Allerheiligen<br>
@@ -37,6 +23,38 @@ Zaterdag <b>2 november</b> - Allerzielen<br>
 Zondag <b>3 november</b> - zondag door het jaar<br>
 09.00 u. kerk Gavere: eucharistie<br>
 10.30 u. kerk Nazareth: eucharistie<br>
+<br>
+<br>
+<br>
+
+
+
+
+
+#### EKE: KAARSEN WEEKKAPEL
+<br>
+<figure><img src="images/pb-at.jpg" alt=" Kaarsen weekkapel © Guy Claus" style="max-height: 500px; max-width: 500px;" /><figcaption> Kaarsen weekkapel © Guy Claus</figcaption></figure><br>
+<br>
+Het is alweer meer dan een jaar geleden. De kaarsen in de weekkapel gaan naar hun einde toe.<br>
+Jullie weten dat tijdens de misvieringen voor een afbeelding van Maria,moeder van Altijdurende Bijstand kaarsen staan te branden.<br>
+We zouden ze graag vernieuwen.<br>
+<br>
+Wie ons wil steunen kan een kaars kopen tegen de prijs van 65 EUR .<br>
+<br>
+<br>
+<br>
+
+
+
+
+
+#### EKE: KOOR BEZOEKT ST-BAAFS KATHERDRAAL
+<br>
+<figure><img src="images/pb-hi1.jpg" alt=" Met het koor naar St.-Baafs (1) © Guy Claus" style="max-height: 500px; max-width: 500px;" /><figcaption> Met het koor naar St.-Baafs (1) © Guy Claus</figcaption></figure><br>
+<figure><img src="images/pb-hi2.jpg" alt=" Met het koor naar St.-Baafs (2) © Guy Claus" style="max-height: 500px; max-width: 500px;" /><figcaption> Met het koor naar St.-Baafs (2) © Guy Claus</figcaption></figure><br>
+<figure><img src="images/pb-hi3.jpg" alt=" Met het koor naar St.-Baafs (3) © Guy Claus" style="max-height: 500px; max-width: 500px;" /><figcaption> Met het koor naar St.-Baafs (3) © Guy Claus</figcaption></figure><br>
+<figure><img src="images/pb-hi4.jpg" alt=" Met het koor naar St.-Baafs (4) © Guy Claus" style="max-height: 500px; max-width: 500px;" /><figcaption> Met het koor naar St.-Baafs (4) © Guy Claus</figcaption></figure><br>
+<figure><img src="images/pb-hi5.jpg" alt=" Met het koor naar St.-Baafs (5) © Guy Claus" style="max-height: 500px; max-width: 500px;" /><figcaption> Met het koor naar St.-Baafs (5) © Guy Claus</figcaption></figure><br>
 <br>
 <br>
 <br>
@@ -117,34 +135,11 @@ Zit u als abonnee of als vrijwilliger met vragen? Aarzel dan niet om de lokale a
 <br>
 <br>
 <br>
-
-
-
-
-
-#### NAZARETH: KAARSEN WERKGROEP MARIALE OMMEGANG
 <br>
-<figure><img src="images/pb-neo.jpg" alt=" Kaarsen © Werkgroep Mariale Ommegang" style="max-height: 500px; max-width: 500px;" /><figcaption> Kaarsen © Werkgroep Mariale Ommegang</figcaption></figure><br>
 <br>
-Op <b>24 december 2024</b> start het Heilig Jaar of Jubeljaar met als thema 'Pelgrims van Hoop'.<br>
 <br>
-De Werkgroep Mariale Ommegang wil er in Nazareth ook een feestelijk jaar van maken. Volgende activiteiten worden al volop voorbereid:<br>
 <br>
-- In augustus komt een stoet van witte Mariabeeldjes naar Nazareth. Deze beeldjes trekken rond in Vlaanderen en Nederland en waren o.a. in mei en juni 2024 te gast in Oostakker Lourdes.<br>
-- In de tweede helft van augustus 2025 komt er een tentoonstelling in de kerk waarbij de geschiedenis van de Mariale Ommegang centraal staat.<br>
-- Op zaterdagavond <b>13 september 2025</b> zal er een kaarskensprocessie zijn langsheen het parcours van de Ommegang (onder politiebegeleiding).<br>
-- We voorzien een voordracht rond de figuur van Maria.<br>
-- De kapelletjesvieringen zullen extra aandacht krijgen.<br>
-- Afsluiten doen we in december 2025 met een vredes/kerstconcert.<br>
 <br>
-Wil je op de hoogte blijven van al onze activiteiten? Neem dan zeker regelmatig een kijkje op onze website: www.mariale-ommegang-nazareth.be<br>
-<br>
-Om onze projecten te kunnen financieren, hebben we een feestelijke noveenkaars ontworpen en een speciaal klein kaarsje.<br>
-Deze kunnen het ganse jaar door verkregen worden bij de Werkgroep.<br>
-Geef hiervoor gerust een seintje via mail op: {{<icon class="fa fa-envelope">}}&nbsp;<a href="werkgroepmarialeommegang@gmail.com">werkgroepmarialeommegang@gmail.com</a><br>
-of telefonisch op {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:0471903801">0471 90 38 01</a> of {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:0475612062">0475 61 20 62</a>. Woon je in Nazareth of Eke? Dan brengen we de kaarsen met plezier bij u thuis.<br>
-<br>
-Voor de noveenkaars betaalt u 5 EUR, één klein kaarsje kost 1 EUR, maar voor 5 EUR krijgt u 7 kaarsjes (ééntje voor elke dag van de week).<br>
 <br>
 <br>
 <br>
@@ -181,7 +176,71 @@ Ann, Francine, Marie-Hélène, Martin.<br>
 <br>
 Dit jaar koos Missio als campagneland Sri Lanka, een eiland ten zuiden van India. De Kerk vormt daar een minderheid en tracht te overleven in de economische en sociale crisis. Zonder onze steun zal het haar niet lukken. De directeur van Missio in Sri Lanka, priester Basil Rohan Fernando, bevestigt dat: "Als ik iets kan zeggen over de algemene toestand van het land, dan is het dat de meerderheid van de mensen in onze parochies het zeer moeilijk heeft." Dat komt niet alleen door de economische malaise, maar ook door de coronapandemie (twee jaar zonder toerisme), de wereldwijde instabiliteit en de natuurrampen omwille van de klimaatverandering. "Als gevolg hiervan zijn vele priesters altijd op zoek naar financiële steun."<br>
 <br>
+<b>Bidden we samen:</b><br>
+<br>
+<i>God, onze Vader,</i><br>
+<i>uw Zoon heeft ons zijn missie toevertrouwd.</i><br>
+<i>Kijk naar ons.</i><br>
+<i>We zijn als de Emmaüsgangers: </i><br>
+<i>mannen en vrouwen</i><br>
+<i>die het soms moeilijk hebben,</i><br>
+<i>mensen met twijfels, met moeilijke dagen.</i><br>
+<i>Onze zorgen en onze vreugde vertrouwen we U toe.</i><br>
+<i>Ga met ons mee op de weg van het leven.</i><br>
+<i>Luister naar onze zorgen, onze vreugde.</i><br>
+<i>Open ons hart voor uw Woord,</i><br>
+<i>doe ook ons hart branden.</i><br>
+<i>Kom aan onze tafel zitten,</i><br>
+<i>open onze ogen om U te herkennen</i><br>
+<i>in het breken van het brood</i><br>
+<i>en in het delen van ons leven.</i><br>
+<i>Vol vreugde zullen we dan opstaan</i><br>
+<i>om uw liefde aan onze wereld te openbaren.</i><br>
+<i>Amen. (Théogène Havugimana)</i><br>
+<br>
 <b>Op zondag 20 oktober is de jaarlijkse omhaling voor missiezondag hier bij ons gekend onder de naam "omhaling voor de Pauselijke missiewerken". Open je je hart of blijft het bij een oproep?</b><br>
+<br>
+<br>
+<br>
+
+
+
+
+
+#### BIDDEN VOOR VREDE
+<br>
+<figure><img src="images/pb-si.jpg" alt=" Gebed voor vrede © Bijbelcitaat" style="max-height: 500px; max-width: 500px;" /><figcaption> Gebed voor vrede © Bijbelcitaat</figcaption></figure><br>
+<br>
+<i>God,</i><br>
+<i>We bidden voor vrede in de wereld,</i><br>
+<i>in deze dagen bijzonder voor alle regio's</i><br>
+<i>waar oorlog en geweld heersen.</i><br>
+<i>We bidden voor het neerleggen van de wapens.</i><br>
+<br>
+<i>Wij bidden voor allen die vrezen voor de dag van morgen,</i><br>
+<i>dat uw Geest van troost tot hen wil naderen.</i><br>
+<i>We bidden voor hen die macht hebben over oorlog of vrede,</i><br>
+<i>om wijsheid, onderscheidingsvermogen en medeleven</i><br>
+<i>om beslissingen te leiden.</i><br>
+<i>Bovenal bidden wij voor uw kostbare kinderen,</i><br>
+<i>in gevaar en angst,</i><br>
+<i>dat U hen vasthoudt en beschermt.</i><br>
+<i>We bidden in naam van Jezus,</i><br>
+<i>Koning van de Vrede.</i><br>
+<i>Amen.</i><br>
+<br>
+<br>
+<br>
+
+
+
+
+
+#### WINTERUUR IN DE NACHT VAN 26 OP 27 OKTOBER
+<br>
+<figure><img src="images/pb-tu.jpg" alt=" Winteruur © hln.be" style="max-height: 500px; max-width: 500px;" /><figcaption> Winteruur © hln.be</figcaption></figure><br>
+<br>
+We gaan terug over naar het winteruur. Dit betekent van 3 uur naar 2 uur. Dus een uurtje meer slaap.<br>
 <br>
 <br>
 <br>

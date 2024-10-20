@@ -118,15 +118,14 @@ Er vlug bij zijn is de boodschap, het aantal deelnemers is beperkt.<br>
 
 #### LDC 'DEN OEVER' - GAVERE
 <br>
-<b>Woensdag 9 oktober</b> om 14.00 u.: Bingo<br>
-<b>Donderdag 10 oktober</b> om 10.00 u.: Bewegen op muziek<br>
-<b>Donderdag 10 oktober</b> om 19.00 u.: Mantelzorgcafé "Kanker en impact op de omgeving" - in de Bib te Gavere<br>
-<b>Maandag 14 oktober</b> om 14.00 u.: Kaarten i.s.m. Okra<br>
-<b>Dinsdag 15 oktober</b> om 10.00 u.: Yoga<br>
-<b>Dinsdag 15 oktober</b> om 14.00 u.: Lijndansen, Portrettekenen, Spelletjesnamiddag<br>
 <b>Woensdag 16 oktober</b> om 08.30 u.: Ontbijt<br>
 <b>Woensdag 16 oktober</b> om 14.00 u.: Diamond painting<br>
 <b>Donderdag 17 oktober</b> om 10.00 u.: Bewegen op muziek<br>
+<b>Maandag 21 oktober</b> om 14.00 u.: Fietstocht<br>
+<b>Dinsdag 22 oktober</b> om 10.00 u.: Yoga<br>
+<b>Dinsdag 22 oktober</b> om 14.00 u.: Lijndansen, Portrettekenen, Spelletjesnamiddag<br>
+<b>Donderdag 24 oktober</b> om 10.00 u.: Bewegen op muziek<br>
+<b>Donderdag 24 oktober</b> om 14.00 u.: Bonte baknamiddag: Pannenkoeken<br>
 <br>
 <br>
 <br>
@@ -139,11 +138,12 @@ Er vlug bij zijn is de boodschap, het aantal deelnemers is beperkt.<br>
 <br>
 OKRA-TREFPUNT EKE nodigt uit...<br>
 <br>
-<b>Woensdag 9 oktober</b> om 14.00 u. in CC De Brouwerij: Kaarten<br>
-<b>Donderdag 10 oktober</b> om 13.45 u. vertrek aan de kerk: Wandelen<br>
-<b>Dinsdag 15 oktober</b> om 14.00 u. in Sporthal Nazareth: Petanque<br>
 <b>Donderdag 17 oktober</b> om 14.00 u. in CC De Brouwerij: Lijndans en rummikub<br>
 <b>Vrijdag 18 oktober</b> om 11.00 u. vertrek aan de kerk: Philippine en Sluis<br>
+<b>Maandag 21 oktober</b> om 21.00 u. /10 14.00 in CC De Brouwerij: Schaken<br>
+<b>Woensdag 23 oktober</b> om 14.00 u. in CC De Brouwerij: Kaarten<br>
+<b>Donderdag 24 oktober</b> om 09.00 u. in CC De Brouwerij: Lijndans<br>
+<b>Donderdag 24 oktober</b> om 13.45 u. vertrek aan de kerk: Wandelen<br>
 <br>
 <b>Geïnteresseerd? Je bent welkom!</b><br>
 <br>
@@ -161,10 +161,9 @@ Zie ook: www.okra.be/trefpunt/eke<br>
 <br>
 Activiteiten van augustus, september 2024, oktober 2024<br>
 <br>
-<b>Donderdag 10 oktober</b> om 14.00 u. in cc Het Centrum: Lijndansen<br>
-<b>Maandag 14 oktober</b> in 't Boerenhof te Oostakker: Shownamiddag<br>
-<b>Dinsdag 15 oktober</b> om 14.00 u. in cc Het Centrum: Kaarten, rummikub<br>
 <b>Donderdag 17 oktober</b> om 14.00 u. in Oudenaarde: Bowling<br>
+<b>Dinsdag 22 oktober</b> om 14.00 u. aan de Sporthal: Petanque<br>
+<b>Donderdag 24 oktober</b> om 14.00 u. in cc het Centrum: Lijndansen<br>
 <br>
 !!! Voor meer info: OKRA GSM nummer {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:0484719871">0484 71 98 71</a><br>
 <br>
@@ -207,17 +206,6 @@ Op <b>7 november</b> om 14.00: Gespreksnamiddag rond VALPREVENTIE. Deze vorming 
 Op dinsdagen <b>12 november</b> en <b>10 december</b> is er crea in CC Het Centrum om 14.00 u. Deze activiteit is gratis en iedereen is van harte welkom.<br>
 <br>
 Ons kerstfeest is op zaterdag <b>21 december</b> in CC Het Centrum om 14.00 u. Onze leden worden nog persoonlijk uitgenodigd.<br>
-<br>
-<br>
-<br>
-
-
-
-
-
-#### VBS NAZARETH: SCHOOLETENTJE
-<br>
-<figure><img src="images/pb-tot.jpg" alt=" Schooletentje © VBS NAZARETH" style="max-height: 500px; max-width: 500px;" /><figcaption> Schooletentje © VBS NAZARETH</figcaption></figure><br>
 <br>
 <br>
 <br>

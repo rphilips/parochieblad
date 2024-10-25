@@ -11,6 +11,21 @@ header_menu: true
 
 
 
+#### DAVIDSFONDS ASPER
+<br>
+Davidsfonds Asper organiseert op vrijdag <b>15 november 2024</b> een lezing door Prof. Dirk Devroey over "Medische mythes. Mijn gezondheid. Wat is waarheid? Wat is mythe?".<br>
+<br>
+Een goede gezondheid is voor iedereen een van de belangrijkste aspecten van het leven. Op het internet, in tijdschriften, reclamespotjes enz. worden we overstelpt met middeltjes en tips om langer gezond te blijven of om ziektes te genezen. Maar ... in welke mate zijn deze correct, verzonnen, schadelijk misschien?<br>
+Prof. Devroey geeft ons een wetenschappelijk onderbouwd maar eveneens voor iedereen te begrijpen zicht op al deze (verkeerde) gezondheidstips, de mythes errond en hoe de misverstanden zijn ontstaan.<br>
+Praktisch:  vrijdag <b>15 november 2024</b> om 20.00 u. in het OC Martinus. Inkom: DF-leden: EUR 12,00 ; niet-leden:   EUR 15,00 ; a.d.k.: EUR 18,00. Inschrijven bij Martin Peleman (e-mail {{<icon class="fa fa-envelope">}}&nbsp;<a href="martin.peleman@telenet.be">martin.peleman@telenet.be</a> ; telefoon {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:092810967">09 281 09 67</a>) of bij de bestuursleden van DF Asper. Betalen op de rekening van Davidsfonds Asper <b>{{<icon class="fa fa-piggy-bank">}}&nbsp;BE36 8912 5401 1381</b>.<br>
+<br>
+<br>
+<br>
+
+
+
+
+
 #### FEMMA ASPER
 <br>
 <b>Yoga</b><br>
@@ -66,7 +81,7 @@ Inschrijven en meer info bij Steffi Beyaert op {{<icon class="fa fa-phone">}}&nb
 Elke dinsdag vanaf <b>17 september</b> t.e.m. <b>17 december</b> (uitgezonderd schoolvakanties) van 20.00 u. tot 21.00 u. Sporthal Scaldis, Sportdreef Gavere<br>
 <br>
 <b>Brei- en haakcafé</b><br>
-Woensdagen <b>9 en 23 oktober</b>, <b>6 en 20 november</b> om 19.00 u. :<br>
+Woensdagen <b>9 en 23 oktober, 6 en 20 november</b> om 19.00 u. :<br>
 Wie dit wenst kan dierenpantoffels haken. We zorgen voor het patroon en helpen je verder.<br>
 Breng garen mee (bvb Royal van de Zeeman) en een haaknaald nr 4.<br>
 Wie liever breit of werkt aan een eigen creatie, geen probleem. We helpen je verder bij problemen.<br>
@@ -74,11 +89,6 @@ Wie liever breit of werkt aan een eigen creatie, geen probleem. We helpen je ver
 <b>Pikkedonkerwandeling</b><br>
 Op zaterdag <b>19 oktober</b> I;s.m. Landelijke Gilde Asper<br>
 Info : Christiane loontjens op {{<icon class="fa fa-envelope">}}&nbsp;<a href="Loontjens.chris@telenet.be">Loontjens.chris@telenet.be</a> - {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:0479469650">0479 46 96 50</a><br>
-<br>
-<b>Paddenstoelen: Herfstwandeling</b><br>
-Op zaterdag <b>12 oktober</b> - OC ST.-Martinus Asper<br>
-Samen met onze gids, Jacques Vanheuverzwijn, maken we een herfstwandeling van 5 à 6 km en gaan we op zoek naar paddenstoelen. Na de wandeling trakteren we jullie met een tas koffie en iets zoetigs. Ook niet-leden zijn van harte welkom.<br>
-Inschrijven voor <b>11 oktober</b> bij Micheline Vandecauter via {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:093860859">09 386 08 59</a> of via {{<icon class="fa fa-envelope">}}&nbsp;<a href="micheline.vdcautere@gmail.com">micheline.vdcautere@gmail.com</a><br>
 <br>
 <b>Bloemschikles : Allerheiligen</b><br>
 <br>
@@ -93,39 +103,36 @@ of {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:093843313">09 384 33 13</
 
 
 
-#### FERM SEMMERZAKE
-<br>
-RONDLEIDING in de unieke tentoonstelling  "Margaretha, Keizersdochter tussen macht en imago" op zaterdag <b>19 oktober 2024</b>, om 14.00 u. , in het MOU Museum Oudenaarde.<br>
-Stap terug in de tijd en ontdek het fascinerende verhaal van Margaretha van Parma.<br>
-Voor het eerst ooit belicht een internationaal opgezette tentoonstelling deze bijzondere vrouw, dochter van Keizer Karel en dienstmeid Johanna Van der Gheynst, in haar geboortestad Oudenaarde.<br>
-Schilderijen en tekeningen o.a. afkomstig uit het Louvre, het Rijksmuseum en de National Gallery, wandtapijten en miniaturen, goud-en zilverwerk, glas-in-loodramen .... :   ze dompelen je onder in de kunst en cultuur van de 16e eeuw, een kanteltijd  in onze geschiedenis.   Maak kennis met rituelen en tradities van toen:   de (valken)jacht, feesten, etiquette en dresscode, muziek ...<br>
-Met je ticket kan je ook achteraf de aangrijpende video- en audio-installatie bezoeken van fotograaf Lieve Blancquaert en luitist Floris De Rycker in de O.L.Vrouw van Pamelekerk, doopkerk van Margaretha.<br>
-<br>
-Plaats van afspraak : ingang stadhuis Markt, Oudenaarde om 13.45 u. ;  de rondleiding start om 14.00 u.  en duurt +-01.30 u.<br>
-<br>
-Deelnameprijs :   Leden + gezinsleden:   inkom en gids 15 EUR - museumpashouders betalen slechts 5 EUR ; niet-leden betalen 20 EUR of met museumpas 10 EUR<br>
-<br>
-Info en inschrijven uiterlijk tot maandag <b>7 oktober</b>  2024 via {{<icon class="fa fa-envelope">}}&nbsp;<a href="fermsemmerzake@gmail.com">fermsemmerzake@gmail.com</a> of telefonisch {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:0499269983">0499 26 99 83</a> (Rita Nachtergaele).<br>
-Inschrijving is definitief na ontvangst van betaling via overschrijving op rekeningnummer  <b>{{<icon class="fa fa-piggy-bank">}}&nbsp;BE72 7374 4213 3016</b> van Ferm Semmerzake.<br>
-Er vlug bij zijn is de boodschap, het aantal deelnemers is beperkt.<br>
-<br>
-<br>
-<br>
-
-
-
-
-
 #### LDC 'DEN OEVER' - GAVERE
 <br>
-<b>Woensdag 16 oktober</b> om 08.30 u.: Ontbijt<br>
-<b>Woensdag 16 oktober</b> om 14.00 u.: Diamond painting<br>
-<b>Donderdag 17 oktober</b> om 10.00 u.: Bewegen op muziek<br>
-<b>Maandag 21 oktober</b> om 14.00 u.: Fietstocht<br>
-<b>Dinsdag 22 oktober</b> om 10.00 u.: Yoga<br>
-<b>Dinsdag 22 oktober</b> om 14.00 u.: Lijndansen, Portrettekenen, Spelletjesnamiddag<br>
 <b>Donderdag 24 oktober</b> om 10.00 u.: Bewegen op muziek<br>
 <b>Donderdag 24 oktober</b> om 14.00 u.: Bonte baknamiddag: Pannenkoeken<br>
+<b>Maandag 28 oktober</b> om 14.00 u.: Kaarten i.s.m. OKRA<br>
+<b>Dinsdag 29 oktober</b> om 14.00 u.: Lijndansen, Portrettekenen, Spelletjesnamiddag<br>
+<b>Woensdag 30 oktober</b> om 11.30 u.: Halloweenmenu<br>
+<b>Donderdag 31 oktober</b> om 14.00 u.: Curieuzeneuzenmarkt<br>
+<br>
+<br>
+<br>
+<br>
+
+
+
+
+
+#### NAZARETH: BOND ZONDER NAAM
+<br>
+BOND ZONDER NAAM heeft oog en oor voor wie niet gezien of gehoord wordt: mensen in<br>
+kansarmoede, mensen achter tralies, mensen zonder huis of thuis, mensen in eenzaamheid,<br>
+verdwaalde mensen in onze samenleving. Veel initiatieven en projecten waarvoor geld nodig is. Ook jij<br>
+kunt steunen door de aankoop van de prachtige kalender die te krijgen is bij:<br>
+Jo Buysse, Lijsterstraat 20, Nazareth; tel: {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:093855289">09 385 52 89</a>; e-mail {{<icon class="fa fa-envelope">}}&nbsp;<a href="jozef.buysse@scarlet.be">jozef.buysse@scarlet.be</a>;<br>
+Hendrik en Lieve Le Roy, Warandestraat 17, Nazareth; tel: {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:093854460">09 385 44 60</a>; e-mail:<br>
+{{<icon class="fa fa-envelope">}}&nbsp;<a href="leroyhendrik@gmail.com">leroyhendrik@gmail.com</a>;<br>
+Raf en Marleen De Vos Besard, Tempelstraat 8, 9890 Asper; Tel: {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:093841873">09 384 18 73</a>; e-mail<br>
+{{<icon class="fa fa-envelope">}}&nbsp;<a href="devos.besard@telenet.be">devos.besard@telenet.be</a>;<br>
+Meer informatie vind je ook op: www.bzn.be.<br>
+Met dank bij voorbaat<br>
 <br>
 <br>
 <br>
@@ -138,12 +145,12 @@ Er vlug bij zijn is de boodschap, het aantal deelnemers is beperkt.<br>
 <br>
 OKRA-TREFPUNT EKE nodigt uit...<br>
 <br>
-<b>Donderdag 17 oktober</b> om 14.00 u. in CC De Brouwerij: Lijndans en rummikub<br>
-<b>Vrijdag 18 oktober</b> om 11.00 u. vertrek aan de kerk: Philippine en Sluis<br>
-<b>Maandag 21 oktober</b> om 21.00 u. /10 14.00 in CC De Brouwerij: Schaken<br>
 <b>Woensdag 23 oktober</b> om 14.00 u. in CC De Brouwerij: Kaarten<br>
 <b>Donderdag 24 oktober</b> om 09.00 u. in CC De Brouwerij: Lijndans<br>
 <b>Donderdag 24 oktober</b> om 13.45 u. vertrek aan de kerk: Wandelen<br>
+<b>Maandag 28 oktober</b> om 13.30 u. in CC De Brouwerij: Crea-atelier<br>
+<b>Dinsdag 29 oktober</b> om 14.00 u. in Sporthal Nazareth: Petanque<br>
+<b>Donderdag 31 oktober</b> om 14.00 u. in CC De Brouwerij: Lijndans en rummikub<br>
 <br>
 <b>Geïnteresseerd? Je bent welkom!</b><br>
 <br>
@@ -161,9 +168,9 @@ Zie ook: www.okra.be/trefpunt/eke<br>
 <br>
 Activiteiten van augustus, september 2024, oktober 2024<br>
 <br>
-<b>Donderdag 17 oktober</b> om 14.00 u. in Oudenaarde: Bowling<br>
-<b>Dinsdag 22 oktober</b> om 14.00 u. aan de Sporthal: Petanque<br>
 <b>Donderdag 24 oktober</b> om 14.00 u. in cc het Centrum: Lijndansen<br>
+<b>Maandag 28 oktober</b> om 09.30 u. cc Het Centrum: Bestuursvergadering<br>
+<b>Dinsdag 29 oktober</b> om 14.00 u. in cc Het Centrum: Kaarten, rumikub, crea<br>
 <br>
 !!! Voor meer info: OKRA GSM nummer {{<icon class="fa fa-phone">}}&nbsp;<a href="tel:0484719871">0484 71 98 71</a><br>
 <br>
